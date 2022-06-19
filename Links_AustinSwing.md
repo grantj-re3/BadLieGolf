@@ -9,6 +9,7 @@
 1. [Steve Pratt Golf | Left Arm Action for Incredible Distance! (video) | 2021](https://www.youtube.com/watch?v=V8nZeZ2xCtc)
 
 1. [Steve Pratt Golf | ANYONE Can Drive the Golf Ball 250+ Yards! (video) | 2021](https://www.youtube.com/watch?v=MEC8CuEgEQQ)
+   * See the tip below regarding a Strike spray substitute
 
 1. [Steve Pratt Golf | Top 4 Reasons Why You Never Improve! (video) | 2021](https://www.youtube.com/watch?v=BHUiPLXdLHs)
 
@@ -19,6 +20,41 @@ He explains concepts very clearly. See:
 
 - [Steve Pratt Golf | YouTube channel & playlists](https://www.youtube.com/channel/UCSUVEHltWL-HQePj4lRE0_g)
 - [Steve Pratt | HitItLonger.com](https://hititlonger.com/)
+
+### Strike spray (or impact spray) substitute
+
+* The above video *ANYONE Can Drive the Golf Ball 250+ Yards!* (recorded in
+  the USA) discusses using Dr Scholl's Odor-X spray powder to show the
+  impact position of the golf ball on the club face
+* Dr Scholl's Odor-X spray powder is not readily available in Australia
+* You can buy a can of Strike Spray Impact Chalk 136g from Drummonds,
+  House of Golf, etc. for about AU$20 to AU$25 (at June 2022)
+* Scholl Fresh Step Foot Spray 24 Hour 96g is available in Australia but
+  apparently does *not* leave a residue so cannot be used as an impact spray
+* [This](https://www.reddit.com/r/golf/comments/o68rhb/suggestion_for_a_strike_spray_substitute/) link and
+  [this](https://www.boards.ie/discussion/2058173408/golf-club-impact-spray) link
+  suggest using *Batiste Dry Shampoo* as a substitute. This product ***is***
+  available in Australia
+* I bought Batiste **Original** Dry Shampoo 120g/200ml for AU$10 from
+  Woolworths and it works well for me.
+  - I found best results if you wipe the club face clean with a damp
+    cloth before applying the spray
+  - You need to wait half a minute or so for it to dry (and become white)
+    before striking the ball with the club head.
+  - It is useful for 5 or so hits
+  - It works with my driver and metal-wood with a dark club face and also
+    with my irons with silver colour club face
+  - I feel you should wipe the residue from the club face (and any other
+    part of the club) with a damp cloth after you've finished practicing
+    and before putting the clubs away (to potentially avoid permanent
+    discolouration)
+* Some of the Batiste products (e.g. Batiste Divine Dark Dry Shampoo)
+  say on the can that they do *not* leave a white residue, so those
+  would be unsuitable
+* This product is also available in a larger can 210g/350ml for a higher
+  price
+* Batiste Dry Shampoos are available from Woolworths, Coles, Chemist
+  Warehouse, Priceline, etc.
 
 
 ## Jaacob Bowden

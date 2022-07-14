@@ -14,10 +14,10 @@
       close club face slightly) before the down swing. The ball
       launches lower with more spin.
 
-Also don't keep your head down after you strike the ball. Instead, rotate the hips/body after you strike the ball.
+   Also don't keep your head down after you strike the ball. Instead, rotate the hips/body after you strike the ball.
 
 
-1. [MrShortGame | Top 5 Tips for the 80 Yard Golf Shot | 2020](https://www.youtube.com/watch?v=TH74wwBcv2Y)
+1. [MrShortGame | Top 5 Tips for the 80 Yard Golf Shot (video) | 2020](https://www.youtube.com/watch?v=TH74wwBcv2Y)
 
    1. Do not use your 80 yard full-shot club. Use 1 or 2 clubs more (less
       lofted) to give more margin for error.
@@ -39,7 +39,7 @@ Also don't keep your head down after you strike the ball. Instead, rotate the hi
       * Hands are *not* high near your shoulder.
 
 
-1. [MrShortGame | How to Hit the Simple Golf Flop Shot! | 2018](https://www.youtube.com/watch?v=VR-nMi4e9ko)
+1. [MrShortGame | How to Hit the Simple Golf Flop Shot! (video) | 2018](https://www.youtube.com/watch?v=VR-nMi4e9ko)
 
    Simple version of flop shot:
    - For situations where you are on a "tight" lie. Hence you can practice
@@ -59,5 +59,5 @@ Also don't keep your head down after you strike the ball. Instead, rotate the hi
        club *must not* hit the ground.
 
 
-1. [MrShortGame | 5 Worst Chipping Mistakes in Golf and How to Fix Them! | 2022](https://www.youtube.com/watch?v=0SIUvql5RiE)
+1. [MrShortGame | 5 Worst Chipping Mistakes in Golf and How to Fix Them! (video) | 2022](https://www.youtube.com/watch?v=0SIUvql5RiE)
 

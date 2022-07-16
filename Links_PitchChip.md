@@ -39,6 +39,33 @@
       * Hands are *not* high near your shoulder.
 
 
+1. [MrShortGame | 5 Worst Chipping Mistakes in Golf and How to Fix Them! (video) | 2022](https://www.youtube.com/watch?v=0SIUvql5RiE)
+
+   Tips and fixes:
+
+   1. Course management: When approaching the green (usually with a full shot)
+      ensure your miss leaves you with a chance for "up and down". That is,
+      miss to the position (i.e. left, right, front, back) where you have
+      "green to work with".
+   1. Course management: Assess the chip rather than take out your
+      favourite/standard chipping club.
+      * Read the green
+      * Take the club which will land ~5 feet past the front of the green
+        and let the ball run to the hole
+   1. For (especially short?) chips, you *must* allow the *bounce* of the
+      club to hit the ground, ***not the leading edge***. So, either:
+      * do *not* have your hands forward (very much), or
+      * if you do want your hands forward, open the club face
+   1. For (especially short?) chips, accelerate through impact as follows:
+      * feel as though the weight of the club head is falling due to gravity
+        until you strike the ball
+      * accelerate after striking the ball (when arms are about 6 o'clock
+        to 4 o'clock)
+   1. Do not "stay down" after impact. 
+      * Rotate towards the target
+      * "Open up" the left shoulder
+
+
 1. [MrShortGame | How to Hit the Simple Golf Flop Shot! (video) | 2018](https://www.youtube.com/watch?v=VR-nMi4e9ko)
 
    Simple version of flop shot:
@@ -57,7 +84,4 @@
      * No elbow bend.
      * Feel the "bounce" of the club hit the ground. The leading edge of the
        club *must not* hit the ground.
-
-
-1. [MrShortGame | 5 Worst Chipping Mistakes in Golf and How to Fix Them! (video) | 2022](https://www.youtube.com/watch?v=0SIUvql5RiE)
 

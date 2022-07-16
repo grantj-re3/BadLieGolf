@@ -38,9 +38,9 @@
 
 ## MrShortGame - Matt Fisher
 
-1. [MrShortGame | How to Make More Putts with No Practice! | 2020](https://www.youtube.com/watch?v=wcNM04zTVo0)
+1. [MrShortGame | How to Make More Putts with No Practice! (video) | 2020](https://www.youtube.com/watch?v=wcNM04zTVo0)
 
-   Things to try while on the course playing golf. *Do your practice* ***while you are playing***.
+   Things to try while on the course playing golf. *Do your practice while you are playing*.
 
    1. Read the putt of the other players in your group
    1. Find the high [and low] point of the green and course
@@ -49,7 +49,7 @@
    1. Practice drill for quiet hands
    1. Pick a spot 1 foot ahead of the ball
 
-1. [MrShortGame | Top 5 Green Reading Tips for Golf! | 2019](https://www.youtube.com/watch?v=LNfavF72bQI)
+1. [MrShortGame | Top 5 Green Reading Tips for Golf! (video) | 2019](https://www.youtube.com/watch?v=LNfavF72bQI)
 
    1. As you approach the green, look for the highest point
    1. As you approach the green, look for the lowest point
@@ -57,7 +57,7 @@
    1. Make sure the info about the green matches up (i.e. makes sense) when you look at the line from behind your ball
    1. Look at the grain of the grass
 
-1. [MrShortGame | Putting Drill to Make More Birdies! (The 20 foot putt) | 2018](https://www.youtube.com/watch?v=z_PR18lvbmY)
+1. [MrShortGame | Putting Drill to Make More Birdies! (The 20 foot putt) (video) | 2018](https://www.youtube.com/watch?v=z_PR18lvbmY)
    * Pace out 20 feet
    * Warm up by:
      + putting with one hand
@@ -76,7 +76,7 @@
        alignment stick
      + Repeat with marker 2, 3, 4, 5, 6 feet behind the gate (21, 22, 23, 24, 25 feet from the hole)
 
-1. [MrShortGame | Best Lag Putting Drill! (40-60 feet) | 2018](https://www.youtube.com/watch?v=x3C2z75xVyY)
+1. [MrShortGame | Best Lag Putting Drill! (40-60 feet) (video) | 2018](https://www.youtube.com/watch?v=x3C2z75xVyY)
    * Make 4 quadrants/areas at the edge of the practice green (using 5 clubs)
    * Pace out 40 feet
    * Putt 5 balls into each area

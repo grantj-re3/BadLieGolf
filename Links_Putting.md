@@ -29,9 +29,9 @@
 ## Aussie Golf Pros
 
 * Long putts - equal backswing/followthrough:
-  [Glen Haynes | Myth No.4 - Accelerate Through Putts (video) | 2021](https://www.youtube.com/watch?v=wSWC3_xv8Vc)
-* Reading: [Glen Haynes | Complete Guide To Green Reading (video) | 2020](https://www.youtube.com/watch?v=06bT7LGEh90)
-* Reading: [Glen Haynes | Putting - Green Reading (Why You Miss On The Low Side - Amateur Miss) (video) | 2020](https://www.youtube.com/watch?v=W9C-8H2dIA4)
+  [Aussie Golf Pros (Glen Haynes) | Myth No.4 - Accelerate Through Putts (video) | 2021](https://www.youtube.com/watch?v=wSWC3_xv8Vc)
+* Reading: [Aussie Golf Pros (Glen Haynes) | Complete Guide To Green Reading (video) | 2020](https://www.youtube.com/watch?v=06bT7LGEh90)
+* Reading: [Aussie Golf Pros (Glen Haynes) | Putting - Green Reading (Why You Miss On The Low Side - Amateur Miss) (video) | 2020](https://www.youtube.com/watch?v=W9C-8H2dIA4)
 * Distance control drill/game: [Glen Haynes | Putting Game for Perfect Pace | 2020](https://www.youtube.com/watch?v=TrKgEFB2HEI)
 * Short putt drill/game: [The Best Putting Drill - Clockface (video) | 2019](https://www.youtube.com/watch?v=VGMUaBdZE84)
 
@@ -82,4 +82,49 @@
    * Putt 5 balls into each area
    * Next day repeat for 50 feet
    * Next day repeat for 60 feet
+
+
+## My putting thoughts
+
+I confess that I putt with the [claw grip](Links_PuttingClawSaw.md).
+I am not a great putter but I feel my putting has improved since
+changing to this grip 8 months ago (in late 2021).
+
+
+### Rock your shoulders when putting
+
+I prefer the feeling of "rocking" my shoulders when putting rather than
+"rotating" the shoulders. (This is a little controversial as some putting
+coaches advocate the opposite!)
+
+* During the backswing I have the sensation that my left shoulder is moving
+  down (towards the ground) and my right shoulder is moving up (towards the
+  sky).
+* During the downswing and follow through I have the sensation that my left
+  shoulder is moving up (towards the sky) and my right shoulder is moving
+  down (towards the ground)
+
+1. [We play golf (Tom Blanckaert) | Rock your shoulders, don't rotate while you putt - Easy golf tip! (video) | 2020](https://www.youtube.com/watch?app=desktop&v=Zud6JJ2Z4UA)
+
+1. [Neville Walker | Master Your Putting to Master Your Game: Ezines - Shoulders | 2008-2022](https://www.better-golf-by-putting-better.com/shoulders.html)
+
+1. [Neville Walker | Master Your Putting to Master Your Game: UPPER BODY - Shoulder Movement | 2008-2022](https://www.better-golf-by-putting-better.com/putting-stroke.html#upperbody)
+
+
+### A good putt starts with a good takeaway
+
+Assuming you've setup properly for your putt...
+
+* It is almost impossible for your putter head to follow the correct path
+  towards the ball if you took the putter away (from address) on the wrong
+  path.
+* It is easier to adjust the speed of your putt by adjusting the length of
+  your takeaway (and follow through)... rather than have a similar length
+  takeaway for every putting speed. See Aussie Golf Pros equal 
+  backswing/followthrough link above.
+
+
+## Putting quotes
+
+* [Neville Walker | Master Your Putting to Master Your Game: Putting Quotes | 2008-2022](https://www.better-golf-by-putting-better.com/putting-quotes.html)
 

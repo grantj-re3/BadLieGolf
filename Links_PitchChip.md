@@ -6,7 +6,7 @@
 
    1. Keep ~70% of your weight on left/lead leg. Do not transfer weight
       from right leg to left leg.
-   1. Do not rotate hands open during back swing.
+   1. Do not *rotate hands open* during back swing.
    1. During backswing, arms do not go above horizontal. If the shot
       needs to go further, use a longer club.
    1. Club must be accelerating at impact.
@@ -37,6 +37,16 @@
         your hands are by your belt buckle.
       * Finishing low forces your body to rotate.
       * Hands are *not* high near your shoulder.
+
+
+1. [MrShortGame | Top Golf Tips for the 60 Yard Shot! (video) | 2019](https://www.youtube.com/watch?v=uAew1SabZYs)
+
+   Similar to the 30 and 80 yard tips above.
+
+   1. No wrist cock. (No wrist hinge.)
+   1. Shallow back swing. Hands are not up near your shoulder during back swing. Take the club back shallow and "on the inside".
+   1. Narrow stance. Stand tall.
+   1. Open the club face a degree or two (so the bounce hits the ground before the club face hits the ball).
 
 
 1. [MrShortGame | 5 Worst Chipping Mistakes in Golf and How to Fix Them! (video) | 2022](https://www.youtube.com/watch?v=0SIUvql5RiE)

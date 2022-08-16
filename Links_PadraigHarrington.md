@@ -78,7 +78,7 @@
    - Drill 2 - speed:
      * Use a 9 iron?
      * Line up 5-6 balls in a row (perpendicular to the target line; with 1-2 ball gap between each)
-     * Hit (flick) first ball
+     * Hit (flick) the closest ball
      * Swing back from follow through position all the way to backswing/flick position; at the same time step forward by the distance between the balls
      * Repeat the above 2 steps
    - Drill 3 - learn face control:

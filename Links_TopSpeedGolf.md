@@ -6,7 +6,7 @@
 1. [Top Speed Golf - Clay Ballard | How to Keep The Left Arm Straight in The Backswing (video) | 2022](https://www.youtube.com/watch?v=jqRpTC1KAhw)
    - ***Excellent video!*** Describes how far back your left arm should be at the completion of the backswing
 
-1. [Top Speed Golf - Clay Ballard | How Senior Golfers Hit It Long & Straight | EFFORTLESS Power Moves | 2021](https://www.youtube.com/watch?v=Daz_cZ8N1YE)
+1. [Top Speed Golf - Clay Ballard | How Senior Golfers Hit It Long & Straight | EFFORTLESS Power Moves (video) | 2021](https://www.youtube.com/watch?v=Daz_cZ8N1YE)
    - 3 videos combined into one:
      + 0m14s Weight shift and hip turn during the backswing and downswing/follow through
      + 8m32s ***Excellent video!*** Golf swing for seniors; build your custom swing (to fit your range of motion)
@@ -63,9 +63,9 @@
        * the left toes come off the ground while the left heel stays on the ground
        * your feet spin to the left
        * legs now face the target
-       * the left foot now faces the target
+       * the left foot now points towards the target
 
-1. [Top Speed Golf - Clay Ballard | Increase Your Golf Swing Speed | 2018](https://www.youtube.com/watch?v=3p_rW9KJwhE)
+1. [Top Speed Golf - Clay Ballard | Increase Your Golf Swing Speed (video) | 2018](https://www.youtube.com/watch?v=3p_rW9KJwhE)
    - How to get your arms involved
    - Drill 1:
      * Use driver
@@ -82,7 +82,7 @@
      * Same feeling as above for arms and hands [and wrists]
      * Also use knees and hip rotation
 
-1. [Top Speed Golf - Clay Ballard | Swing SHORT = Hit LONGER | 2021](https://www.youtube.com/watch?v=y-G8OucM5hk)
+1. [Top Speed Golf - Clay Ballard | Swing SHORT = Hit LONGER (video) | 2021](https://www.youtube.com/watch?v=y-G8OucM5hk)
    - Right knee moves back as the left knee moves forward
    - Moving the knees should allow the hips to turn about 45° during the backswing
    - Moving hips should allow chest to open up (as if you were to grab something with right hand from a high shelf behind you)

@@ -14,7 +14,7 @@
       close club face slightly) before the down swing. The ball
       launches lower with more spin.
 
-   Also don't keep your head down after you strike the ball. Instead, rotate the hips/body after you strike the ball.
+   Also don't keep your head down after you strike the ball. Instead, rotate the hips/body **after** you strike the ball.
 
 
 1. [MrShortGame | Top 5 Tips for the 80 Yard Golf Shot (video) | 2020](https://www.youtube.com/watch?v=TH74wwBcv2Y)
@@ -83,9 +83,9 @@
      from a mat.
    - High, soft spinning shot with little or no run after it lands. But not
      the full flop shot.
-   - 60 degree wedge.
+   - 60° wedge.
    - Open the club face.
-   - Aim 30-45 degree left/open.
+   - Aim 30-45° left/open.
    - Narrow stance. Less than shoulder width.
    - Ball in center or slightly forward in your stance.
    - Hands in center or slightly forward.
@@ -94,4 +94,27 @@
      * No elbow bend.
      * Feel the "bounce" of the club hit the ground. The leading edge of the
        club *must not* hit the ground.
+
+
+1. [Top Speed Golf - Clay Ballard | How To Hit Chip Shots Around The Green | Easy Technique | 2020](https://www.youtube.com/watch?v=ZMzVn7bkNqE)
+
+   - 1m11s: The putt chip (10 yards max)
+     * Upright shaft; only toe brushes the ground
+     * 7-9 iron or hybrid
+     * Legs locked "putting stroke"
+     * Little forward shaft lean
+   - 5m04: Normal chip (~80 yards max)
+     * Fluid stroke; knees, hips and shoulders rotate
+     * Heels almost touching
+     * Open stance
+     * Let wrists stay "soft"
+   - 7m27s: Low super spin wedge shot (40-80 yards)
+     * Get the body to open up during follow through
+     * Natural forward shaft lean
+     * 9m07s: Cheat stance or drill stance; 45° open
+     * Very little face rotation
+   - 11m22s: Easy chipping
+     * Keep knees moving (and hips and shoulders)
+     * Where to place the ball? Do some practice chips with eyes closed.
+     * Eyes must stay still until after contact
 

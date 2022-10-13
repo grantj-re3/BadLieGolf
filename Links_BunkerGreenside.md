@@ -82,3 +82,19 @@
    - Face open by ~30 degrees
    - Hit the sand 6-7" behind ball (not 2" as commonly recommended)
 
+1. [Top Speed Golf - Clay Ballard | Best Bunker Tips | How to Play Bunkers - Hard or Soft Sand | 2020](https://www.youtube.com/watch?v=FVqWoduC-tk)
+   - 0m32s: Soft sand (15m / 50 foot shot):
+     * Face open, ~45°
+     * Wide stance (dig your shoes into the sand)
+     * Ball forward in stance
+     * Weight on front foot
+     * Swing vertical / thump the sand
+     * Hit the sand 4-6" behind ball
+     * Big/full swing [with follow through and body facing target]
+   - 5m05s: Hard/wet sand (15m / 50 foot shot):
+     * Face less open, ~30°
+     * Hit the sand closer to the ball; 2-4" behind ball
+     * Hit down to penetrate the wet, hard sand
+     * Swing ultra-aggressive (even more aggressive than soft sand because you are trying to **penetrate** the **hard sand**) / thump the sand
+     * Other aspects as for soft sand [including big/full swing with follow through and body facing target]
+

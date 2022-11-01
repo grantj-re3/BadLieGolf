@@ -100,17 +100,22 @@
 
 1. [Aussie Golf Pros | Hard Sand | 2019](https://www.youtube.com/watch?v=WY3zL-oiqCE)
 
+1. [Golf Channel - Nathalie Filler | 'Butterfly' Bunker Shot Grip (video) | 2021](https://www.youtube.com/watch?v=1FuSXHJhZto) - high shot
 
-## More great bunker info
+
+## More bunker info
 
 1. [Golf Digest - Butch Harmon | Use Butch Harmon's keys to simplify bunker shots | 2019](https://www.golfdigest.com/story/use-butch-harmons-keys-to-simplify-bunker-shots)
-1. [Gravity Golf | Sand shots made easy using gravity | 2018](https://gravitygolf.com/sand-shots-made-easy-using-gravity-golf/)
+1. [Scott Mahlberg | Taking Too Much Sand in the Bunker (video) | 2014](https://www.youtube.com/watch?v=xpMZo-fqV1E)
+1. [Gravity Golf | Sand shots made easy using gravity (video) | 2018](https://gravitygolf.com/sand-shots-made-easy-using-gravity-golf/)
+1. [Greg Norman | FOUR 'MUSTS' IN BUNKERS | c.2017](https://shark.com/the-shark/golf-tips/lesson-57/)
+1. Michael Hamilton Golf | The Bunker Series | 2018
+   * [Bunker: Addressing the ball](https://michaelhamiltongolf.com/bunker-address/)
+   * [Bunker: The club](http://michaelhamiltongolf.com/bunker-the-club/)
+   * [Bunker: Ball striking](http://michaelhamiltongolf.com/bunker-ball-striking/)
+   * [Bunker: Mid-long bunker shots](http://michaelhamiltongolf.com/bunker-mid-long-bunker-shot/)
 1. [Golf Info Guide | Causes and Cures: Leaving Bunker Shots in the Sand – Golf Swing Tip | 2012](https://golf-info-guide.com/golf-tips/playing-conditions/causes-and-cures-leaving-bunker-shots-in-the-sand/)
 1. [Golf Info Guide | Using Your Putter Effectively in a Bunker | 2018](https://golf-info-guide.com/golf-tips/bunker-golf-tips/using-your-putter-effectively-in-a-bunker/)
-1. [Michael Hamilton Golf | The Bunker Series | 2018](https://michaelhamiltongolf.com/bunker-address/)
-1. [Scott Mahlberg | Taking Too Much Sand in the Bunker (video) | 2014](https://www.youtube.com/watch?v=xpMZo-fqV1E)
-1. [Golf Channel | 'Butterfly' Bunker Shot Grip (video) | 2021](https://www.youtube.com/watch?v=1FuSXHJhZto) - high shot
-1. [Greg Norman | FOUR 'MUSTS' IN BUNKERS | c.2017](https://shark.com/the-shark/golf-tips/lesson-57/)
 
 
 ## Summary
@@ -130,13 +135,13 @@
   * rotate your body and finish facing the target
 - So we have plenty of loft to get the ball out of the bunker:
   * use a wide stance which brings the body and hands low
-  * make a steep the backswing by:
+  * make a fairly steep backswing by:
     + breaking the wrists (so the arms and shaft form an "L" shape
-    + take the club up (not back behind your body)
+    + take the club up (not too far back behind your body)
 - Also:
   * dig/grind your feet into the sand (for stability)
   * grip down the shaft for more control (and to compensate for
-    'low hands' due to digging feet into sand and wide stance)
+    'low hands' due to digging feet into sand plus the wide stance)
   * flare the front foot (to promote a follow through)
 - My tip:
   * after observing the lie of the ball in the bunker, consider doing
@@ -171,16 +176,21 @@
        + swing as before
 
 1. [The Art of Simple Golf - Alex Fortey | How To Practice Perfect Bunker Shots Without Needing A Sand Trap | 2016](https://www.youtube.com/watch?v=X7JPVXGiPj0)
-   - Acceleration drill: hit the tee out from under the ball
-   - [You may require a net or limited flight (foam or hollow) practice ball if you are doing this at home]
+   - Acceleration drill 1:
+     * Hit the tee
+   - Acceleration drill 2:
+     * Hit the tee out from under the ball
+     * [You may require a net or limited flight (foam or hollow) practice ball if you are doing this at home]
 
 1. Purchase a *bunker board*
    - https://pelzgolf.com/product/bunker-board
    - [Dave Pelz Golf | Dave Pelz Bunker Board (video) | 2015](https://www.youtube.com/watch?v=L9P_d8o3ip4)
    - [Dave Pelz Golf | Dave Pelz's Bunker Board (30 Seconds) (video) | 2015](https://www.youtube.com/watch?v=gFMpHkpAXMA)
+   - [The Hackers Paradise | Bunker Board forum discussion | 2015](https://www.thehackersparadise.com/forum/index.php?threads/bunker-board-from-dave-pelz-golf.78847/)
 
 1. Purchase a *pocket bunker*
    - https://www.pocketbunker.com/
    - [Pocket Bunker | Pocket Bunker International Launch | 2016](https://www.youtube.com/watch?v=25pMnQ3dI1Q)
    - [MrShortGame Golf | The at Home Golf Bunker Training Aid - Pocket Bunker (video) | 2021](https://www.youtube.com/watch?v=DOM3eXdphbY)
+   - [Mike Sullivan | Pocket Bunker Review (video) | 2022](https://www.youtube.com/watch?v=OndtaOwYevE)
 

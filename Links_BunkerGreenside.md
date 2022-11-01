@@ -98,6 +98,52 @@
      * Swing ultra-aggressive (even more aggressive than soft sand because you are trying to **penetrate** the **hard sand**) / thump the sand
      * Other aspects as for soft sand [including big/full swing with follow through and body facing target]
 
+1. [Aussie Golf Pros | Hard Sand | 2019](https://www.youtube.com/watch?v=WY3zL-oiqCE)
+
+
+## More great bunker info
+
+1. [Golf Digest - Butch Harmon | Use Butch Harmon's keys to simplify bunker shots | 2019](https://www.golfdigest.com/story/use-butch-harmons-keys-to-simplify-bunker-shots)
+1. [Gravity Golf | Sand shots made easy using gravity | 2018](https://gravitygolf.com/sand-shots-made-easy-using-gravity-golf/)
+1. [Golf Info Guide | Causes and Cures: Leaving Bunker Shots in the Sand – Golf Swing Tip | 2012](https://golf-info-guide.com/golf-tips/playing-conditions/causes-and-cures-leaving-bunker-shots-in-the-sand/)
+1. [Golf Info Guide | Using Your Putter Effectively in a Bunker | 2018](https://golf-info-guide.com/golf-tips/bunker-golf-tips/using-your-putter-effectively-in-a-bunker/)
+1. [Michael Hamilton Golf | The Bunker Series | 2018](https://michaelhamiltongolf.com/bunker-address/)
+1. [Scott Mahlberg | Taking Too Much Sand in the Bunker (video) | 2014](https://www.youtube.com/watch?v=xpMZo-fqV1E)
+1. [Golf Channel | 'Butterfly' Bunker Shot Grip (video) | 2021](https://www.youtube.com/watch?v=1FuSXHJhZto) - high shot
+1. [Greg Norman | FOUR 'MUSTS' IN BUNKERS | c.2017](https://shark.com/the-shark/golf-tips/lesson-57/)
+
+
+## Summary
+
+- We must "engage the bounce" of the sand wedge, hence:
+  * ball forward in stance
+  * weight on front foot
+  * shaft must be vertical at address (or even slightly tilted away from the target) when viewed from the front
+  * open the club face
+  * do not release wrists much at impact or follow through (i.e. keep the club face open)
+- Since we are going to hit the sand and not the ball, this requires a lot of energy, hence:
+  * take a good length backswing
+  * thump the sand
+  * make first contact with the sand about 2" behind the ball
+  * take a shallow divit (about 1" deep)
+  * continue with the follow through
+  * rotate your body and finish facing the target
+- So we have plenty of loft to get the ball out of the bunker:
+  * use a wide stance which brings the body and hands low
+  * make a steep the backswing by:
+    + breaking the wrists (so the arms and shaft form an "L" shape
+    + take the club up (not back behind your body)
+- Also:
+  * dig/grind your feet into the sand (for stability)
+  * grip down the shaft for more control (and to compensate for
+    'low hands' due to digging feet into sand and wide stance)
+  * flare the front foot (to promote a follow through)
+- My tip:
+  * after observing the lie of the ball in the bunker, consider doing
+    your practice swing *outside* the bunker to check where you first
+    make contact with the ground
+
+
 ## How to practice bunker shots... without a bunker
 
 1. Use a towel

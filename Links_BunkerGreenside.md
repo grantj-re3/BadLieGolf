@@ -82,7 +82,7 @@
    - Face open by ~30 degrees
    - Hit the sand 6-7" behind ball (not 2" as commonly recommended)
 
-1. [Top Speed Golf - Clay Ballard | Best Bunker Tips | How to Play Bunkers - Hard or Soft Sand | 2020](https://www.youtube.com/watch?v=FVqWoduC-tk)
+1. [Top Speed Golf - Clay Ballard | Best Bunker Tips | How to Play Bunkers - Hard or Soft Sand (video) | 2020](https://www.youtube.com/watch?v=FVqWoduC-tk)
    - 0m32s: Soft sand (15m / 50 foot shot):
      * Face open, ~45°
      * Wide stance (dig your shoes into the sand)
@@ -97,4 +97,44 @@
      * Hit down to penetrate the wet, hard sand
      * Swing ultra-aggressive (even more aggressive than soft sand because you are trying to **penetrate** the **hard sand**) / thump the sand
      * Other aspects as for soft sand [including big/full swing with follow through and body facing target]
+
+## How to practice bunker shots... without a bunker
+
+1. Use a towel
+   - [fitzygolfpro - Brian Fitzgerald | How To Practice Bunker Shots At Home (video) | 2020](https://youtu.be/DIkS-Br_LTc)
+   - [fitzygolfpro - Brian Fitzgerald | How To Practice Bunker Shots Without Any Sand Using A Towel (video) | 2018](https://www.youtube.com/watch?v=VZ8N_WCpIyY)
+   - [Erika Larkin | HOW TO HIT A BUNKER SHOT AT HOME: Golf Hack! (video) | 2020](https://www.youtube.com/watch?v=WMu6dOw0bS0)
+
+1. [Golf.com - Kevin Sprecher | Home Practice: Bunker Splash (video) | 2020](https://golf.com/instruction/bunker-shots/home-practice-bunker-splash/)
+   - Drill 1 (sand required, but no bunker needed):
+     * Use a plastic, wooden or similar board
+     * Put a small pile of sand onto the board
+     * Erase the sand from the board with your bunker-swing
+       + Feel the club thump the board
+       + Turn body towards target during the finish
+       + See sand splashed out of the so-called "bunker"
+   - Drill 2 (sand required, but no bunker needed):
+     * As for drill 1, but:
+       + place a ball on the pile of sand
+       + swing as before
+     * [You may require a net or limited flight (foam or hollow) practice ball if you are doing this at home]
+   - Drill 3 (bunker *is* required):
+     * As for drill 2, but
+       + make a small pile of sand *in the bunker* 
+       + place a ball on the pile of sand
+       + swing as before
+
+1. [The Art of Simple Golf - Alex Fortey | How To Practice Perfect Bunker Shots Without Needing A Sand Trap | 2016](https://www.youtube.com/watch?v=X7JPVXGiPj0)
+   - Acceleration drill: hit the tee out from under the ball
+   - [You may require a net or limited flight (foam or hollow) practice ball if you are doing this at home]
+
+1. Purchase a *bunker board*
+   - https://pelzgolf.com/product/bunker-board
+   - [Dave Pelz Golf | Dave Pelz Bunker Board (video) | 2015](https://www.youtube.com/watch?v=L9P_d8o3ip4)
+   - [Dave Pelz Golf | Dave Pelz's Bunker Board (30 Seconds) (video) | 2015](https://www.youtube.com/watch?v=gFMpHkpAXMA)
+
+1. Purchase a *pocket bunker*
+   - https://www.pocketbunker.com/
+   - [Pocket Bunker | Pocket Bunker International Launch | 2016](https://www.youtube.com/watch?v=25pMnQ3dI1Q)
+   - [MrShortGame Golf | The at Home Golf Bunker Training Aid - Pocket Bunker (video) | 2021](https://www.youtube.com/watch?v=DOM3eXdphbY)
 

@@ -132,6 +132,25 @@
 
 1. [Golf Channel - Nathalie Filler | 'Butterfly' Bunker Shot Grip (video) | 2021](https://www.youtube.com/watch?v=1FuSXHJhZto) - high shot
 
+1. [16 authors | When hitting out of a greenside bunker, how would your technique change for longer vs. shorter shots? More swing? Different clubs? | 2022](https://backswing.com/roundup/greenside-bunker-swing/)
+   * [Distance control for green side bunkers (video)](https://backswing.com/roundup/greenside-bunker-swing/#83170)
+     + Video also directly available [here](https://www.youtube.com/watch?v=N5RTqgmgWe0)
+   * [3 Ways… 3 Levels](https://backswing.com/roundup/greenside-bunker-swing/#83168)
+     + Loft
+     + Length and/or Speed of Swing
+     + V-Shaped vs. U-Shaped... A V-shaped swing is where the player actively hinges the wrist abruptly and unhinges them just as quick near impact... With this technique the body should stay relatively still and passive
+   * [Use the right club and vary swing length](https://backswing.com/roundup/greenside-bunker-swing/#83147)
+     + The two most important keys to being a good bunker player is consistent entry point into the sand and consistent depth of cut. When you use more loft than you need you’ll need a bigger swing. The bigger your swing the harder it is to repeat these. Try a less lofted wedge and make the swing shorter.
+     + ...try to keep the length of the backswing short and the speed through the sand up
+     + ...the longer the ball is in the air–the more it will tend to fade
+   * [Distance control in Greenside Sand](https://backswing.com/roundup/greenside-bunker-swing/#83143)
+     + If the technique is sound, the ball will go exactly in the direction the sand goes. After that it’s all about making the sand go different distances. Ultimately the distance the sand goes is directly related to the amount of force applied to it. This may come from from many different applications such as swing size, varying follow through lengths, different clubs, etc.
+     + Get in that bunker without a ball and get really good at moving that sand a desired distance and direction.
+   * [Easiest Shot in Golf](https://backswing.com/roundup/greenside-bunker-swing/#83160)
+     + Open the club to the desired open face and face your top hand with palm up. The lower hand will be the same. This will keep the club face open thru the swing.
+   * [Better Bunker Play](https://backswing.com/roundup/greenside-bunker-swing/#83166)
+     + In order to execute a proper bunker shot, practice “flopping” the ball over a bunker to better understand how the sand wedge works. Proper shaft angle at address, grip pressure and “using the bounce” are key elements and can simplify the fear of this shot.
+
 
 ## More bunker info
 
@@ -212,6 +231,9 @@
    - Acceleration drill 2:
      * Hit the tee out from under the ball
      * [You may require a net or limited flight (foam or hollow) practice ball if you are doing this at home]
+   - Other bunker videos:
+     * [The Art of Simple Golf - Alex Fortey | Bunker Distance Control Made Easy | 2018](https://www.youtube.com/watch?v=gHnqd42GEp8)
+     * [The Art of Simple Golf - Alex Fortey | Playlist: How To Hit Bunker Shots (Easy, Simple And Best Results) | 2015-2021](https://www.youtube.com/playlist?list=PLuptRNMEA3RiaFiJd2zwl0yWlbbW2xrMW)
 
 1. Purchase a *Bunker Board*
    - https://pelzgolf.com/product/bunker-board

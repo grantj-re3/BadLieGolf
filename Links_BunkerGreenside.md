@@ -1,5 +1,35 @@
 # Greenside bunker shots
 
+1. [Golf Sidekick - Matt | How to Play out of Every Type of Bunker the Golf Sidekick Way | 2018](https://www.golfsidekick.com/knowledge/how-to-play-bunker-shots/)
+   - Open stance
+   - Open club face
+   - No forward shaft lean
+   - Loosen up them wrists!
+     * Hinge those wrists
+     * No stiff wrists
+   - Enter the sand one inch behind the ball and follow through
+     * One inch
+     * Accelerate / release
+     * Follow through
+   - Practice...
+     * [Lose your fear]
+     * Get down to a green side bunker facility and **draw a line behind the ball where you want to enter the sand**.
+     * Remember to hinge your wrists on the way back and again on the way down after follow through.
+     * Slap that sand with the sole of the club using your right hand and finish your swing.
+   - Avoid:
+     * Stiff wrists
+     * Using a chipping technique
+     * Hitting down into the sand with the leading edge 
+     * No follow through on the shot
+     * Entering the sand too far behind the ball
+     * Trying to clip the ball off the sand
+     * Simply never practicing bunker shots at all
+   - Related links:
+     * [Golf Sidekick - Matt | No BS: HOW TO GET OUT OF BUNKERS FIRST TIME!! (video) | 2019](https://www.youtube.com/watch?v=V8aFklVA6EA)
+     * [Golf Sidekick - Matt | How to Get Out of Bunkers First Time Every Time - Fairway, Green side, Plugged Lies, Fried Egg (video) | 2018](https://www.youtube.com/watch?v=4JJeiKxt7YQ)
+     * [Golf Sidekick - Matt | Bunker Shots for Beginners | 2017](https://www.golfsidekick.com/knowledge/bunker-shots-beginners/)
+
+
 1. [AlexElliottGolf | THE ONLY SUPER SIMPLE BUNKER SHOT LESSON YOU NEED! (video) | 2020](https://www.youtube.com/watch?v=LlRxGDd-lNQ) Setup: 0m40s-1m57s
    - [Stance wider than shoulder width]
    - The ball is a club-head-width inside your left/lead heel
@@ -108,6 +138,7 @@
 1. [Golf Digest - Butch Harmon | Use Butch Harmon's keys to simplify bunker shots | 2019](https://www.golfdigest.com/story/use-butch-harmons-keys-to-simplify-bunker-shots)
 1. [Scott Mahlberg | Taking Too Much Sand in the Bunker (video) | 2014](https://www.youtube.com/watch?v=xpMZo-fqV1E)
 1. [Gravity Golf | Sand shots made easy using gravity (video) | 2018](https://gravitygolf.com/sand-shots-made-easy-using-gravity-golf/)
+1. [WhyGolf | How to Master the Bunker Shot | Bunker Mate | 2022](https://whygolf.com/blogs/whysguyscorner/how-to-hit-a-bunker-shot)
 1. [Greg Norman | FOUR 'MUSTS' IN BUNKERS | c.2017](https://shark.com/the-shark/golf-tips/lesson-57/)
 1. Michael Hamilton Golf | The Bunker Series | 2018
    * [Bunker: Addressing the ball](https://michaelhamiltongolf.com/bunker-address/)
@@ -182,15 +213,41 @@
      * Hit the tee out from under the ball
      * [You may require a net or limited flight (foam or hollow) practice ball if you are doing this at home]
 
-1. Purchase a *bunker board*
+1. Purchase a *Bunker Board*
    - https://pelzgolf.com/product/bunker-board
    - [Dave Pelz Golf | Dave Pelz Bunker Board (video) | 2015](https://www.youtube.com/watch?v=L9P_d8o3ip4)
    - [Dave Pelz Golf | Dave Pelz's Bunker Board (30 Seconds) (video) | 2015](https://www.youtube.com/watch?v=gFMpHkpAXMA)
    - [The Hackers Paradise | Bunker Board forum discussion | 2015](https://www.thehackersparadise.com/forum/index.php?threads/bunker-board-from-dave-pelz-golf.78847/)
 
-1. Purchase a *pocket bunker*
+1. Purchase a *Pocket Bunker*
    - https://www.pocketbunker.com/
    - [Pocket Bunker | Pocket Bunker International Launch | 2016](https://www.youtube.com/watch?v=25pMnQ3dI1Q)
    - [MrShortGame Golf | The at Home Golf Bunker Training Aid - Pocket Bunker (video) | 2021](https://www.youtube.com/watch?v=DOM3eXdphbY)
    - [Mike Sullivan | Pocket Bunker Review (video) | 2022](https://www.youtube.com/watch?v=OndtaOwYevE)
+
+1. Purchase a *Bunker Mate*
+   - [WhyGolf | How to Master the Bunker Shot | Bunker Mate | 2022](https://whygolf.com/blogs/whysguyscorner/how-to-hit-a-bunker-shot)
+   - [WhyGolf | Bunker Mate | 2022](https://whygolf.com/collections/training-aids/products/bunker-mate?_atid=47hhbN0y0xyTOYqrosgkfqXKVzjNOd)
+   - [WhyGolf | Bunker Mate - Master Your Bunker Game (video) | 2022](https://www.youtube.com/watch?v=Lm2UqhVXHjg)
+
+
+## Chatting with pros
+
+1. [TaylorMade Golf | Bunker Technique with Tiger Woods & Jason Day | 2019](https://www.youtube.com/watch?v=Nd00f4nq_ks)
+1. [TaylorMade Golf | Tiger Woods, Rory McIlroy & Jason Day Short Game Session | 2020](https://www.youtube.com/watch?v=LsQgZzkpppw&t=12m35s)
+   - 12m35s - 18m06s
+   - Jason Day:
+     * Get hands low (squat)
+     * Take as little sand as possible
+     * Hit as close as I can to the ball
+     * Accelerate
+   - Tiger Woods:
+     * Hands "down and back"
+     * Release / throw with right hand
+
+## Trick / unexpected / pointless bunker shots
+
+1. [PhilsDVDdotcom | Phil Mickelson's Two Ball Trick Shot | 2009](https://www.youtube.com/watch?v=kxyVbaqRxys)
+1. [TaylorMade Golf | How Jon Rahm Hits a 4-IRON Out of a Bunker | 2020](https://www.youtube.com/watch?v=GW9dFmME8gs)
+1. [GolfMagic - Ben Smith | GOLF RULES: CAN YOU USE THE BACK OF YOUR DRIVER TO CHUNK IT OUT OF THE BUNKER? | 2021](https://www.golfmagic.com/news/golf-rules-can-you-use-back-your-driver-chunk-it-out-bunker)
 

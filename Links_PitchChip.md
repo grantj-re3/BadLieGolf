@@ -118,3 +118,27 @@
      * Where to place the ball? Do some practice chips with eyes closed.
      * Eyes must stay still until after contact
 
+1. [Golf University | Playlist: Pitching Lessons | c.2016-2022](https://www.youtube.com/playlist?list=PLk5pOCqyfd71GEJZUiNlwaTCot2AKW2FQ)
+   - [Golf University - Matt Cleverdon | How to Pitch a Golf Ball Lesson | 2016](https://www.youtube.com/watch?v=sAe6orSe-kc)
+     * Setup
+   - [Golf University - Matt Cleverdon | How to Improve Ball Strike Golf Lesson | 2016](https://www.youtube.com/watch?v=k-06IPD4SPQ)
+     * Drill: Pitch and rotate with right heel off the ground
+   - [Golf University - Matt Cleverdon | How To Spin Your Pitch Shots | 2016](https://www.youtube.com/watch?v=9aZhcChXsnk)
+     * Soft ball
+     * Clean grooves on club face
+     * Do *not* chop down in an attempt to create spin
+     * "Land a plane" - "come in shallow"; "back wheels land before front wheels"
+     * neutral shaft lean
+     * weight on front/left foot
+     * tilt handle up slightly so bottom of club is flat on the ground
+     * rotate body
+     * right hand pushes the club head under the ball
+     * shallow divot
+   - [Golf University - Matt Cleverdon | How To Control Your Pitching Ball Flights | 2016](https://www.youtube.com/watch?v=YgqjhYjCN64)
+     * Ball position forward with negative shaft lean
+     * Ball position back with forward/positive shaft lean
+   - [Golf University - Shane McHenry | How to Vary Your Pitching Ball Flights | 2022](https://www.youtube.com/watch?v=rNh3J5ts040)
+     * Club selection: 62° lob wedge or 52° gap wedge
+   - [Golf University - Shane McHenry | How to Hit a Flop Shot | 2022](https://www.youtube.com/watch?v=IjpuJgaSpmY)
+   - [Golf University - Justin Speirani | How To Play A Flop Shot | 2021](https://www.youtube.com/watch?v=ImcgCZykKRU)
+

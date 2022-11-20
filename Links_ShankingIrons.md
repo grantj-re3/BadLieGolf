@@ -21,20 +21,20 @@ off the toe of the club)!
       * Check the toe of the club points to the sky (or slightly closed?) during the backswing when shaft is parallel to ground
 
 1. [Kerrod Gray Golf | Simple Way To Fix The Shank | 3 Main Causes (video) | 2021](https://www.youtube.com/watch?v=SRVWhGQRmM8)
-   - *Check your setup*, 3m04s:
-     * Stand in a balanced position at address. Don't stand too close or too far from the ball.
-       + Stand up straight
-       + Club parallel with the ground
-       + Handle (i.e. left hand) is about a hand-and thumb distance from belt buckle
-       + Tilt from the hips until the club touches the ground
-       + Slightly flex the knees
-     * Close eyes and feel equal weight between toes and heel
-     * Dangle right arm (so it does not hold the club); you should be able to move the right hand onto the handle
-       without any manipulation (i.e. by just moving the hand towards the target; not towards or away from your body)
-   - Check your club face isn't open, 5m04s:
-     * Check the club face is *parallel to your spine angle* during the backswing when shaft is parallel to ground
-   - Build awareness of where the ball strikes the face, 6m16s:
-     * Drill: Place a second ball [or tee] outside the toe of the club face
+   1. *Check your setup*, 3m04s:
+      * Stand in a balanced position at address. Don't stand too close or too far from the ball.
+        + Stand up straight
+        + Club parallel with the ground
+        + Handle (i.e. left hand) is about a hand-and-thumb distance from belt buckle
+        + Tilt from the hips until the club touches the ground
+        + Slightly flex the knees
+      * Close eyes and feel equal weight between toes and heel
+      * Dangle right arm (so it does not hold the club); you should be able to move the right hand onto the handle
+        without any manipulation (i.e. by just moving the hand towards the target; not towards or away from your body)
+   1. Check your club face isn't open, 5m04s:
+      * Check the club face is *parallel to your spine angle* during the backswing when shaft is parallel to ground
+   1. Build awareness of where the ball strikes the face, 6m16s:
+      * Drill: Place a second ball [or tee] outside the toe of the club face
 
 1. [Larry Cheung | How to Stop Hitting Shots Off the Heel (video) | 2020](https://www.youtube.com/watch?v=jnLmjeb1Ax4)
    - Setup: Weight towards the heels of your feet

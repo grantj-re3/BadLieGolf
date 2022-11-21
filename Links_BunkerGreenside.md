@@ -180,7 +180,7 @@
 
 1. [Golf Digest - Butch Harmon | Use Butch Harmon's keys to simplify bunker shots | 2019](https://www.golfdigest.com/story/use-butch-harmons-keys-to-simplify-bunker-shots)
 1. [Scott Mahlberg | Taking Too Much Sand in the Bunker (video) | 2014](https://www.youtube.com/watch?v=xpMZo-fqV1E)
-1. [Kerrod Gray Golf | Do This to Get Out of The Bunker Every time! | 2022](https://www.youtube.com/watch?v=WRGY--4ITUM)
+1. [Kerrod Gray Golf - Kerrod Gray & Chris Ryan | Do This to Get Out of The Bunker Every time! (video) | 2022](https://www.youtube.com/watch?v=WRGY--4ITUM)
 1. [Gravity Golf | Sand shots made easy using gravity (video) | 2018](https://gravitygolf.com/sand-shots-made-easy-using-gravity-golf/)
 1. [WhyGolf | How to Master the Bunker Shot | Bunker Mate | 2022](https://whygolf.com/blogs/whysguyscorner/how-to-hit-a-bunker-shot)
 1. [Greg Norman | FOUR 'MUSTS' IN BUNKERS | c.2017](https://shark.com/the-shark/golf-tips/lesson-57/)
@@ -199,15 +199,17 @@
   * ball forward in stance
   * weight on front foot
   * shaft must be vertical at address (or even slightly tilted away from the target) when viewed from the front
-  * open the club face
-  * do not release wrists much at impact or follow through (i.e. keep the club face open)
+  * open the club face and keep the club face open during downswing, impact and follow through
+  * fold arms and hinge wrists during backswing; fold arms and re-hinge wrists during follow through
+    [but some say do not release wrists much at impact or follow through]
 - Since we are going to hit the sand and not the ball, this requires a lot of energy, hence:
-  * take a good length backswing
+  * take a good length, wristy backswing / follow through
+  * generate a lot of club head speed at impact with the sand
   * thump the sand
   * make first contact with the sand about 2" behind the ball
   * take a shallow divit (about 1" deep)
-  * continue with the follow through
-  * rotate your body and finish facing the target
+  * continue with a wristy follow through
+  * rotate your body and finish facing the target [but some say only rotate the body a little]
 - So we have plenty of loft to get the ball out of the bunker:
   * use a wide stance which brings the body and hands low
   * make a fairly steep backswing by:

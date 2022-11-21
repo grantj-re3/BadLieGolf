@@ -128,6 +128,30 @@
      * Swing ultra-aggressive (even more aggressive than soft sand because you are trying to **penetrate** the **hard sand**) / thump the sand
      * Other aspects as for soft sand [including big/full swing with follow through and body facing target]
 
+1. [Kerrod Gray Golf | HOW TO GET OUT OF THE BUNKER EVERY TIME (video) | 2020](https://www.youtube.com/watch?v=P1y-9Oy3LfY)
+   - Good setup; your left hand can touch your left knee
+   - Not much body turn needed
+   - Important: You need a lot of club head speed; very wristy; very "armsy"
+   - A lot of wrist hinge during the backswing; "3 sides of a square"; club head has travelled
+     a long way; club shaft is a short distance from body
+   - Wrists re-hinge during the follow through; "3 sides of a square"; club head finishes high
+
+1. [Kerrod Gray Golf - Kerrod Gray & Matt Ballard | This Bunker Tip Changed Everything (video) | 2022](https://www.youtube.com/watch?v=5PXSjBxZRMI)
+   - Start with loft; maintain loft; finish with loft
+   - At address the club face is pointing up; you can see this by placing a tee on the face
+   - "Mirror-mirror" wrist action drill:
+     * pretend the club face is a mirror
+     * when the club shaft is horizontal during the backswing the mirror should be (roughly) facing your head
+     * when the club shaft is horizontal during the follow through the mirror should be (roughly) facing your head
+   - Not a wide-swing, instead soft/bent elbows during backswing and follow through
+   - Accelerate with long follow through of club head (but not hands)
+   - Lead/left leg remains flexed during the backswing a well past impact
+   - Drill:
+     * Left arm horizontally in front of you
+     * Swing the club with the trail/right arm
+     * The right wrist should hinge (backswing) and re-hinge (follow through) finishing with a vertical shaft
+       while the left arm remains in the original position
+
 1. [Aussie Golf Pros | Hard Sand | 2019](https://www.youtube.com/watch?v=WY3zL-oiqCE)
 
 1. [Golf Channel - Nathalie Filler | 'Butterfly' Bunker Shot Grip (video) | 2021](https://www.youtube.com/watch?v=1FuSXHJhZto) - high shot
@@ -156,6 +180,7 @@
 
 1. [Golf Digest - Butch Harmon | Use Butch Harmon's keys to simplify bunker shots | 2019](https://www.golfdigest.com/story/use-butch-harmons-keys-to-simplify-bunker-shots)
 1. [Scott Mahlberg | Taking Too Much Sand in the Bunker (video) | 2014](https://www.youtube.com/watch?v=xpMZo-fqV1E)
+1. [Kerrod Gray Golf | Do This to Get Out of The Bunker Every time! | 2022](https://www.youtube.com/watch?v=WRGY--4ITUM)
 1. [Gravity Golf | Sand shots made easy using gravity (video) | 2018](https://gravitygolf.com/sand-shots-made-easy-using-gravity-golf/)
 1. [WhyGolf | How to Master the Bunker Shot | Bunker Mate | 2022](https://whygolf.com/blogs/whysguyscorner/how-to-hit-a-bunker-shot)
 1. [Greg Norman | FOUR 'MUSTS' IN BUNKERS | c.2017](https://shark.com/the-shark/golf-tips/lesson-57/)

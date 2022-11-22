@@ -262,6 +262,19 @@
      * [The Art of Simple Golf - Alex Fortey | Bunker Distance Control Made Easy | 2018](https://www.youtube.com/watch?v=gHnqd42GEp8)
      * [The Art of Simple Golf - Alex Fortey | Playlist: How To Hit Bunker Shots (Easy, Simple And Best Results) | 2015-2021](https://www.youtube.com/playlist?list=PLuptRNMEA3RiaFiJd2zwl0yWlbbW2xrMW)
 
+1. [GolfWRX forum | DIY Bunker Practice at home | 2014](https://forums.golfwrx.com/topic/1093346-diy-bunker-practice-at-home/)
+   - Scrap wood with sand placed on top. (Place the ball on a cup of sand off plywood.)
+   - Your child's sandbox/sandpit
+   - Dig a hole and fill it with a 50 pound bag of sand
+   - Tear a hole/strip in the top of the bag of sand and hit out of the bag
+     * Disadvantage: apparently, the end of the bag becomes a lip which gets in the way of your swing
+     * "The first few shots did feel authentic"
+   - Just hit flop shots off of a piece of carpet remnant, same principle.
+   - Emptying a bag of sand into a pan
+   - Aside: Bunker game idea:
+     * on every hole which has one, aim for one of the green side bunkers
+     * if you accidentally hit the green, you must putt off the green into one of the bunkers before completing the hole
+
 1. Purchase a *Bunker Board*
    - https://pelzgolf.com/product/bunker-board
    - [Dave Pelz Golf | Dave Pelz Bunker Board (video) | 2015](https://www.youtube.com/watch?v=L9P_d8o3ip4)
@@ -278,6 +291,15 @@
    - [WhyGolf | How to Master the Bunker Shot | Bunker Mate | 2022](https://whygolf.com/blogs/whysguyscorner/how-to-hit-a-bunker-shot)
    - [WhyGolf | Bunker Mate | 2022](https://whygolf.com/collections/training-aids/products/bunker-mate?_atid=47hhbN0y0xyTOYqrosgkfqXKVzjNOd)
    - [WhyGolf | Bunker Mate - Master Your Bunker Game (video) | 2022](https://www.youtube.com/watch?v=Lm2UqhVXHjg)
+
+1. Purchase a Mini Golf Bunker Hitting Mat
+   - [Indoor Outdoor Portable Heavy-duty Real Simulation Mini Golf Bunker Hitting Mat](https://m.alibaba.com/product/1600432457906/Indoor-Outdoor-Portable-Heavy-duty-Real.html)
+     * 36x19x7cm
+     * Available (November 2022)
+     * Brand Name:	OEM, ODM
+     * Model Number:	SER-SKS-A
+     * Net Weight:	2.9kg
+     * Minimum Order Quantity: 100pcs [...so you need to find them for sale at a retail store]
 
 
 ## Chatting with pros
@@ -296,7 +318,8 @@
 
 ## Trick / unexpected / pointless bunker shots
 
-1. [PhilsDVDdotcom | Phil Mickelson's Two Ball Trick Shot | 2009](https://www.youtube.com/watch?v=kxyVbaqRxys)
-1. [TaylorMade Golf | How Jon Rahm Hits a 4-IRON Out of a Bunker | 2020](https://www.youtube.com/watch?v=GW9dFmME8gs)
+1. [PhilsDVDdotcom | Phil Mickelson's Two Ball Trick Shot (video) | 2009](https://www.youtube.com/watch?v=kxyVbaqRxys)
+1. [TaylorMade Golf | How Jon Rahm Hits a 4-IRON Out of a Bunker (video) | 2020](https://www.youtube.com/watch?v=GW9dFmME8gs)
+1. [Golf.com - Nick Piastowski | This Seve Ballesteros trick shot video may make you miss him more | 2022](https://golf.com/news/this-seve-ballesteros-trick-shot-video-miss/); scroll to the bottom for video or view [here](https://twitter.com/flushingitgolf/status/1522936756391317505)
 1. [GolfMagic - Ben Smith | GOLF RULES: CAN YOU USE THE BACK OF YOUR DRIVER TO CHUNK IT OUT OF THE BUNKER? | 2021](https://www.golfmagic.com/news/golf-rules-can-you-use-back-your-driver-chunk-it-out-bunker)
 

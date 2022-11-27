@@ -47,7 +47,7 @@
       * Work your way back from the green and think about how to get to your favorite yardage and what angle you’d like to play the next shot from.
    1. Know the holes where a bogey is an acceptable score
    1. Know when to take your medicine
-   1. Improve your golf iq
+   1. Improve your golf IQ
    1. Score your rounds by factors such as your course strategy for golf
 
 
@@ -62,7 +62,7 @@
        + Consider favouring the one side of the fairway that gives you a little extra room for error
        + Finalise your target off the tee
        + Make the best possible swing you can towards this target
-       + **Excellent *Playing Stats* sheet**
+       + [This article shows an **excellent *Playing Stats* sheet**]
      * Course management – into the green
        + Frequently aim away from flags and towards the centre of the green
        + Distance control really does matter.
@@ -75,7 +75,7 @@
      * Course management – around the greens
        + If you have a simple chip inside 20-yards aim to hole it.
        + See links to chipping guide and chipping games.
-       + Practice with 8-iron, sand wedge and putter. on the course, choose the option you feel most confident with.
+       + Practice with 8-iron, sand wedge and putter. On the course, choose the option you feel most confident with.
      * Summary:
        + Be clear with your strategy, break down each hole and work backwards to come up with the best plan you can.
        + This approach doesn’t guarantee success, but it maximises your chances.
@@ -248,7 +248,7 @@
        + Choose to be optimistic regardless of what is happening
        + Think about how to self-correct those bad shots/putts
    - Final Thoughts
-     * focus on a small set of shots that you use the most each round
+     * Focus on a small set of shots that you use the most each round
      * Consider what held you back from breaking 80. My guess is that it was:
        + a faulty short game
        + getting too aggressive off the tee, or
@@ -276,5 +276,5 @@
       * You can use just about any club to hit a chip
       * Learning to hit a pinpoint chip can turn three strokes into two
 
-1. [Golf Sidekick - Matt | HOW TO BREAK 80 in Golf - Ultimate Guide for Golfers Scoring 80-86 - HOUR OF POWER (video) | 2021](https://www.youtube.com/watch?v=JSK0Dw4NNTU) - great video but you need over 1 hour to watch it (at x1)
+1. [Golf Sidekick - Matt | HOW TO BREAK 80 in Golf - Ultimate Guide for Golfers Scoring 80-86 - HOUR OF POWER (video) | 2021](https://www.youtube.com/watch?v=JSK0Dw4NNTU); great video but you need over 1 hour to watch it (at x1)
 

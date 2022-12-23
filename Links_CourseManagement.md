@@ -276,7 +276,7 @@
       * You can use just about any club to hit a chip
       * Learning to hit a pinpoint chip can turn three strokes into two
 
-1. [Golf Sidekick - Matt | Golf Strategy: How to Break 80 in Golf – My 666 Method | 2022](view-source:https://www.golfsidekick.com/break-80/how-to-break-80/)
+1. [Golf Sidekick - Matt | Golf Strategy: How to Break 80 in Golf – My 666 Method | 2022](https://www.golfsidekick.com/break-80/how-to-break-80/)
    - Build the skills to:
      1. Hit SIX greens in regulation.
      1. Get up and down SIX times to save par.

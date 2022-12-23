@@ -276,5 +276,41 @@
       * You can use just about any club to hit a chip
       * Learning to hit a pinpoint chip can turn three strokes into two
 
+1. [Golf Sidekick - Matt | Golf Strategy: How to Break 80 in Golf – My 666 Method | 2022](view-source:https://www.golfsidekick.com/break-80/how-to-break-80/)
+   - Build the skills to:
+     1. Hit SIX greens in regulation.
+     1. Get up and down SIX times to save par.
+     1. Lose just enough shots over par on the other SIX holes.
+   - The focus here is on the process of hitting smart shots and not on the outcome of the hole.
+   - Course Management
+     * Miss approach shots in the right places
+     * High Percentage Planning & Aiming
+       + Plan from the green backwards
+       + Aim to the fattest part
+     * Examples of aiming for a miss
+   - Know Thyself
+     * Know your distances as precisely as possible
+     * Have a go-to shot
+     * Keep detailed statistics of your rounds
+   - The Mental Game
+     * Discipline yourself to stick to the gameplan
+     * Put ego aside and play YOUR game
+     * Remove negative language and negative thinking
+     * Commitment to every single shot is vital
+     * Positive internal monologue
+     * Emotional control
+   - Next Stop: Skill Building
+     * Short game short game short game
+       + Chip like a BOSS
+       + Drain all your putts inside 5 feet and no three putts
+       + To drill it or die it in?
+       + Extremely Key Concept
+       + Get out of bunkers like a soldier
+   - Ultra Important Key Concepts
+     * Select the correct tees
+     * Play with better players
+     * Join a matchplay league
+   - FAQ
+
 1. [Golf Sidekick - Matt | HOW TO BREAK 80 in Golf - Ultimate Guide for Golfers Scoring 80-86 - HOUR OF POWER (video) | 2021](https://www.youtube.com/watch?v=JSK0Dw4NNTU); great video but you need over 1 hour to watch it (at x1)
 

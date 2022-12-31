@@ -30,10 +30,47 @@
 
 * Long putts - equal backswing/followthrough:
   [Aussie Golf Pros (Glen Haynes) | Myth No.4 - Accelerate Through Putts (video) | 2021](https://www.youtube.com/watch?v=wSWC3_xv8Vc)
-* Reading: [Aussie Golf Pros (Glen Haynes) | Complete Guide To Green Reading (video) | 2020](https://www.youtube.com/watch?v=06bT7LGEh90)
-* Reading: [Aussie Golf Pros (Glen Haynes) | Putting - Green Reading (Why You Miss On The Low Side - Amateur Miss) (video) | 2020](https://www.youtube.com/watch?v=W9C-8H2dIA4)
+* Reading greens: [Aussie Golf Pros (Glen Haynes) | Complete Guide To Green Reading (video) | 2020](https://www.youtube.com/watch?v=06bT7LGEh90)
+* Reading greens: [Aussie Golf Pros (Glen Haynes) | Putting - Green Reading (Why You Miss On The Low Side - Amateur Miss) (video) | 2020](https://www.youtube.com/watch?v=W9C-8H2dIA4)
 * Distance control drill/game: [Glen Haynes | Putting Game for Perfect Pace | 2020](https://www.youtube.com/watch?v=TrKgEFB2HEI)
 * Short putt drill/game: [The Best Putting Drill - Clockface (video) | 2019](https://www.youtube.com/watch?v=VGMUaBdZE84)
+
+
+## Golf Sidekick
+
+[Golf Sidekick & Michele Low | How I Changed My Putting Stroke Grip - My First Ever Putting Lesson Michele Low | 2020](https://www.youtube.com/watch?v=CoVrDVPM0wM)
+
+- Have a correct and consistent setup:
+  * Grip more along the *life line* which promotes:
+    + less wristy putts [hence more repeatable speed]
+    + elbows tucking into body [hence more repeatable line]
+  * Grip loosely; just enough to support the putter
+  * Stance about shoulder width
+  * Ball under the left eye which promotes striking the ball while putter head is moving up
+  * Eyes slightly inside the line of the ball-to-target line (if you stand too far from the
+    ball the putter head moves on more of an arc (viewed from above) during the stroke)
+  * Hands should be over the ball (viewed from the front). [In other words, you have a *tiny* forward shaft lean.]
+- Rock your shoulders; do not allow the body to move forward during the stoke
+- You need to consistently hit the middle of the club face
+  * Drill:
+    + Add a rubber band on each side of the (putter head) sweet spot
+    + When you practice putting, you will feel when you miss the sweet spot
+- You need good rhythm [i.e. sequence of movement] and tempo [i.e. speed]
+- Preshot routine the same (and so same duration) for 3 foot and 30 foot putts; the preshot routine starts after you have decided on your line
+- Use a ball with an alignment mark
+- For long putts: Consider feeling what speed to hit the putt in advance by:
+  * taking your setup (but away from the ball)
+  * looking at the hole
+  * practice the speed of your stroke [since for long putts, speed is more important than line]
+- *Matt's* takeaways from the lesson:
+  * Wider stance.
+  * Ball under my left eye.
+  * Hands over the ball (not ahead or behind).
+  * Line on the ball removes one variable - alignment.
+  * Longer backstroke and less jab.
+  * Let the putter head release.
+  * Consistent strike and preshot routine are key.
+  * Stand closer to the ball.
 
 
 ## MrShortGame - Matt Fisher

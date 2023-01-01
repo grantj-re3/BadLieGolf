@@ -308,6 +308,25 @@
      * Model Name:	Perfshot2021-1
      * Manufacturer:    shenxinlong
 
+1. Expired patents (similar ideas to some of the above)
+   - [Arthur Lovin | Sand trap practice device; US4535989A | 1984](https://patents.google.com/patent/US4535989)
+     * Tray large enough for golfer and ball (e.g. 6'x7')
+     * Foldable sheet above the tray and outside the tray (forming an apron to catch most of the sand)
+     * Sand placed above the sheet and within the tray
+     * Usage:
+       + "A golfer can then practice hitting balls out of the sand.
+       + The sand scattered by the golfer's swings falls on the apron, which can then be lifted
+         over the tray to return the sand to the tray's interior.
+       + When the apparatus is not in use, the sheet is simply folded up over the sand, thereby
+         protecting the sand from the elements."
+   - [William Andrew Young | Sand trap practice device; US5730660A | 1996](https://patents.google.com/patent/US5730660A/en)
+     * Trough (e.g. 6"x16") filled with sand
+     * Sides of trough show where club head should enter and exit the sand
+     * "The base of the practice device will not permit the club to dig into the sand to an
+       excessive amount such that the ball will come out of the bunker with every swing.
+     * The base also serves as a feedback mechanism indicating to the golfer when the swing
+       is improper and the club face is too deep in the sand if the club strikes the base."
+
 
 ## Chatting with pros
 
@@ -322,6 +341,12 @@
    - Tiger Woods:
      * Hands "down and back"
      * Release / throw with right hand
+
+
+## The Rules of Golf: Bunkers
+
+- [R&A | Rule 12: Bunkers | 2023](https://www.randa.org/rog/the-rules-of-golf/rule-12)
+
 
 ## Trick / unexpected / pointless bunker shots
 

@@ -118,6 +118,18 @@
      * Where to place the ball? Do some practice chips with eyes closed.
      * Eyes must stay still until after contact
 
+1. [Danny Maude | CHIP SHOTS Around the Green are MUCH EASIER with this Short Game Technique | 2021](https://www.youtube.com/watch?v=2SOAHQY-Fr0)
+   - This chip and run shot typically covers 70-80% of shots around the green
+   - Use a different club for more/less run
+   - Stand with feet together
+   - Weight on the front foot
+   - Ball towards the back foot
+   - Fairly vertical shaft (looking down the target line); toe of club touches the ground
+   - No forward shaft lean (so the bounce of the club is in play)
+   - Almost a pendulum action but with a confident little release/pop (not a long and careful motion)
+   - Very little shoulder/body rotation needed
+   - During the downswing/follow through, the butt of the handle moves forward and up (in an "L" shape)
+
 1. [Golf University | Playlist: Pitching Lessons | c.2016-2022](https://www.youtube.com/playlist?list=PLk5pOCqyfd71GEJZUiNlwaTCot2AKW2FQ)
    - [Golf University - Matt Cleverdon | How to Pitch a Golf Ball Lesson | 2016](https://www.youtube.com/watch?v=sAe6orSe-kc)
      * Setup

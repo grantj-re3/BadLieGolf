@@ -124,14 +124,14 @@
    - Stand with feet together
    - Weight on the front foot
    - Ball towards the back foot
-   - Fairly vertical shaft (looking down the target line); toe of club touches the ground
+   - Nearly vertical shaft (looking down the target line); heel of club head is slightly off the ground
    - [Me: Because the shaft is nearly vertical and the club head is closer to your feet,
      your hands will be lower down the shaft than normal. Hence *you will need to compensate* by:
      * holding the club lower on the grip (which will in turn reduce the effective shaft-length
-       and cause your chips to travel a little shorter), or
+       causing the ball to travel a little shorter), or
      * standing taller (particularly if the above suggestion means your hands are below the bottom of the grip), or
      * doing a little of both]
-   - [Me: If the toe of your club head touches the ground (and the heel is up) as suggested, you have
+   - [Me: If the heel of your club head is slightly off the ground (and the toe is lower) as suggested, you have
      changed the lie-angle and this will promote a shot which goes a little right of the target line
      (for a right handed player).  Hence *you will need to compensate* by aiming a little left of the
      target line.]

@@ -125,6 +125,11 @@
    - Weight on the front foot
    - Ball towards the back foot
    - Fairly vertical shaft (looking down the target line); toe of club touches the ground
+   - [Me: Because the shaft is nearly vertical and the club head is closer to your feet,
+     your hands will be lower down the shaft than normal. Hence you will need to compensate by:
+     * holding the club lower on the grip, or
+     * standing taller (particularly if the above suggestion means your hands are below the bottom of the grip), or
+     * doing a little of both]
    - No forward shaft lean (so the bounce of the club is in play)
    - Almost a pendulum action but with a confident little release/pop (not a long and careful motion)
    - Very little shoulder/body rotation needed

@@ -1,8 +1,6 @@
 # Pitching and chipping
 
-## Matt Fisher
-
-1. [MrShortGame | How To Pitch Like A PGA Tour Pro! 5 Tips for Golf Pitch Shots! [from 30 yards] (video) | 2019](https://www.youtube.com/watch?v=Ip7c71MwRPY)
+1. [MrShortGame - Matt Fisher | How To Pitch Like A PGA Tour Pro! 5 Tips for Golf Pitch Shots! [from 30 yards] (video) | 2019](https://www.youtube.com/watch?v=Ip7c71MwRPY)
 
    1. Keep ~70% of your weight on left/lead leg. Do not transfer weight
       from right leg to left leg.
@@ -17,7 +15,7 @@
    Also don't keep your head down after you strike the ball. Instead, rotate the hips/body **after** you strike the ball.
 
 
-1. [MrShortGame | Top 5 Tips for the 80 Yard Golf Shot (video) | 2020](https://www.youtube.com/watch?v=TH74wwBcv2Y)
+1. [MrShortGame - Matt Fisher | Top 5 Tips for the 80 Yard Golf Shot (video) | 2020](https://www.youtube.com/watch?v=TH74wwBcv2Y)
 
    1. Do not use your 80 yard full-shot club. Use 1 or 2 clubs more (less
       lofted) to give more margin for error.
@@ -39,7 +37,7 @@
       * Hands are *not* high near your shoulder.
 
 
-1. [MrShortGame | Top Golf Tips for the 60 Yard Shot! (video) | 2019](https://www.youtube.com/watch?v=uAew1SabZYs)
+1. [MrShortGame - Matt Fisher | Top Golf Tips for the 60 Yard Shot! (video) | 2019](https://www.youtube.com/watch?v=uAew1SabZYs)
 
    Similar to the 30 and 80 yard tips above.
 
@@ -49,7 +47,7 @@
    1. Open the club face a degree or two (so the bounce hits the ground before the club face hits the ball).
 
 
-1. [MrShortGame | 5 Worst Chipping Mistakes in Golf and How to Fix Them! (video) | 2022](https://www.youtube.com/watch?v=0SIUvql5RiE)
+1. [MrShortGame - Matt Fisher | 5 Worst Chipping Mistakes in Golf and How to Fix Them! (video) | 2022](https://www.youtube.com/watch?v=0SIUvql5RiE)
 
    Tips and fixes:
 
@@ -76,7 +74,7 @@
       * "Open up" the left shoulder
 
 
-1. [MrShortGame | How to Hit the Simple Golf Flop Shot! (video) | 2018](https://www.youtube.com/watch?v=VR-nMi4e9ko)
+1. [MrShortGame - Matt Fisher | How to Hit the Simple Golf Flop Shot! (video) | 2018](https://www.youtube.com/watch?v=VR-nMi4e9ko)
 
    Simple version of flop shot:
    - For situations where you are on a "tight" lie. Hence you can practice

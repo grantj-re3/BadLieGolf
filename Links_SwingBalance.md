@@ -66,7 +66,7 @@
        + Swing 2: Repeat as per swing 1
        + Swing 3: Repeat as per swing 1 but also step towards the ball during the backswing
          and hit the ball during the forwardswing
-     * [Although this drill targets left-right balance, I feel the *repetitive action helps avoid falling forward/backward balance*]
+     * [Although this drill targets left-right balance, I feel the *repetitive action helps avoid falling forward/backward*]
 
 1. [Scratch Golf Academy - Adam Bazalgette | Golf Swing Drills to Fix Balance (video) | 2022](https://www.youtube.com/watch?v=1oHC72vpI5w)
    - Drill 1: Easier one leg drill:
@@ -111,7 +111,7 @@
      * don't strain to swing back so far that you move your head or let your torso tilt toward the target
    - Achieve a balanced follow-through
 
-1. [GolfTEC Scramble - Andrew Dodson](https://scramble.golftec.com/blog/2016/07/golf-drills-for-balance-in-your-golf-swing/)
+1. [GolfTEC Scramble - Andrew Dodson | GolfTEC’s Andrew Dodson shows how to maintain balance in your golf swing | 2016](https://scramble.golftec.com/blog/2016/07/golf-drills-for-balance-in-your-golf-swing/)
    - Drill 1: Coin Drill:
      * Place a coin under the inside “pad” [ball] of your trail foot
      * The goal is to maintain pressure on the coin throughout the swing

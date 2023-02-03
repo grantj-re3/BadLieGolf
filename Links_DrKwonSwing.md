@@ -2,8 +2,17 @@
 
 Using biomechanics to create a flowing swing.
 
+1. [Be Better Golf | DR. KWON on BBG (playlist) | 2021-2022](https://www.youtube.com/playlist?list=PLK1sbUjAAin6M-ZGiShgaQEMH9ROC7VhA)
+
 1. [Be Better Golf | “Stage 1” If you play Golf DO THIS DRILL to start. Golf Scientist Dr Kwon on Be Better Golf (video) | 2021](https://www.youtube.com/watch?app=desktop&v=CvCMCeP2NXk)
-   - Step drill
+   - Stage 1: Two-step drill
+
+1. [Be Better Golf | "Stage 2" HIPS LIKE THIS in the GOLF SWING | Dr. Kwon on Be Better Golf (video) | 2021](https://www.youtube.com/watch?v=V0_MmhSdlM8)
+   - Stage 2: One-step drill
+
+1. [Be Better Golf | "30 Yards More is normal" Dr. KWON Stage 3 and ON COURSE routine for golf Be Better Golf (video) | 2021](https://www.youtube.com/watch?v=rV6ULF9VPg8)
+   - Stage 3: Zero-steps; on-course routine
+   - Count 1-2-3 to feel your tempo/rhythm
 
 1. [Be Better Golf |  “STAGE X” Swing drill with Dr Kwon. To fix takeaway and start your GOLF swing CORRECTLY (video) | 2021](https://www.youtube.com/watch?app=desktop&v=jczhLVCo8Fo)
    - Swing drill

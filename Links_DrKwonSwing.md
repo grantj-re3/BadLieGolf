@@ -4,6 +4,44 @@ Using biomechanics to create a flowing swing.
 
 1. [Be Better Golf | DR. KWON on BBG (playlist) | 2021-2022](https://www.youtube.com/playlist?list=PLK1sbUjAAin6M-ZGiShgaQEMH9ROC7VhA)
 
+1. [Be Better Golf | THE "PERFECT" DRILL | WORLD'S #1 GOLF scientist shows PROTOCOL that will IMPROVE EVERY GOLF SWING | 2021](https://www.youtube.com/watch?v=GJ1CENV84Cg)
+   - Discusses the background and reasons for the drills
+     * In his research, he used club head speed to assess how good a swing is from a mechanical perspective:
+       + as higher club head speeds are correlated with lower handicaps
+       + if you are not moving your body properly you will not be able to achieve a high club head speed
+       + hence by analysing the data he was able to determine the principles of a good golf swing (i.e. a
+         swing with high club head speed)
+     * The practice drills are intended to:
+       + promote these "good golf swing" principles
+       + be practical
+       + be easy
+       + be intuitive & instinctive
+   - Better swing pattern: "GRANDIOSE"
+     * "GRAND" - 5 swing principles
+       + Ground up
+       + Rhythmic
+       + Asynchronous i.e. "separation" meaning that "upper body turn" and "lower body shift" are not occurring at the same time
+       + Natural
+       + Dynamic
+     * "IO" - scientific foundation of the GRAND swing
+       + Impulse smart
+       + Orchestrated i.e. coordination and sequence
+     * "SE"
+       + Safe i.e. a mechanically robust swing should be safe by allowing the large muscles (in the lower body) generate speed while
+         the smaller muscles (in the upper body e.g. hands and arms) work on the small jobs
+       + Effective & efficient i.e. maximise outcome without effort
+   - An improved swing pattern should have a "pleasant side effect" of increasing the club head speed
+   - Stage 1, 2, 3 + X drills
+     * Initially practice the rhythm by using steps, then elimiate the steps while maintaining the rhythm
+     * Stage 1 & 2 drills have a "trigger motion" which is throwing the club towards the target first; this promotes a more active backswing
+     * The drills help to prevent you from rushing the down swing (with arms)
+     * The drills encourage you to move your body weight properly during the swing (i.e. good movement pattern/sequence)
+     * The drills are not compatible with an "arm-driven" swing
+     * For the step drills, you need to develop a body-driven backswing and a body-driven down swing
+     * Stage 1 is a two-step swing drill
+     * Stage 2 is a one-step swing drill
+     * Stage 3 is a zero-step swing
+
 1. [Be Better Golf | “Stage 1” If you play Golf DO THIS DRILL to start. Golf Scientist Dr Kwon on Be Better Golf (video) | 2021](https://www.youtube.com/watch?app=desktop&v=CvCMCeP2NXk)
    - Stage 1: Two-step drill
 

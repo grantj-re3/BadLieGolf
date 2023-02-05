@@ -43,13 +43,49 @@ Using biomechanics to create a flowing swing.
      * Stage 3 is a zero-step swing
 
 1. [Be Better Golf | “Stage 1” If you play Golf DO THIS DRILL to start. Golf Scientist Dr Kwon on Be Better Golf (video) | 2021](https://www.youtube.com/watch?app=desktop&v=CvCMCeP2NXk)
-   - Stage 1: Two-step drill
+   - **Stage 1: Two-step swing drill**
+   - Sequence (for right hander):
+     * Start with club in hand & feet together
+     * Trigger motion: Throw the club forward towards the target (i.e. the opposite direction compared to the backswing)
+     * When the club reaches its apex (when club head about shoulder height) take a small step right (with the right foot)
+     * During the backswing (when hands below shoulder height) take a small step left (with the left foot)
+     * Complete the backswing
+     * Re-center:
+       + This is not a big shift left; it is just moving back to the center after the shifting to the trail (right)
+         side during the backswing
+       + It is discussed and shown by others
+         [here](https://www.facebook.com/AthleticMotionGolf/videos/the-recentering-drill-%EF%B8%8F/3322056427825318/),
+         [here](https://www.youtube.com/watch?v=VVst65iNIVM) and
+         [here](https://www.youtube.com/watch?v=ApyvYvPc68Y)
+     * Start the down swing & complete the swing
+   - Also:
+     * The body should make its move *first* so that the step occurs naturally as a result
+     * The initial forward swing should be significant (i.e. not small) in order to encourage an *active* backswing
+     * Get the feeling that you are putting 99% effort into your backswing and only 80% effort into your down swing.
+     * The tempo of each of the 3 parts (forward swing, backswing and down swing) should be about the same duration (i.e. rhythmic).
+     * Each step should encourage the body to rotate.
+     * It seems Dr Kwon is advocating re-centering at the top of the backswing. However it seems to me that re-centering actually
+       starts earlier than this (i.e. when the player takes the second-step).
+     * On the down swing, don't open the chest too early.
+       + How? Drop the arms early, then turn?
+       + The weight must be on your lead (left) side when you rotate
 
 1. [Be Better Golf | "Stage 2" HIPS LIKE THIS in the GOLF SWING | Dr. Kwon on Be Better Golf (video) | 2021](https://www.youtube.com/watch?v=V0_MmhSdlM8)
-   - Stage 2: One-step drill
+   - **Stage 2: One-step swing drill**
+   - Similar to *Stage 1: Two-step swing drill* above:
+     * Start with a narrow stance [about half the width of a normal stance]
+     * Do not take the first step of the two-step drill (i.e. the trail/right foot does not step)
+     * However keep the same tempo/rhythm as the two-step drill
+   - Also:
+     * You can slow down near the top of your backswing (but not stop) to allow your upper body to shift/re-center
+       before starting the down swing
+     * On the down swing, don't open the pelvis (or chest) too early.
+     * Re-center with your entire trunk (do not lead with your butt or with your shoulders)
+     * Rhythm: Respect the inertia or the arms, club and whole body [don't fight that inertia]
+   - Interesting rotation demo and discussion: 13m00s - 17m58s
 
 1. [Be Better Golf | "30 Yards More is normal" Dr. KWON Stage 3 and ON COURSE routine for golf Be Better Golf (video) | 2021](https://www.youtube.com/watch?v=rV6ULF9VPg8)
-   - Stage 3: Zero-steps; on-course routine
+   - **Stage 3: Zero-step swing (i.e. on-course routine)**
    - Count 1-2-3 to feel your tempo/rhythm
 
 1. [Be Better Golf |  “STAGE X” Swing drill with Dr Kwon. To fix takeaway and start your GOLF swing CORRECTLY (video) | 2021](https://www.youtube.com/watch?app=desktop&v=jczhLVCo8Fo)
@@ -79,4 +115,7 @@ Using biomechanics to create a flowing swing.
    - What powers the swing? "**Left side of body** moving down and around" [together]
    - Build pattern first: Club stays out and away; body turns.
    - Then step drills
+
+1. [Athletic Motion Golf | The One Drill EVERY Golfer NEEDS To Do! | 2022](https://www.youtube.com/watch?v=47NZwk4z-hA)
+   - Similar to Dr Kwon stage 2 drill (but without any step)
 

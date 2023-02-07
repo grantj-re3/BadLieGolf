@@ -81,7 +81,7 @@ Using biomechanics to create a flowing swing.
        before starting the down swing
      * On the down swing, don't open the pelvis (or chest) too early.
      * Re-center with your entire trunk (do not lead with your butt or with your shoulders)
-     * Rhythm: Respect the inertia or the arms, club and whole body [don't fight that inertia]
+     * Rhythm: Respect the inertia of the arms, club and whole body [don't fight the inertia]
    - Interesting rotation demo and discussion: 13m00s - 17m58s
 
 1. [Be Better Golf | "30 Yards More is normal" Dr. KWON Stage 3 and ON COURSE routine for golf Be Better Golf (video) | 2021](https://www.youtube.com/watch?v=rV6ULF9VPg8)

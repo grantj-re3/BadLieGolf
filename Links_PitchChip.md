@@ -116,6 +116,19 @@
      * Where to place the ball? Do some practice chips with eyes closed.
      * Eyes must stay still until after contact
 
+1. [The Art of Simple Golf - Alex Fortey | Short game and Putting (playlist) | c.2015-2023](https://www.youtube.com/playlist?list=PLuptRNMEA3RhAKeW06X9S7ZtI5vgzJOKo)
+   - [The Art of Simple Golf - Alex Fortey | What Nobody Tells You About Chipping Onto The Green (video) | 2022](https://www.youtube.com/watch?v=twKks_sYyic)
+     * Step 1:
+       + Use the bounce of the club
+       + Raise your club so the heel is off the ground
+     * Step 2:
+       + Relax your arms at set up i.e. let them hang naturally with a slight elbow bend
+     * Step 3:
+       + Get the core through; do not stop your body rotation
+       + Simple feel when chipping is to rotate through
+     * Tip:
+       + Don't always chip with your sand wedge or lob wedge; consider a 9 iron
+
 1. [Danny Maude | CHIP SHOTS Around the Green are MUCH EASIER with this Short Game Technique | 2021](https://www.youtube.com/watch?v=2SOAHQY-Fr0)
    - This chip and run shot typically covers 70-80% of shots around the green
    - Use a different club for more/less run

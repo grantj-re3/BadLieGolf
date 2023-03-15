@@ -201,7 +201,7 @@
   * shaft must be vertical at address when viewed from the front;
     i.e. no forward shaft lean *[yes]*
   * open the club face and keep the club face open during downswing, impact and follow
-    through *[but for me, only open to 1 o'clock or 30°]*
+    through *[but for me at address, only open to 1 o'clock or 30°]*
   * fold arms and hinge wrists during backswing; fold arms and re-hinge wrists during
     follow through (which means the hands don't usually get very high) *[yes]*
 - Since we are going to hit the sand and not the ball, this requires a lot of energy, hence:
@@ -211,7 +211,7 @@
   * make first contact with the sand about 2" behind the ball *[yes]*
   * take a shallow divit (about 1" deep) *[yes]*
   * continue with a wristy follow through *[yes]*
-  * rotate your body and finish facing the target [but some say only rotate the body a little] *[yes]*
+  * rotate your body and finish facing the target *[yes]*
 - So we have plenty of loft to get the ball out of the bunker:
   * use a wide stance which brings the body and hands low *[but not too wide]*
   * make a fairly steep backswing by:

@@ -196,31 +196,37 @@
 ## Summary
 
 - We must "engage the bounce" of the sand wedge, hence:
-  * ball forward in stance
-  * weight on front foot
-  * shaft must be vertical at address (or even slightly tilted away from the target) when viewed from the front
-  * open the club face and keep the club face open during downswing, impact and follow through
-  * fold arms and hinge wrists during backswing; fold arms and re-hinge wrists during follow through
-    [but some say do not release wrists much at impact or follow through]
+  * ball forward in stance *[but for me, only slightly forward of center]*
+  * weight on front foot *[yes]*
+  * shaft must be vertical at address when viewed from the front;
+    i.e. no forward shaft lean *[yes]*
+  * open the club face and keep the club face open during downswing, impact and follow
+    through *[but for me, only open to 1 o'clock or 30°]*
+  * fold arms and hinge wrists during backswing; fold arms and re-hinge wrists during
+    follow through (which means the hands don't usually get very high) *[yes]*
 - Since we are going to hit the sand and not the ball, this requires a lot of energy, hence:
-  * take a good length, wristy backswing / follow through
-  * generate a lot of club head speed at impact with the sand
-  * thump the sand
-  * make first contact with the sand about 2" behind the ball
-  * take a shallow divit (about 1" deep)
-  * continue with a wristy follow through
-  * rotate your body and finish facing the target [but some say only rotate the body a little]
+  * take a good length, wristy backswing / follow through *[yes]*
+  * generate a lot of club head speed at impact with the sand *[yes]*
+  * thump the sand *[yes]*
+  * make first contact with the sand about 2" behind the ball *[yes]*
+  * take a shallow divit (about 1" deep) *[yes]*
+  * continue with a wristy follow through *[yes]*
+  * rotate your body and finish facing the target [but some say only rotate the body a little] *[yes]*
 - So we have plenty of loft to get the ball out of the bunker:
-  * use a wide stance which brings the body and hands low
+  * use a wide stance which brings the body and hands low *[but not too wide]*
   * make a fairly steep backswing by:
-    + breaking the wrists (so the arms and shaft form an "L" shape
-    + take the club up (not too far back behind your body)
+    + breaking the wrists (so the arms and shaft form an "L" shape *[yes]*
+    + take the club up (not too far back behind your body) *[probably]*
 - Also:
-  * dig/grind your feet into the sand (for stability)
+  * dig/grind your feet into the sand (for stability) *[yes]*
   * grip down the shaft for more control (and to compensate for
-    'low hands' due to digging feet into sand plus the wide stance)
-  * flare the front foot (to promote a follow through)
-- My tip:
+    'low hands' due to digging feet into sand plus the wide stance) *[I
+    don't do this because my sand wedge shaft is already very short]*
+  * flare the front foot (to promote a follow through) *[I don't do this]*
+- My tips:
+  * so that I have some level of precision regarding where the club head enters the sand,
+    I try to keep the legs and head very still during the backswing and downswing (however
+    I still want to turn to face the target during the follow through)
   * after observing the lie of the ball in the bunker, consider doing
     your practice swing *outside* the bunker to check where you first
     make contact with the ground

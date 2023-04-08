@@ -1,6 +1,7 @@
 # Golf courses in South Australia
 
-All or most of the links below have some golf courses missing from their database.
+- All or most of the links below have some golf courses missing from their databases.
+- Some links below list courses which have closed.
 
 
 ## Search
@@ -12,6 +13,7 @@ All or most of the links below have some golf courses missing from their databas
      * Type of golf e.g. Golf course, Public course, Driving range
    - Great for finding courses near a particular town or suburb
    - 116 "golf courses" found within "250km" of the Adelaide CBD "postcode 5000" (at the time of writing)
+   - Find Australian postcodes [here](https://auspost.com.au/postcode)
 
 1. [Golfer | Find a course](https://golfer.com.au/directory/golf-courses/2?menu=10)
    - Search by Australian state and region
@@ -25,7 +27,7 @@ All or most of the links below have some golf courses missing from their databas
 
 ## Lists
 
-1. [Golf Courses in South Australia](https://www.golfselect.com.au/armchair/courselist?state=SA)
+1. [GOLFSelect | Golf Courses in South Australia](https://www.golfselect.com.au/armchair/courselist?state=SA)
    - 135 golf courses listed in SA (at the time of writing)
 
 1. [Hole19 | Golf Courses in South Australia](https://www.hole19golf.com/golf-courses/south-australia)

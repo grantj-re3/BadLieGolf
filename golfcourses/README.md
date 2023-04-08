@@ -32,7 +32,9 @@
 
 1. [Hole19 | Golf Courses in South Australia](https://www.hole19golf.com/golf-courses/south-australia)
    - 112 golf courses listed in SA (at the time of writing) in the *All courses* section at the bottom
-   - The list does not appear to be sorted
+   - The list does not appear to be sorted and there are some duplicates
+   - [Here](hole19golf-golfcourses-sa-230408f.txt) is the same list which has been sorted alphabetically
+     and duplicates removed (now 95 golf courses)
 
 1. [GolfPass | South Australia Golf Guide](https://www.golfpass.com/travel-advisor/course-directory/8713-south-australia/)
    - 61 golf courses listed in SA (at the time of writing)

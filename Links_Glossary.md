@@ -1,6 +1,6 @@
 # Glossary of Golf Terms
 
-At seems that all glossaries of golfing terms are incomplete.
+All the glossaries of golfing terms (which I have found to date) seem to be incomplete.
 Also, some have different definitions for the same term! So here
 are a few glossaries to help navigate golfing terminology.
 

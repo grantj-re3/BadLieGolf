@@ -1,28 +1,38 @@
 # Ball Flight - fade/draw, slice/hook, etc.
 
+To understand some of the discussions below, you may need to be familiar to terms like draw, hook,
+fade, slice, open clubface and closed clubface. You can find the meaning of these terms in a
+glossary. I have links to several glossaries [here](Links_Glossary.md)
+
+
 ## Theory
 
-1. [WhysGuy | Ball Flight Laws | What Are They and Why Care? | 2022](https://whygolf.com/blogs/whysguyscorner/golf-ball-flight-laws)
+1. Golf Tips Magazine - Joseph Mayo
+   - Short and simple explanations about club-face and club-path direction
+   - [Ballflight 101 (video) | 2015](https://www.youtube.com/watch?v=wAIewIVTasI)
+   - [The Truth About Slicing! (video) | 2014](https://www.youtube.com/watch?v=xtyiRYHROfk)
 
-1. [Dave Tutelman | The Nine Ball Flights | 2006](http://www.tutelman.com/golf/ballflight/ballflight.php)
-   - [Image showing the 9 ball flights](http://www.tutelman.com/golf/ballflight/ballflight/ballflight2.gif)
-   - [Great image showing the 9 ball flights](https://southamptongolfclub.com/wp-content/uploads/Ball-Flight.jpg) (excerpt from
-     [Southampton Golf Club - Matthew | Hook Vs Slice In Golf – What’s The Difference And How To Fix Them | 2021](https://southamptongolfclub.com/hook-vs-slice-in-golf/))
+1. [DCGC Pro shop TV - Barry Austin | Basic ball flight laws (video) | 2019](https://www.youtube.com/watch?v=6DHx3ySiprg)
+   - Video of Ball Flight Laws using coloured lines on a table top to show club-face and club-path direction
 
 1. [John Dunigan | The Ball Flight Laws (video) | 2009](https://www.youtube.com/watch?v=Wnq6TiXw7wU)
    - Video of Ball Flight Laws using a club with a rod showing club-face direction and
      alignment-sticks showing path direction and target direction.
    - Uses the laws to discuss how to fix a slice, hook, etc.
 
+1. [Great image showing the 9 ball flights](https://southamptongolfclub.com/wp-content/uploads/Ball-Flight.jpg) (excerpt from
+   [Southampton Golf Club - Matthew | Hook Vs Slice In Golf – What’s The Difference And How To Fix Them | 2021](https://southamptongolfclub.com/hook-vs-slice-in-golf/))
+
+1. [WhysGuy | Ball Flight Laws | What Are They and Why Care? | 2022](https://whygolf.com/blogs/whysguyscorner/golf-ball-flight-laws)
+
+1. [Dave Tutelman | The Nine Ball Flights | 2006](http://www.tutelman.com/golf/ballflight/ballflight.php)
+   - [Image showing the 9 ball flights](http://www.tutelman.com/golf/ballflight/ballflight/ballflight2.gif)
+
 1. [Golf Evolution | Ball Flight Laws from Golf Evolution (video) | 2010](https://www.youtube.com/watch?v=eEHiY5iv5u4)
    - Short demonstration of how the ball starts in the direction of the club face (not the club path)
 
 
 ## Practice, tips, fixes and shaping shots
-
-1. [Ruthless Golf | Why Your Ball Isn't Going Where You Want | 2013](https://www.ruthlessgolf.com/2013/09/why-your-ball-isnt-going-where-you-want.html)
-   - [Golf Tips Magazine - Joseph Mayo | Ballflight 101 (video) | 2015](https://www.youtube.com/watch?v=wAIewIVTasI)
-   - [Golf Tips Magazine - Joseph Mayo | The Truth About Slicing! (video) | 2014](https://www.youtube.com/watch?v=xtyiRYHROfk)
 
 1. [Rick Shiels Golf | How to DRAW & FADE your golf driver (video) | 2021](https://www.youtube.com/watch?v=4CAMWevKkBU)
 

@@ -1,8 +1,8 @@
 # Ball Flight - fade/draw, slice/hook, etc.
 
 To understand some of the discussions below, you may need to be familiar to terms like draw, hook,
-fade, slice, open clubface and closed clubface. You can find the meaning of these terms in a
-glossary. I have links to several glossaries [here](Links_Glossary.md)
+fade, slice, pull, push, open clubface and closed clubface. You can find the meaning of these terms in a
+glossary. I have links to several glossaries [here](Links_Glossary.md).
 
 
 ## Theory

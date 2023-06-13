@@ -34,9 +34,42 @@ glossary. I have links to several glossaries [here](Links_Glossary.md).
 
 ## Practice, tips, fixes and shaping shots
 
-1. [Rick Shiels Golf | How to DRAW & FADE your golf driver (video) | 2021](https://www.youtube.com/watch?v=4CAMWevKkBU)
+1. [UAE Golf Online | Bernhard Langer explaining how to Draw and Fade the golf ball (video) | 2015](https://www.youtube.com/watch?v=A3sgWFivn7I)
+   - Short and simple explanation
+   - No need to change your swing or grip
 
-1. [GolfPass -Devan Bonebrake | Working The Ball – The Brakedown | 2021](https://www.golfpass.com/watch/the-golf-fix/working-the-ball-the-brakedown)
+1. [Padraig Harrington | HITTING DRAWS AND FADES | Paddy's Golf Tip #11 | Padraig Harrington (video) | 2021](https://www.youtube.com/watch?v=IEcJIrVtiM0)
+   - Practice tips: repetition and exaggeration
+   - Ball above/below your feet
+
+1. [Peter Finch Golf | HOW TO DRAW AND FADE THE GOLF BALL (video) | 2015](https://www.youtube.com/watch?v=kxsyrvMm3QA)
+   - Drill using a half swing
+
+1. [Rick Shiels Golf | How to DRAW & FADE your golf driver (video) | 2021](https://www.youtube.com/watch?v=4CAMWevKkBU)
+   - I like his description of the fade setup. I like the idea of teeing the ball lower.
+   - I like his description of the draw setup, *except* I feel that rotating the toe of club-face during the swing
+     potentially adds an extra parameter which might cause inconsistencies. I would prefer to keep the swing for a
+     draw pretty much the same as for a fade.
+
+1. [Rick Shiels Golf | THE COMPLETE FIX YOUR SLICE GUIDE (playlist) | 2018](https://www.youtube.com/playlist?list=PLKnkfgDBi62lTGPqEciFLZixkaagTOd39)
+   - 4-part series to fixing your slice
+   - [OVERVIEW](https://www.youtube.com/watch?v=xQq9ncQUrwk)
+   - [START WITH THE CLUBFACE](https://www.youtube.com/watch?v=k_t6NJHEqXM)
+   - [INSIDE PATH](https://www.youtube.com/watch?v=BBrku-AU1XE)
+   - [STRIKE LOCATION](https://www.youtube.com/watch?v=9LkMakfDlkA)
+     * I'm not sure if Equate Athlete's Foot Powder Spray (mentioned in this video) or Dr Scholl's Odor-X spray powder (suggested in other videos)
+       are available in Australia
+     * I have used Batiste **Original** Dry Shampoo 120g/200ml before and it worked well for me. It seems to be available from many chemists,
+       Woolworths, Coles, Big W, Kmart and probably other stores.
+     * *WARNING*: I understand you should remove the powder from *any part of your club* with a damp cloth after you've finished practicing and
+       before putting the clubs away (to potentially avoid permanent discolouration)
+
+
+### The links below are now only available via a (free) membership
+
+The links below were previously openly accessible.
+
+1. [GolfPass - Devan Bonebrake | Working The Ball – The Brakedown | 2021](https://www.golfpass.com/watch/the-golf-fix/working-the-ball-the-brakedown)
    - Draw, fade, low and high shots
 
 1. [GolfPass - Drake Dunaway | 6 golf tips to help golfers shape shots on command | 2022](https://www.golfpass.com/travel-advisor/articles/6-golf-tips-shape-shots-on-command)

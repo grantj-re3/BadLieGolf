@@ -1,6 +1,6 @@
 # Ball Flight - fade/draw, slice/hook, etc.
 
-To understand some of the discussions below, you may need to be familiar to terms like draw, hook,
+To understand some of the discussions below, you may need to be familiar with terms like draw, hook,
 fade, slice, pull, push, open clubface and closed clubface. You can find the meaning of these terms in a
 glossary. I have links to several glossaries [here](Links_Glossary.md).
 
@@ -52,7 +52,7 @@ glossary. I have links to several glossaries [here](Links_Glossary.md).
      draw pretty much the same as for a fade.
 
 1. [Rick Shiels Golf | THE COMPLETE FIX YOUR SLICE GUIDE (playlist) | 2018](https://www.youtube.com/playlist?list=PLKnkfgDBi62lTGPqEciFLZixkaagTOd39)
-   - 4-part series to fixing your slice
+   - 4-part series explaining how to fix your slice
    - [OVERVIEW](https://www.youtube.com/watch?v=xQq9ncQUrwk)
    - [START WITH THE CLUBFACE](https://www.youtube.com/watch?v=k_t6NJHEqXM)
    - [INSIDE PATH](https://www.youtube.com/watch?v=BBrku-AU1XE)

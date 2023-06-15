@@ -51,6 +51,9 @@ glossary. I have links to several glossaries [here](Links_Glossary.md).
      potentially adds an extra parameter which might cause inconsistencies. I would prefer to keep the swing for a
      draw pretty much the same as for a fade.
 
+1. [Rick Shiels Golf | You NEED to learn these golf shots! | 2021](https://www.youtube.com/watch?v=tGTLxIC66WE)
+   - Low, high, fade and draw
+
 1. [Rick Shiels Golf | THE COMPLETE FIX YOUR SLICE GUIDE (playlist) | 2018](https://www.youtube.com/playlist?list=PLKnkfgDBi62lTGPqEciFLZixkaagTOd39)
    - 4-part series explaining how to fix your slice
    - [OVERVIEW](https://www.youtube.com/watch?v=xQq9ncQUrwk)

@@ -175,6 +175,14 @@
    * [Better Bunker Play](https://backswing.com/roundup/greenside-bunker-swing/#83166)
      + In order to execute a proper bunker shot, practice “flopping” the ball over a bunker to better understand how the sand wedge works. Proper shaft angle at address, grip pressure and “using the bounce” are key elements and can simplify the fear of this shot.
 
+1. [James Ridyard | The EASIEST Bunker Shot Technique you have EVER seen!! Forget EVERYTHING you've been told.. | 2023](https://www.youtube.com/watch?v=LR0eUXsh8Bg)
+   - A bunker shot technique which is quite different from the one which most coaches teach
+   - I agree with not opening the club face too much
+   - I agree with not getting too low (i.e. stance not too wide)
+   - However for me, taking an ordinary swing makes it more difficult to get an accurate entry point into the sand.
+     I prefer minimal body and arm movement during the backswing and downswing and use a wristy swing (with a good
+     follow through and body turning towards the target).
+
 
 ## More bunker info
 

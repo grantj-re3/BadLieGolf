@@ -72,10 +72,18 @@
      little is sometimes adequate.
 
 1. [Danny Maude | Possibly the BEST Bunker Tip EVER! - How to play bunker shots from Hard or Soft Sand (video) | 2021](https://www.youtube.com/watch?v=RHlr_KyG26A)
-   - Club face naturally opens during backswing...
-   - Don't allow the club to close through the impact zone.
-   - Hit sand 2 inches behind the ball.
-   - One arm drills.
+   - General bunker feeling
+     * Club face naturally opens during backswing...
+     * Don't allow the club to close through the impact zone.
+     * Hit sand 2 inches behind the ball.
+     * One arm drills.
+   - 6m30s: **Firm/compacted/wet sand**
+     * During setup, move your upper body so that more weight is on the lead (left) foot;
+       this means the bottom of the swing arc will be a a couple of inches closer to the
+       target (left)
+     * This means the club will dig into the sand (and not bounce off the hard sand); i.e.
+       the club head will enter the sand a little steeper than for the normal sand shot
+     * Another video about hitting from hard sand [here at 5m18s](https://www.youtube.com/watch?v=AEV1IsuyynI&t=5m18s)
 
 1. [Danny Maude | EASIEST way to get out of ANY Bunker - NEW DISCOVERY! (video) | 2022](https://www.youtube.com/watch?v=nXnusNYElco)
    - Step #1: Assess where you contact the sand:
@@ -121,11 +129,11 @@
      * Swing vertical / thump the sand
      * Hit the sand 4-6" behind ball
      * Big/full swing [with follow through and body facing target]
-   - 5m05s: Hard/wet sand (15m / 50 foot shot):
-     * Face less open, ~30°
+   - 5m05s: **Hard/wet sand** (15m / 50 foot shot):
+     * **Face less open, ~30°**
      * Hit the sand closer to the ball; 2-4" behind ball
-     * Hit down to penetrate the wet, hard sand
-     * Swing ultra-aggressive (even more aggressive than soft sand because you are trying to **penetrate** the **hard sand**) / thump the sand
+     * **Hit down to penetrate the wet, hard sand**
+     * Swing ultra-aggressive (even more aggressive than soft sand because you are trying to penetrate the hard sand) / thump the sand
      * Other aspects as for soft sand [including big/full swing with follow through and body facing target]
 
 1. [Kerrod Gray Golf | HOW TO GET OUT OF THE BUNKER EVERY TIME (video) | 2020](https://www.youtube.com/watch?v=P1y-9Oy3LfY)
@@ -152,7 +160,37 @@
      * The right wrist should hinge (backswing) and re-hinge (follow through) finishing with a vertical shaft
        while the left arm remains in the original position
 
-1. [Aussie Golf Pros | Hard Sand | 2019](https://www.youtube.com/watch?v=WY3zL-oiqCE)
+1. [Aussie Golf Pros | How To Play Bunker Shots - The Basics (video) | 2020](https://www.youtube.com/watch?v=FDdixGbTVkQ)
+   - Long swing (close to full power) because the sand absorbs so much of the club's energy
+   - Ball in the center of a shoe-sized divot; not 1-2 inches because it is too difficult
+     to accurately hit that close
+   - Use the bounce of the sand wedge
+     * vertical shaft, i.e. no forward shaft lean
+     * open the club face
+   - Dig/wiggle your feet into the sand for a firmer stance
+
+1. [Aussie Golf Pros | Hard Sand (video) | 2019](https://www.youtube.com/watch?v=WY3zL-oiqCE)
+   - Practice these techniques for firm/compacted/wet sand
+   - Method 1:
+     * Do not open the club face (because we don't want the club to bounce off the hard sand)
+     * We want the leading edge of the club to dig into the sand and get under the ball
+       (because we still do not want to make contact with the ball)
+     * For more ball height, use a lob wedge if you have one; this also has the advantage
+       that the lob wedge does not have much bounce
+   - Method 2:
+     * Open the club face of the sand wedge for more loft
+     * Stand further from the golf ball
+     * Address the ball so the toe of the club is up in the air (so the heel enters the sand first);
+       this prevents the club from bouncing off the hard sand
+     * Hit down into the sand firmly
+     * This method adds height and spin
+
+1. [fitzygolfpro - Brian Fitzgerald | Bunker Shots Hard Sand (video) | 2018](https://www.youtube.com/watch?v=oUTV-0lYayU)
+   1. Square club face (to get the club face under the firm surface of the sand)
+   2. Shallow angle of attack (to prevent the club head from "bouncing off the hard sand" he says)
+   3. Quiet body (for better contact, more accurate entry point and small divot)
+   4. Shorter swing (for better contact)
+   5. Slower swing (for more control)
 
 1. [Golf Channel - Nathalie Filler | 'Butterfly' Bunker Shot Grip (video) | 2021](https://www.youtube.com/watch?v=1FuSXHJhZto) - high shot
 
@@ -175,7 +213,7 @@
    * [Better Bunker Play](https://backswing.com/roundup/greenside-bunker-swing/#83166)
      + In order to execute a proper bunker shot, practice “flopping” the ball over a bunker to better understand how the sand wedge works. Proper shaft angle at address, grip pressure and “using the bounce” are key elements and can simplify the fear of this shot.
 
-1. [James Ridyard | The EASIEST Bunker Shot Technique you have EVER seen!! Forget EVERYTHING you've been told.. | 2023](https://www.youtube.com/watch?v=LR0eUXsh8Bg)
+1. [James Ridyard | The EASIEST Bunker Shot Technique you have EVER seen!! Forget EVERYTHING you've been told (video) | 2023](https://www.youtube.com/watch?v=LR0eUXsh8Bg)
    - A bunker shot technique which is quite different from the one which most coaches teach
    - I agree with not opening the club face too much
    - I agree with not getting too low (i.e. stance not too wide)
@@ -203,6 +241,25 @@
 
 ## Summary
 
+For a flat lie in soft sand...
+
+### Very short version
+- open the club face (but for me, only to about 1 o'clock)
+- ball forward in stance (but for me, only slightly forward of center)
+- weight on front foot and keep it there (i.e. do not sway back during
+  the backswing and forward during the downswing)
+- no forward shaft lean
+- **address the ball with the club head hovering above the sand a few inches
+  behind the intended entry point into the sand** (see "My tips" below)
+- **take a good length, wristy backswing / wristy follow through**
+- **generate a lot of club head speed at impact with the sand**
+- make first contact with the sand about 2" behind the ball
+- **I try to keep the legs and head very quiet/still during the backswing
+  and downswing**
+- **rotate your body and finish facing the target**
+
+### Detailed version
+
 - We must "engage the bounce" of the sand wedge, hence:
   * ball forward in stance *[but for me, only slightly forward of center]*
   * weight on front foot *[yes]*
@@ -213,7 +270,7 @@
   * fold arms and hinge wrists during backswing; fold arms and re-hinge wrists during
     follow through (which means the hands don't usually get very high) *[yes]*
 - Since we are going to hit the sand and not the ball, this requires a lot of energy, hence:
-  * take a good length, wristy backswing / follow through *[yes]*
+  * take a good length, wristy backswing / wristy follow through *[yes]*
   * generate a lot of club head speed at impact with the sand *[yes]*
   * thump the sand *[yes]*
   * make first contact with the sand about 2" behind the ball *[yes]*
@@ -232,9 +289,21 @@
     don't do this because my sand wedge shaft is already very short]*
   * flare the front foot (to promote a follow through) *[I don't do this]*
 - My tips:
-  * so that I have some level of precision regarding where the club head enters the sand,
-    I try to keep the legs and head very still during the backswing and downswing (however
-    I still want to turn to face the target during the follow through)
+  * so that I have some level of precision regarding where the club head
+    enters the sand, I try to keep the legs and head very quiet/still
+    during the backswing and downswing (however I still want to turn to
+    face the target during the follow through)
+  * the rules of golf do not allow you to touch the sand with your club
+    head while addressing the ball.  When I hover my club head above the
+    sand at address, I like it to be a few inches behind the point where
+    the club head will enter the sand and on the same swing-arc that it
+    will be just before it enters the sand during the downswing. In other
+    words I have preset my body, shoulder and hand height at address. **Why
+    do I do this? I am trying to avoid** putting my club head immediately
+    behind the ball but an inch or so above the sand, implying that at
+    some point during my backswing and downswing I need to **get the club
+    head 2 inches lower than it was at address**. I feel this setup helps
+    me to get the club head to enter the sand at a more accurate point.
   * after observing the lie of the ball in the bunker, consider doing
     your practice swing *outside* the bunker to check where you first
     make contact with the ground
@@ -266,15 +335,15 @@
        + place a ball on the pile of sand
        + swing as before
 
-1. [The Art of Simple Golf - Alex Fortey | How To Practice Perfect Bunker Shots Without Needing A Sand Trap | 2016](https://www.youtube.com/watch?v=X7JPVXGiPj0)
+1. [The Art of Simple Golf - Alex Fortey | How To Practice Perfect Bunker Shots Without Needing A Sand Trap (video) | 2016](https://www.youtube.com/watch?v=X7JPVXGiPj0)
    - Acceleration drill 1:
      * Hit the tee
    - Acceleration drill 2:
      * Hit the tee out from under the ball
      * [You may require a net or limited flight (foam or hollow) practice ball if you are doing this at home]
    - Other bunker videos:
-     * [The Art of Simple Golf - Alex Fortey | Bunker Distance Control Made Easy | 2018](https://www.youtube.com/watch?v=gHnqd42GEp8)
-     * [The Art of Simple Golf - Alex Fortey | Playlist: How To Hit Bunker Shots (Easy, Simple And Best Results) | 2015-2021](https://www.youtube.com/playlist?list=PLuptRNMEA3RiaFiJd2zwl0yWlbbW2xrMW)
+     * [The Art of Simple Golf - Alex Fortey | Bunker Distance Control Made Easy (video) | 2018](https://www.youtube.com/watch?v=gHnqd42GEp8)
+     * [The Art of Simple Golf - Alex Fortey | How To Hit Bunker Shots (Easy, Simple And Best Results) (playlist) | 2015-2021](https://www.youtube.com/playlist?list=PLuptRNMEA3RiaFiJd2zwl0yWlbbW2xrMW)
 
 1. [GolfWRX forum | DIY Bunker Practice at home | 2014](https://forums.golfwrx.com/topic/1093346-diy-bunker-practice-at-home/)
    - Scrap wood with sand placed on top. (Place the ball on a cup of sand off plywood.)
@@ -297,7 +366,7 @@
 
 1. Purchase a *Pocket Bunker*
    - https://www.pocketbunker.com/
-   - [Pocket Bunker | Pocket Bunker International Launch | 2016](https://www.youtube.com/watch?v=25pMnQ3dI1Q)
+   - [Pocket Bunker | Pocket Bunker International Launch (video) | 2016](https://www.youtube.com/watch?v=25pMnQ3dI1Q)
    - [MrShortGame Golf | The at Home Golf Bunker Training Aid - Pocket Bunker (video) | 2021](https://www.youtube.com/watch?v=DOM3eXdphbY)
    - [Mike Sullivan | Pocket Bunker Review (video) | 2022](https://www.youtube.com/watch?v=OndtaOwYevE)
 
@@ -314,7 +383,7 @@
      * Model Number:	SER-SKS-A
      * Net Weight:	2.9kg
      * Minimum Order Quantity: 100pcs [...so you need to find them for sale at a retail store]
-   - [Make The Turn - Jeff Ritter| Golf Lessons: How To Hit Sand Shots | 2017](https://www.youtube.com/watch?v=dkS2mFmF8sA)
+   - [Make The Turn - Jeff Ritter| Golf Lessons: How To Hit Sand Shots (video) | 2017](https://www.youtube.com/watch?v=dkS2mFmF8sA)
      * The bunker brush mat comes built into the hitting platform as part of the GOLFZON system.
        https://www.golfzongolf.com/global/user/main/
    - [Amazon.com | Golf Practice Bunker Hitting mat | 2021](https://www.amazon.com/Golf-Practice-Bunker-Hitting-mat/dp/B09MJCW31W)
@@ -344,8 +413,8 @@
 
 ## Chatting with pros
 
-1. [TaylorMade Golf | Bunker Technique with Tiger Woods & Jason Day | 2019](https://www.youtube.com/watch?v=Nd00f4nq_ks)
-1. [TaylorMade Golf | Tiger Woods, Rory McIlroy & Jason Day Short Game Session | 2020](https://www.youtube.com/watch?v=LsQgZzkpppw&t=12m35s)
+1. [TaylorMade Golf | Bunker Technique with Tiger Woods & Jason Day (video) | 2019](https://www.youtube.com/watch?v=Nd00f4nq_ks)
+1. [TaylorMade Golf | Tiger Woods, Rory McIlroy & Jason Day Short Game Session (video) | 2020](https://www.youtube.com/watch?v=LsQgZzkpppw&t=12m35s)
    - 12m35s - 18m06s
    - Jason Day:
      * Get hands low (squat)

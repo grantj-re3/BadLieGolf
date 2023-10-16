@@ -106,7 +106,7 @@
 1. [Wedge Matrix; James Ridyard | My 5 Best Chipping Drills - These REALLY WORK! Guaranteed to Improve Your Chipping | 2023](https://www.youtube.com/watch?v=00jr5llAoCw)
 
 1. [Wedge Matrix; James Ridyard | Shorts (playlist)](https://www.youtube.com/playlist?list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A)
-   - [Short Game Power Sources | 2022](https://www.youtube.com/watch?v=xqCasjsOcqU&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=14
+   - [Short Game Power Sources | 2022](https://www.youtube.com/watch?v=xqCasjsOcqU&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=14)
    - [Chipping with the T-Rex! | 2022](https://www.youtube.com/watch?v=jlxOHn4de2I&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=19)
    - [The MAGIC Short Game Wrist Angle (it's not the one you think) | 2023](https://www.youtube.com/watch?v=7_e-qIyPDGY&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=21)
    - [Short Game Sync Drill | 2023](https://www.youtube.com/watch?v=AGRIyzhvvuw&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=24)

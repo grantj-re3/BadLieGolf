@@ -2,7 +2,7 @@
 
 ## Backspin on chip shots
 
-1. [James Ridyard | Can't Spin It? Learn how to Spin the Golf Ball around the Greens! | 2022](https://www.youtube.com/watch?v=wcj2cygHXUk)
+1. [Wedge Matrix; James Ridyard | Can't Spin It? Learn how to Spin the Golf Ball around the Greens! | 2022](https://www.youtube.com/watch?v=wcj2cygHXUk)
 
 1. [Van Phillips Golf | HOW TO SPIN YOUR CHIP SHOTS | 2017](https://www.youtube.com/watch?v=lU9FwNEj2-Y)
 

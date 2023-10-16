@@ -101,6 +101,20 @@
 
 ## Chip shots
 
+1. [Wedge Matrix; James Ridyard | The EASIEST Chipping Technique you have EVER seen!! Forget (mostly) EVERYTHING you've been told | 2022](https://www.youtube.com/watch?v=H-LVtlxpb0o)
+
+1. [Wedge Matrix; James Ridyard | My 5 Best Chipping Drills - These REALLY WORK! Guaranteed to Improve Your Chipping | 2023](https://www.youtube.com/watch?v=00jr5llAoCw)
+
+1. [Wedge Matrix; James Ridyard | Shorts (playlist)](https://www.youtube.com/playlist?list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A)
+   - [Short Game Power Sources | 2022](https://www.youtube.com/watch?v=xqCasjsOcqU&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=14
+   - [Chipping with the T-Rex! | 2022](https://www.youtube.com/watch?v=jlxOHn4de2I&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=19)
+   - [The MAGIC Short Game Wrist Angle (it's not the one you think) | 2023](https://www.youtube.com/watch?v=7_e-qIyPDGY&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=21)
+   - [Short Game Sync Drill | 2023](https://www.youtube.com/watch?v=AGRIyzhvvuw&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=24)
+   - [The Simple Cut Lob | 2023](https://www.youtube.com/watch?v=O1l1DMvI16Q&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=26)
+   - [Hit the T-Rex Softy | 2023](https://www.youtube.com/watch?v=72qVXFBc63c&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=27)
+   - [How to Read the Lie when Chipping | 2023](https://www.youtube.com/watch?v=2zeVD4_jTKE&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=37)
+
+
 1. [Danny Maude | CHIP SHOTS Around the Green are MUCH EASIER with this Short Game Technique | 2021](https://www.youtube.com/watch?v=2SOAHQY-Fr0)
    - This chip and run shot typically covers 70-80% of shots around the green
    - Use a different club for more/less run

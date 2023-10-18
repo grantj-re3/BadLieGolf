@@ -11,6 +11,12 @@ For discussions about compression, please note that as per the Golftripz referen
 - *Medium/mid* compression is 66 to 89
 - *High* compression is 90+ (i.e. *hard*)
 
+1. [MyGolfSpy | 2023 Golf Ball Test | 2023](https://mygolfspy.com/buyers-guides/golf-balls/2023-golf-ball-test/)
+   - I haven't summarised this latest one ☹️
+   - 46 golf ball models tested
+   - The balls tested include retail urethane offerings from major manufacturers and a mix of smaller direct-to-consumer (DTC)
+     and house brands. We also tested a small number of popular two-piece ionomer offerings.
+
 1. [MyGolfSpy | 2021 Golf Ball Test Results | 2021](https://mygolfspy.com/buyers-guides/golf-balls/best-golf-balls-2021/)
    - We tested 37 premium balls models
 
@@ -25,7 +31,7 @@ For discussions about compression, please note that as per the Golftripz referen
           If you’re looking for more spin on approach shots, it won’t.
      3. If It Spins Off The Driver, It Spins Off The Wedge
         * While ball manufacturers often differentiate between driver and iron/wedge spin, the reality is that, if a ball spins
-          of a driver, it’s going to spin off irons and full (and even partial) wedge shots, too.
+          [off] a driver, it’s going to spin off irons and full (and even partial) wedge shots, too.
      4. Forget About Launch Angle, Trajectory [i.e. launch angle, height and descent angle] is The Thing
      5. For Many, The Best Answers Are In The Middle
      6. Golf Ball Models Are Significantly Different

@@ -12,12 +12,22 @@ For discussions about compression, please note that as per the Golftripz referen
 - *High* compression is 90+ (i.e. *hard*)
 
 1. [MyGolfSpy | 2023 Golf Ball Test | 2023](https://mygolfspy.com/buyers-guides/golf-balls/2023-golf-ball-test/)
-   - I haven't summarised this latest one ☹️
+   - This test appears to contain excellent data, but does not seem to include any *dispersion* metric!
    - 46 golf ball models tested
    - The balls tested include retail urethane offerings from major manufacturers and a mix of smaller direct-to-consumer (DTC)
      and house brands. We also tested a small number of popular two-piece ionomer offerings.
+   - Key Findings
+     1. High Compression Golf Balls Can Work for Nearly Everyone
+     2. Some Golf Ball Models Evolve … Some Don’t
+     3. Performance Matters on All Shots
+     4. Don’t Overlook DTC [direct-to-consumer] and House Brands
+     5. There’s No Such Thing as a Bad Golf Ball
+     6. The Need for Speed
+     7. It’s Not Launch Angle, It’s Trajectory
+   - [Best Golf Balls of 2023: Expert Tested & Data-Backed](https://mygolfspy.com/buyers-guides/golf-balls/best-golf-balls/)
 
 1. [MyGolfSpy | 2021 Golf Ball Test Results | 2021](https://mygolfspy.com/buyers-guides/golf-balls/best-golf-balls-2021/)
+   - This test appears to contain excellent data, but does not seem to include any *dispersion* metric!
    - We tested 37 premium balls models
 
    - Key Findings
@@ -112,8 +122,6 @@ For discussions about compression, please note that as per the Golftripz referen
    - If it’s 2 or 3 yards difference [with the driver], it really doesn’t matter
    - You hit your wedges and putters to make the Tour
 
-1. [Titleist | Golf Ball Fitting: Find the Best Golf Ball | c.2020](https://www.titleist.com.my/fitting/golf-ball-fitting)
-
 1. hititlonger.com - Steve Pratt
    - [Golf Ball Myths BUSTED! (video) | 2020](https://www.youtube.com/watch?v=uLVE2UEEfFU)
      1. *Myth: Modern golf balls are faster/hotter than older golf balls.* No, many modern golf balls have less spin off
@@ -136,7 +144,7 @@ For discussions about compression, please note that as per the Golftripz referen
      * Top performer, £50/dozen budget: TaylorMade TP5x
      * Club golfer: Callaway ERC Soft
      * Mail-order: Snell MTB-X
-     * Two-piece/budget balls: Srixon AD333
+     * Two-piece/budget balls: Srixon AD333 (UK) & Q-Star (US)
      * Top performer: Titleist Pro V1x
    - 32m10s: What we learned
      * All X-style balls look good on spreadsheets; You should *only* pick a softer ball based on feel
@@ -145,12 +153,72 @@ For discussions about compression, please note that as per the Golftripz referen
      * Soft is slow, but slow isn't necessarily short
      * How much [money] is too much [to pay]
      * More [driver swing] speed equals bigger misses; if your swing speed is 115mph and you pick the wrong golf ball, you will see some big misses
+
 1. [Today's Golfer; Simon Daddow | ROBOT GOLF BALLS TEST | Find the best 2023 model for your game! | 2023](https://www.youtube.com/watch?v=dWCEJr0tKQ4)
+   - 28 golf ball models
    - Use the timestamps to pick which parts of this 54 minute video you want to watch
+   - [ROBOT TEST 2023: Which Golf Ball Is Best For My Game?](https://www.todays-golfer.com/equipment/best/golf-ball-robot-test-2023/)
 
 1. [Golftripz; Tamos Shanter | Golf Ball Compression Chart That Tells a Lot about Your Skills | 2021](https://www.golftripz.com/blog/golf-ball-compression-chart-that-tells-a-lot-about-your-skills/)
    - Low compression: 65 and less
    - Medium-compression: 66 to 89
    - High compression: 90+
    - Golf Ball Compression Chart: compression ratings of different golf ball brands and models
+
+1. [Titleist | Golf Ball Fitting: Find the Best Golf Ball | c.2020](https://www.titleist.com.my/fitting/golf-ball-fitting)
+   - Am I good enough to play Pro V1, Pro V1x or AVX?
+   - Which Titleist Golf Ball Model is Best for My Swing Speed?
+   - Should I be playing a Low Compression Golf Ball?
+
+1. Snell Golf
+   - [Recommended Golf Ball Fitting](https://www.snellgolf.com/pages/snell-golf-ball-fitting)
+   - [Key Technologies](https://www.snellgolf.com/pages/key-technologies)
+   - [Q & A with Dean](https://www.snellgolf.com/pages/q-a-with-dean)
+
+
+## Availability in Australia
+
+Most of the big-brand golf balls are available at any Australian golf store. However, some of the
+direct-to-consumer and other brands can be difficult to source. Below are some links which may
+help you source these.
+
+Some of these golf balls may be available via eBay.
+
+1. Some *Inesis* golf balls appear to be available from several stores in Australia including:
+   - Decathlon
+   - Bunnings
+   - Amazon
+
+1. Some *Kirkland* golf balls appear to be available from several stores in Australia including:
+   - Costco
+   - Sydney Golf Tech (SGT)
+   - Fairdinks
+   - Amazon
+
+1. [Maxfli](https://www.maxfli-shop.com/)
+   - I understand these golf balls may not be available outside the USA
+   - Their [delivery page](https://www.maxfli-shop.com/delivery/) says *some products cannot be shipped to international destinations*
+   - Fishpond sell some Maxfli golf balls, but none of the *Tour* models (at the time of writing)
+
+1. [Not Your Ball](https://www.nybgolf.com/)
+   - I cannot see if they ship to Australia or not
+
+1. [OnCore Golf](https://www.oncoregolf.com/)
+   - Their [FAQ page](https://www.oncoregolf.com/faqs/) shipping policy says they also ship outside the USA
+   - Also available via Amazon
+
+1. Some *PXG* golf balls appear to be available from several stores in Australia including:
+   - Arrow.Golf Australia
+   - Amazon
+
+1. [Seed Golf](https://seedgolf.com/)
+   - Their [shipping policy page](https://seedgolf.com/policies/shipping-policy) says:
+     * If ordering from outside of the EU, taxes and duties may be requested by your local government
+     * we have dedicated sites for the UK and US market and we are setting up shop in AUS shortly
+
+1. [Snell Golf Australia](https://snellgolfaustralia.com.au/)
+   - [Dean Snell](https://snellgolfaustralia.com.au/pages/about-dean-snell), the founder Snell Golf, co-designed a number of
+     golf balls for Titleist including the ProV1 and TaylorMade including the Penta (the first five layer ball).
+
+1. [Vice Golf](https://www.vicegolf.com/au/)
 

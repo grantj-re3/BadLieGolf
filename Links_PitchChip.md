@@ -1,5 +1,66 @@
 # Pitching and chipping
 
+## Wedges / general
+
+1. [GOLF.com - Nick Dimengo | Treat wedge shots like ‘a plane landing on a runway,’ says Top 100 Teacher | 2023](https://golf.com/instruction/short-game/treat-wedge-shots-plane-landing-runway/)
+   - [Andrew Rice | How To Strike Your Wedges Better | 2023](https://www.youtube.com/watch?v=4aCCt7IvwNQ)
+   - Rice demonstrates how he’s able to drag his wedge on the ground “for at least 8 inches” before striking the golf ball
+   - feet together
+   - the key that I find is **keeping the chest rotating**, which will enable the club to skim along the ground just like we want
+   - Don’t worry about contacting the ball before the ground
+   - sometimes, that club is going to scrape or glide the ground coming into the golf ball
+
+
+1. [Top Speed Golf - Clay Ballard | How To Hit Wedges | Close to Long Range | 2022](https://www.youtube.com/watch?v=io3AurKKbgI)
+   - This video includes:
+     * Front shoulder pivot
+     * Controlling the low-point
+   - [0m00s] Chipping
+     * Feet together
+     * Lower body is loose
+     * **Body rotates**
+       + Smooth-swing momentum
+     * Club face slightly open (hence less chunking and thinning; allows more forward shaft lean)
+     * Shaft leans forward
+     * Also:
+       + Sequence: Hands lead, body rotates, club glides
+       + The club head is coming into the ball level with the ground
+       + Clean contact
+       + Strike low on the club face + clean hit = Low spinning shot
+       + Friction makes the ball spin & check up
+   - [7m43s] Drill to control the low-point
+     * Rotation stops the club from digging
+     * Drill feelings
+       + Forward shaft lean
+       + Shoulder down (exaggerated)
+       + Rotate through the shot
+     * Put small pile of sand onto grass
+     * Swing with your wedge and remove the top of the sand pile;
+       the aim is to remove the least amount
+     * Repeat until all the sand is gone; hopefully this will be 4, 5 or more
+     * Do drill for 7 days; don't give up before 7 days
+   - [15m20s] 80 yard shot
+     * Hands in front
+     * Imitate the turn (which puts the hands in front) before you make a swing
+       + The swing is *not* square to the hips at impact
+       + Rotate through impact
+     * Don't "lift" the ball
+       + Don't try to flip the wrists at impact
+       + Instead try to "drive the nail" into the ground
+   - [21m38s] Full swings
+
+1. GolfWRX - Tom Stickney II | Short Game University: How to hit wedges | 2021
+   - [101](https://www.golfwrx.com/658680/short-game-university-how-to-hit-wedges-101/)
+     * The pivot: How you twist and turn
+     * The low point: Where the club hits the ground
+     * Your face to path: Controlling the ball
+   - [201](https://www.golfwrx.com/659723/short-game-university-how-to-hit-wedges-201/)
+     * Controlling your distance
+       + Adopt 3 swing stages
+       + Using the same tempo and swinging shorter to longer
+     * Controlling your trajectory
+
+
 ## Pitch shots
 
 1. [MrShortGame - Matt Fisher | How To Pitch Like A PGA Tour Pro! 5 Tips for Golf Pitch Shots! [from 30 yards] (video) | 2019](https://www.youtube.com/watch?v=Ip7c71MwRPY)

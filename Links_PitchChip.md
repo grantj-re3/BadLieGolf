@@ -3,7 +3,7 @@
 ## Wedges / general
 
 1. [GOLF.com - Nick Dimengo | Treat wedge shots like ‘a plane landing on a runway,’ says Top 100 Teacher | 2023](https://golf.com/instruction/short-game/treat-wedge-shots-plane-landing-runway/)
-   - [Andrew Rice | How To Strike Your Wedges Better | 2023](https://www.youtube.com/watch?v=4aCCt7IvwNQ)
+   - [Andrew Rice | How To Strike Your Wedges Better (video) | 2023](https://www.youtube.com/watch?v=4aCCt7IvwNQ)
    - Rice demonstrates how he’s able to drag his wedge on the ground “for at least 8 inches” before striking the golf ball
    - feet together
    - the key that I find is **keeping the chest rotating**, which will enable the club to skim along the ground just like we want
@@ -11,7 +11,7 @@
    - sometimes, that club is going to scrape or glide the ground coming into the golf ball
 
 
-1. [Top Speed Golf - Clay Ballard | How To Hit Wedges | Close to Long Range | 2022](https://www.youtube.com/watch?v=io3AurKKbgI)
+1. [Top Speed Golf - Clay Ballard | How To Hit Wedges | Close to Long Range (video) | 2022](https://www.youtube.com/watch?v=io3AurKKbgI)
    - This video includes:
      * Front shoulder pivot
      * Controlling the low-point
@@ -137,12 +137,12 @@
       * "Open up" the left shoulder
 
 
-1. [Golf University | Playlist: Pitching Lessons | c.2016-2022](https://www.youtube.com/playlist?list=PLk5pOCqyfd71GEJZUiNlwaTCot2AKW2FQ)
-   - [Golf University - Matt Cleverdon | How to Pitch a Golf Ball Lesson | 2016](https://www.youtube.com/watch?v=sAe6orSe-kc)
+1. [Golf University | Pitching Lessons (playlist) | c.2016-2022](https://www.youtube.com/playlist?list=PLk5pOCqyfd71GEJZUiNlwaTCot2AKW2FQ)
+   - [Golf University - Matt Cleverdon | How to Pitch a Golf Ball Lesson (video) | 2016](https://www.youtube.com/watch?v=sAe6orSe-kc)
      * Setup
-   - [Golf University - Matt Cleverdon | How to Improve Ball Strike Golf Lesson | 2016](https://www.youtube.com/watch?v=k-06IPD4SPQ)
+   - [Golf University - Matt Cleverdon | How to Improve Ball Strike Golf Lesson (video) | 2016](https://www.youtube.com/watch?v=k-06IPD4SPQ)
      * Drill: Pitch and rotate with right heel off the ground
-   - [Golf University - Matt Cleverdon | How To Spin Your Pitch Shots | 2016](https://www.youtube.com/watch?v=9aZhcChXsnk)
+   - [Golf University - Matt Cleverdon | How To Spin Your Pitch Shots (video) | 2016](https://www.youtube.com/watch?v=9aZhcChXsnk)
      * Soft ball
      * Clean grooves on club face
      * Do *not* chop down in an attempt to create spin
@@ -153,30 +153,30 @@
      * rotate body
      * right hand pushes the club head under the ball
      * shallow divot
-   - [Golf University - Matt Cleverdon | How To Control Your Pitching Ball Flights | 2016](https://www.youtube.com/watch?v=YgqjhYjCN64)
+   - [Golf University - Matt Cleverdon | How To Control Your Pitching Ball Flights (video) | 2016](https://www.youtube.com/watch?v=YgqjhYjCN64)
      * Ball position forward with negative shaft lean
      * Ball position back with forward/positive shaft lean
-   - [Golf University - Shane McHenry | How to Vary Your Pitching Ball Flights | 2022](https://www.youtube.com/watch?v=rNh3J5ts040)
+   - [Golf University - Shane McHenry | How to Vary Your Pitching Ball Flights (video) | 2022](https://www.youtube.com/watch?v=rNh3J5ts040)
      * Club selection: 62° lob wedge or 52° gap wedge
 
 
 ## Chip shots
 
-1. [Wedge Matrix; James Ridyard | The EASIEST Chipping Technique you have EVER seen!! Forget (mostly) EVERYTHING you've been told | 2022](https://www.youtube.com/watch?v=H-LVtlxpb0o)
+1. [Wedge Matrix; James Ridyard | The EASIEST Chipping Technique you have EVER seen!! Forget (mostly) EVERYTHING you've been told (video) | 2022](https://www.youtube.com/watch?v=H-LVtlxpb0o)
 
-1. [Wedge Matrix; James Ridyard | My 5 Best Chipping Drills - These REALLY WORK! Guaranteed to Improve Your Chipping | 2023](https://www.youtube.com/watch?v=00jr5llAoCw)
+1. [Wedge Matrix; James Ridyard | My 5 Best Chipping Drills - These REALLY WORK! Guaranteed to Improve Your Chipping (video) | 2023](https://www.youtube.com/watch?v=00jr5llAoCw)
 
 1. [Wedge Matrix; James Ridyard | Shorts (playlist)](https://www.youtube.com/playlist?list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A)
-   - [Short Game Power Sources | 2022](https://www.youtube.com/watch?v=xqCasjsOcqU&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=14)
-   - [Chipping with the T-Rex! | 2022](https://www.youtube.com/watch?v=jlxOHn4de2I&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=19)
-   - [The MAGIC Short Game Wrist Angle (it's not the one you think) | 2023](https://www.youtube.com/watch?v=7_e-qIyPDGY&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=21)
-   - [Short Game Sync Drill | 2023](https://www.youtube.com/watch?v=AGRIyzhvvuw&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=24)
-   - [The Simple Cut Lob | 2023](https://www.youtube.com/watch?v=O1l1DMvI16Q&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=26)
-   - [Hit the T-Rex Softy | 2023](https://www.youtube.com/watch?v=72qVXFBc63c&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=27)
-   - [How to Read the Lie when Chipping | 2023](https://www.youtube.com/watch?v=2zeVD4_jTKE&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=37)
+   - [Short Game Power Sources (video) | 2022](https://www.youtube.com/watch?v=xqCasjsOcqU&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=14)
+   - [Chipping with the T-Rex! (video) | 2022](https://www.youtube.com/watch?v=jlxOHn4de2I&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=19)
+   - [The MAGIC Short Game Wrist Angle (it's not the one you think) (video) | 2023](https://www.youtube.com/watch?v=7_e-qIyPDGY&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=21)
+   - [Short Game Sync Drill (video) | 2023](https://www.youtube.com/watch?v=AGRIyzhvvuw&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=24)
+   - [The Simple Cut Lob (video) | 2023](https://www.youtube.com/watch?v=O1l1DMvI16Q&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=26)
+   - [Hit the T-Rex Softy (video) | 2023](https://www.youtube.com/watch?v=72qVXFBc63c&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=27)
+   - [How to Read the Lie when Chipping (video) | 2023](https://www.youtube.com/watch?v=2zeVD4_jTKE&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=37)
 
 
-1. [Danny Maude | CHIP SHOTS Around the Green are MUCH EASIER with this Short Game Technique | 2021](https://www.youtube.com/watch?v=2SOAHQY-Fr0)
+1. [Danny Maude | CHIP SHOTS Around the Green are MUCH EASIER with this Short Game Technique (video) | 2021](https://www.youtube.com/watch?v=2SOAHQY-Fr0)
    - This chip and run shot typically covers 70-80% of shots around the green
    - Use a different club for more/less run
    - Stand with feet together
@@ -199,7 +199,7 @@
    - During the downswing/follow through, the butt of the handle moves forward and up (in an "L" shape)
 
 
-1. [Top Speed Golf - Clay Ballard | How To Hit Chip Shots Around The Green | Easy Technique | 2020](https://www.youtube.com/watch?v=ZMzVn7bkNqE)
+1. [Top Speed Golf - Clay Ballard | How To Hit Chip Shots Around The Green (video) | Easy Technique | 2020](https://www.youtube.com/watch?v=ZMzVn7bkNqE)
 
    - 1m11s: The putt chip (10 yards max)
      * Upright shaft; only toe brushes the ground
@@ -257,8 +257,8 @@
      * Feel the "bounce" of the club hit the ground. The leading edge of the
        club *must not* hit the ground.
 
-1. [Golf University - Shane McHenry | How to Hit a Flop Shot | 2022](https://www.youtube.com/watch?v=IjpuJgaSpmY)
+1. [Golf University - Shane McHenry | How to Hit a Flop Shot (video) | 2022](https://www.youtube.com/watch?v=IjpuJgaSpmY)
 
-1. [Golf University - Justin Speirani | How To Play A Flop Shot | 2021](https://www.youtube.com/watch?v=ImcgCZykKRU)
+1. [Golf University - Justin Speirani | How To Play A Flop Shot (video) | 2021](https://www.youtube.com/watch?v=ImcgCZykKRU)
 
 

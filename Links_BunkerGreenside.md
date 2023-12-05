@@ -137,7 +137,7 @@
      * Other aspects as for soft sand [including big/full swing with follow through and body facing target]
 
 1. [Kerrod Gray Golf | HOW TO GET OUT OF THE BUNKER EVERY TIME (video) | 2020](https://www.youtube.com/watch?v=P1y-9Oy3LfY)
-   - [Bunker Play Videos (playlist) | 2020-2022]https://www.youtube.com/playlist?list=PLwe4RNi5wcrpH2M4V7sug9MoyjsQpEApp)
+   - [Bunker Play Videos (playlist) | 2020-2022](https://www.youtube.com/playlist?list=PLwe4RNi5wcrpH2M4V7sug9MoyjsQpEApp)
    - Good setup; your left hand can touch your left knee
    - Not much body turn needed
    - Important: You need a lot of club head speed; very wristy; very "armsy"

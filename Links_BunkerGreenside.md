@@ -137,12 +137,28 @@
      * Other aspects as for soft sand [including big/full swing with follow through and body facing target]
 
 1. [Kerrod Gray Golf | HOW TO GET OUT OF THE BUNKER EVERY TIME (video) | 2020](https://www.youtube.com/watch?v=P1y-9Oy3LfY)
+   - [Bunker Play Videos (playlist) | 2020-2022]https://www.youtube.com/playlist?list=PLwe4RNi5wcrpH2M4V7sug9MoyjsQpEApp)
    - Good setup; your left hand can touch your left knee
    - Not much body turn needed
    - Important: You need a lot of club head speed; very wristy; very "armsy"
    - A lot of wrist hinge during the backswing; "3 sides of a square"; club head has travelled
      a long way; club shaft is a short distance from body
    - Wrists re-hinge during the follow through; "3 sides of a square"; club head finishes high
+
+1. [Kerrod Gray Golf | BUNKER SETUP MISTAKES AND HOW TO FIX THEM (video) | 2020](https://www.youtube.com/watch?v=hky9kzOEmEk)
+   - Mistake #1: Standing too tall and too narrow. Instead...
+     * Wide stance with lots of knee flex (and front toe flare)
+     * Gives lots of stability
+     * Improves the opportunity to hit the sand
+     * When combined with speed, it gives a good chance to get the ball out
+     * Once the swing is complete, the knees are still flexed and body is still low
+   - Mistake #2: Shift weight to the left side by moving hips left but upper body right. Instead...
+     * After taking a wide-low stance as above, slide your left hand down to your left kneecap
+     * This ensures shoulders are level and chest is over the ball
+     * Allows you to keep your weight on the left side
+   - Mistake #3: Handle forward at address (i.e. forward shaft lean). Instead...
+     * Handle should point towards the center of the body (e.g. belt buckle) at address
+     * Helps prevent the leading edge of the club head from digging into the sand
 
 1. [Kerrod Gray Golf - Kerrod Gray & Matt Ballard | This Bunker Tip Changed Everything (video) | 2022](https://www.youtube.com/watch?v=5PXSjBxZRMI)
    - Start with loft; maintain loft; finish with loft
@@ -185,6 +201,82 @@
      * Hit down into the sand firmly
      * This method adds height and spin
 
+1. [AliTaylorGolf | See Just How EASY Bunker Shots Can Be - (Out EVERY Time) (video) | 2022](https://www.youtube.com/watch?v=9ZXEA4Xkv8Y)
+   - Basic technique to get out of the bunker
+     * Use about 56-60° wedge with bounce
+     * Ball position further forward than usual
+     * Club
+       + Hold at the top of the grip
+       + **Square club face**
+     * Stance
+       + Stance square
+       + Wider stance than usual
+       + Flex the left knee
+       + Weight on the left foot
+     * **Take a fairly full swing**
+       + He has a good follow through
+       + He has a good body rotation
+     * Practice without a ball
+       + Take a fairly full swing
+       + Observe where your club enters the sand
+       + Observe how much sand you take
+       + Observe how far the sand gets tossed onto the green
+       + Get used to the feeling of hitting the sand
+   - How to control distance from the bunker? Try to keep most of the technique the same as above, but change...
+     * Length (speed) of the swing
+     * Loft of the club
+       + 60° wedge and/or open club face for shorter shots
+       + hands lower for more loft and shorter shots
+       + pitching wedge or 9 iron with open face (to create a bounce) for longer shots
+   - If the sand is firm/compact, keep the club head square
+
+1. [Martina Eberl Coaching | The Bunker Fundamentals - Basics for your Bunkerlove (video) | 2023](https://www.youtube.com/watch?v=Yj-d43P578E)
+   - [Short version](https://www.youtube.com/shorts/kWpPdWtEP-I)
+   - Three fundamentals
+     * Open up the club face
+     * Accelerate through the ball
+     * Hit the sand first
+   - Also
+     * The club should enter the sand along a line which is level with your left heel (and the ball will be left of that line)
+     * For *standard* bunker shots, she tries to always keep the same swing and *only change the loft* to hit a different distance
+     * Squat onto the left side
+     * She prefers the hands to be in the middle of the grip
+     * Do not sway left and right
+     * Do not rotate the club face; the face should finish open (pointing to the sky)
+
+1. [Golf with Aimee | Bunker Shot -Part 1 (video) | 2015](https://www.youtube.com/watch?v=HBMZzAOb0vE)
+   - [Bunker Shots with Aimee (playlist) | 2015-2022](https://www.youtube.com/playlist?list=PL0uaI4r3925RaW6lsUgcyb_SJTSBB8vV5)
+   - Lesson for beginner golfers...
+   - Ball position is inside the left heel (or a ball or two inside of that)
+   - Stance
+     + Stance is open to the target line by 20-30°
+     + Stance 2-3" wider than for your 7-8 iron
+     + Posture low
+   - Club
+     + Open the club face to about 1:30 to 2 o'clock
+     + Hands are in the middle (i.e. neutral/vertical shaft)
+   - Swing
+     + Hit the sand first
+     + **The length of sand taken should be about the length of a dollar bill; test with practice**
+     + **Enter the sand 1-2" behind the golf ball; test with practice**
+     + **You must maintain 60% of your weight on your left foot throughout the whole backswing and forward swing**
+       - **you must not shift your weight to the right during your backswing**
+       - drill: practice with a tennis ball under your right heel
+
+1. [Golf with Aimee | Green Side Bunker (video) | 2015](https://www.youtube.com/watch?v=0k1KuD00zjw)
+   - [Bunker Shots with Aimee (playlist) | 2015-2022](https://www.youtube.com/playlist?list=PL0uaI4r3925RaW6lsUgcyb_SJTSBB8vV5)
+   - Lesson for intermediate level golfers...
+   - Swing
+     + Take a full backswing at all times
+     + Control your distance with the length of your finish
+     + Hit down into the sand **with body rotation**
+   - Practice this by:
+     + finding an uphill lie in a greenside bunker
+     + plugging the ball
+     + to get the ball out you will need to
+       * take a full swing
+       * hit down into the sand (with body rotation)
+
 1. [fitzygolfpro - Brian Fitzgerald | Bunker Shots Hard Sand (video) | 2018](https://www.youtube.com/watch?v=oUTV-0lYayU)
    1. Square club face (to get the club face under the firm surface of the sand)
    2. Shallow angle of attack (to prevent the club head from "bouncing off the hard sand" he says)
@@ -221,6 +313,24 @@
      I prefer minimal body and arm movement during the backswing and downswing and use a wristy swing (with a good
      follow through and body turning towards the target).
 
+1. [Coach Lockey with James Ridyard | Worlds BEST SHORT GAME Coach Reveals His Biggest Bunker Secrets (video) | 2023](https://www.youtube.com/watch?v=ZpRhOGoz4ow)
+   - [0m59s] Technique #1: How to hit from a bunker with wet/compacted sand (Simple but non-traditional technique)
+     * Stand tall
+     * Aim a little left
+     * Open the face a little
+     * Toe down
+     * Wide swing arc; very little wrist action
+     * Doesn't work well in a deep bunker
+   - [4m19s] Technique #2: How to hit from a bunker with wet/compacted sand (Simple more traditional technique)
+     * Handle low
+     * Face open
+     * Strike the ball close to the heel (hence risky if you already hit close to the heel)
+     * Narrow/steep swing
+     * Works well in a deep bunker
+   - [5m14] C-shape wedge bounce
+     * Highest bounce is in the center
+     * Lower bounce near the heel
+     * Even lower bounce near the toe
 
 ## More bunker info
 

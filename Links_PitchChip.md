@@ -26,7 +26,7 @@
        + Sequence: Hands lead, body rotates, club glides
        + The club head is coming into the ball level with the ground
        + Clean contact
-       + Strike low on the club face + clean hit = Low spinning shot
+       + [Strike low on the club face] + clean hit = Low spinning shot
        + Friction makes the ball spin & check up
    - [7m43s] Drill to control the low-point
      * Rotation stops the club from digging
@@ -59,6 +59,52 @@
        + Adopt 3 swing stages
        + Using the same tempo and swinging shorter to longer
      * Controlling your trajectory
+
+1. [The Golf Shop Online - Mark Crossfield | How Should Your Wedge Sit on the Ground - You'll be Surprised - It's not What you think! | 2023](https://www.youtube.com/watch?v=P7c_PutIb54)
+   - For a *full shot*, avoid having the toe up (above the grass) as this will promote a pull
+   - Instead, stand taller and *feel like* the toe is slightly in [the ground] and that often
+     gets his students to have the bottom of the club head sitting level with the ground
+
+1. [Bryan Bros Golf | Dial in Your Wedges with Wesley Bryan (#1 Wedge Player on PGA Tour in '18) (video) | 2020](https://www.youtube.com/watch?v=gKTZH8ZaIdg)
+   - Wesley [Wedge-ly] Bryan was the number 1 Wedge Player on PGA Tour in 2018
+   - This video is a demo plus his thoughts
+   - Distance
+     * He doesn't use the *clock* system to determine distance
+     * Takes most swings back to arms parallel/horizontal (even from 60 yards)
+       then has a *lazy 70% swing*
+     * He has a good feeling for 72-75 yards, then makes an adjustment for slightly longer/shorter distances
+     * Practices from 70, 75, 80, 85, 90 yards, so has those distances memorised
+   - Swing thought: Solid contact
+   - In the bag: 58°, 54° and 50°
+     * He does not carry a 60°.
+     * He just opens up the 58° if he needs to mimic a 60°.
+     * He would rather have wedges which go a bit further.
+     * 58° [carries?] 100 yards max with a smooth swing (i.e. without *hammering* it).
+     * 54° [carries?] 116/117 yards.
+     * 50° [carries?] 128/130 yards.
+   - Club selection process:
+     * 87 yards into a stiff breeze
+     * up about 2 yards; hence 89 yards
+     * wind will cost 8-10 yards; hence mid-90s
+     * a full lob wedge (58°) will land at the correct yardage, then spin too far back
+     * hence he will *club up* to his 115 yard club (54°) then take off a little from
+       his swing (based on experience)
+       + into the wind, *clubbing up* is always a better option
+     * [8m07s] view from face on:
+       + ball back in stance
+       + weight is 60% on front foot
+       + no weight shift to the back foot during the backswing
+     * prefers a neutral ball flight; not a draw [or fade]
+     * no tension in the swing
+     * he is confident with a wedge in his hand
+       + he is almost always trying to hole-out
+       + he is not aiming at the middle of the green [for safety]
+     * [11m32s] view from the green
+       + these look great
+     * [13m26s] the keys to nipping it [from 15 yards; then 40 yards]
+       + good grooves on the wedge club face
+       + sliding the club under the ball
+       + low hands; near your pocket
 
 
 ## Pitch shots
@@ -137,6 +183,16 @@
       * "Open up" the left shoulder
 
 
+1. [Coach Lockey | If You Don't Use This Simple Pitching Technique, You're Crazy! (Golf Tips) | 2023](https://www.youtube.com/watch?v=9Z9BcXKfI8g)
+   - Pitching basics
+     * Narrower stance width
+     * Feet alignment depending on shot patterns
+     * Weight slightly on front foot
+   - Ball trajectory determined by ball position
+     * Stock shot: ball aligned with sternum
+     * High shot: one ball forward of the *stock* position; swing a little faster for the same distance
+     * Low shot: one ball behind the *stock* position; swing a little slower for the same distance
+
 1. [Golf University | Pitching Lessons (playlist) | c.2016-2022](https://www.youtube.com/playlist?list=PLk5pOCqyfd71GEJZUiNlwaTCot2AKW2FQ)
    - [Golf University - Matt Cleverdon | How to Pitch a Golf Ball Lesson (video) | 2016](https://www.youtube.com/watch?v=sAe6orSe-kc)
      * Setup
@@ -197,6 +253,12 @@
    - Almost a pendulum action but with a confident little release/pop (not a long and careful motion)
    - Very little shoulder/body rotation needed
    - During the downswing/follow through, the butt of the handle moves forward and up (in an "L" shape)
+
+
+1. [Martina Eberl Coach | The "three basics" of chipping | 2023](https://www.youtube.com/watch?v=KMNT-sFJrE0)
+   - Think of the landing point to define the ball position
+   - Sternum [and nose] left of the ball to get a clean contact
+   - Left hand stays ahead through the ball
 
 
 1. [Top Speed Golf - Clay Ballard | How To Hit Chip Shots Around The Green (video) | Easy Technique | 2020](https://www.youtube.com/watch?v=ZMzVn7bkNqE)

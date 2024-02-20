@@ -31,6 +31,13 @@
    - Tip 3: Slow the hands down during the down swing
 
 1. [Golf with Coach Carolin: Carolin Pinegger | Top of the Backswing...What NOW? Let's optimize this KEY SWING MOVE! (video) | 2024](https://www.youtube.com/watch?v=TZtd6JZuxpw)
+   - How to shallow the angle of the club (i.e. make more horizontal) at the start of the downswing
+     * Each of these *feels* promote an in-to-out swing path (i.e. baby draw)
+     * [A shallow angle at impact allows a divot to be long but not deep, hence potentially more forgiving.]
+   - Feel #1: Feel the right shoulder drop (i.e. move away from your right ear)
+   - Feel #2: Feel that your right elbow comes down into your right pocket
+   - Feel #3: Feel that you remain with your back to the target at the start of the down swing
+     (i.e. while your hands start to *drop into the slot*)
 
 1. [AlexElliottGolf | 5 Minutes of This is Better Than Hitting 1000s of Balls at the Range! (video) | 2024](https://www.youtube.com/watch?v=H7hqJz5M7wE)
 

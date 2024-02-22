@@ -73,6 +73,103 @@
   * Stand closer to the ball.
 
 
+## The Golf Sensei - Ed Schwent
+
+1. [This Short Game Clinic Will Change Your Life | 2023](https://www.youtube.com/watch?v=8GFfzVj8_H4)
+   - This is a very long video, 1h38m, so I've shown 4 blocks of time in the notes below.
+   - *0-25m*
+   - **Practice 15 yard & 30 yard shots**
+     * Use a lofted club and be more aggressive (from 15 & 30 yards)
+     * Use forward shaft lean
+     * Clock face concept (e.g. 9 o'clock to 3 o'clock) is only a guide; don't think too much about where to stop on backswing
+     * Backswing and follow through distance should be fairly symmetrical
+     * Don't try to force backspin (or lack of backspin)
+   - *25-50m*
+   - Chip: Runs more than carry
+     * Back in stance
+     * Hands forward
+     * Low point in front of the ball (like a full swing iron shot)
+   - Pitch: Carry more than run
+     * Low point under the ball
+   - Chipping/pitching drill:
+     * Put an alignment stick a few inches behind the ball
+     * Brush the grass, but...
+     * Make sure you don't hit the stick on the down swing
+   - Putting:
+     * **Most players under-read the break**
+     * **For a severe downhill putt, walk around to look at it from from an uphill view.** (For an uphill putt, there is no need to look at the downhill view.)
+     * Putting is an arc-motion
+     * Training aid: A putting arc, e.g. from https://theputtingarc.com
+     * Pendulum motion: This motion might be a little shorter on the follow through when you strike a ball
+       (compared to your practice swing when you don't strike the ball)
+     * For most players:
+       + Alignment is better if your eyes are directly over the target line
+       + A little inside the line is ok
+       + Outside the line does not work
+       + Drill: On a straight putt, put a 2m string on stakes directly over the line, then check your eyes are over the ball
+       + Use the alignment line on your ball
+       + **Choose an intermediate target a foot or two in front of your ball (for alignment)**
+   - *50-1h15m*
+   - Putting distance control:
+     * **Practice: putt while looking at the hole**
+     * **Pre-putt routine: do a practice putt motion while looking at the hole**
+   - Trivia - Smash factor: ball speed divided by club head speed
+     * Driver smash factor is 1.5
+     * Other woods, hybrids and irons are less than 1.5
+     * Putter smash factor is 1.87
+   - Putter setup:
+     * Sole flat on the ground
+     * Shoulders and forearms parallel to target line
+     * **Training aid: Putting mirror** (e.g. at https://eyelinegolf.com) to check:
+       + Your shoulders are aligned
+       + Your forearms are aligned
+       + Your eyes are over the target line
+       + Your eyes are over same spot of the target line
+     * Is your putter shaft too long?
+     * Arm swing:
+       + not a shoulder swing as this tends to make the head move back and forth
+       + shoulders move because the arms are attached
+       + allows you to keep most of your body "quiet"
+   - **The most important aspect of reading greens: Where is the green uphill/downhill [between ball and hole]?**
+     * He demonstrates [almost] the same strength putt uphill and downhill; the contrast in distance is remarkable
+     * You can read the slope by looking at the colour of the grass (grain):
+       + Uphill = dark
+       + Downhill = light
+       + Easiest to do at the middle of the day
+   - **Try to imagine the apex of your putt**
+     * **Usually the end result is better if you aim too high than too low**
+   - *1h15m-1h38m*
+   - Tour player putting stats:
+     * From 3 feet: Tour player makes 99/100
+     * From 8 feet: Tour player makes 50/100
+     * From 15-17 feet: Tour player makes 15/100
+     * They 3-putt once every 2½ rounds of golf
+   - Focused putting practice:
+     * **Practice making putts: 3-8 feet; you should be making most of these**
+     * **Practice avoiding 3-putts, from the distance where you start to 3-putt**; e.g. 20-30 feet and longer
+   - Practice these chipping shots:
+     * 50% carry + 50% roll
+     * ⅓ carry with ⅔ roll; and ⅔ carry with ⅓ roll
+     * Perhaps ¼ carry with ¾ roll; and ¾ carry with ¼ roll
+   - Choice of chip shot:
+     * Depending on the grass type and cut around the fringe, you will often need to have the first bounce land on the green
+     * Depending on the above decision, choose the chip shot with the most roll
+   - **Putting game for distance control**:
+     * Use 3 markers (e.g. coins):
+       + Marker 1: At the putting spot
+       + Marker 2: 6 feet away
+       + Marker 3: 12 feet away (in approximately a straight line)
+     * Each time you putt between marker 2 and 3
+       + You get 1 point
+       + You move marker 2 to the distance where your ball stopped
+       + You get another turn to putt
+     * When you miss (i.e. the ball stops short of marker 2 or beyond marker 3)
+       + You add up your points
+       + Your turn ends (and the next person has a turn if you are playing against others)
+     * The objective is to get the most points
+       + Hence the strategy is to putt the least distance past marker 2 as possible
+
+
 ## MrShortGame - Matt Fisher
 
 1. [MrShortGame | How to Make More Putts with No Practice! (video) | 2020](https://www.youtube.com/watch?v=wcNM04zTVo0)

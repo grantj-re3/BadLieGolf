@@ -1,9 +1,16 @@
 # How to stop shanking irons
 
-If you are hitting irons 45° or so to the right (for a right handed player)
-and you expect a cure from the links below, you should first ensure that
+If you are hitting irons low and 45° or so to the right (for a right handed
+player) then it is probably due to a shank (hitting the ball with the hosel).
+If you expect a cure from the links below, you should first ensure that
 the fault is due to a shank and not something else (like hitting the ball
-off the toe of the club)!
+off the toe of the club)! You may be able to look for ball impact marks by:
+- cleaning your club face then looking for strike marks after impact
+- as above but leave a film of water on the club face after cleaning
+- fitting impact tape (or some people say masking tape is also ok)
+- using Strike Spray Impact Chalk or similar; I have successfully used
+  Batiste Dry Shampoo spray (or some people say Dr Scholl's Odor-X, but
+  this is not readily available in Australia)
 
 1. [Peter Knight Golf | Stop shanking irons (video) | 2021](https://www.youtube.com/watch?v=g8pkY0PXtDY)
    1. Are you standing too close to the ball?
@@ -40,6 +47,38 @@ off the toe of the club)!
    - Setup: Weight towards the heels of your feet
    - Backswing: Stay on your heels
    - Downswing: Stay on your heels as you push your butt back
+
+1. [The Golf Sensei - Ed Schwent | How to Stop Shanking in Less Than 5 Minutes (Easy Fix) | 2024](https://www.youtube.com/watch?v=epcvRzmXwwc)
+   - If your ball flight is low and 45° or so to the right, it is likely that the ball is
+     hitting the hosel ... and it is unlikely that:
+     * you are striking the ball at the toe of the club, or
+     * striking the ball with the club face way-open (as this would result in a high shot)
+   - Cure drill:
+     * Get an empty cardboard box such as a long box that the clubs are packed in
+       (alternatively a shoe box is ok; it needs to be *pretty tall*)
+     * Place the box parallel to the target line
+     * Place the ball near the box so there is only ⅛" between the toe of the club and the box
+     * Use a problem club; typically a lofted iron
+     * Strike the ball without touching the box
+     * Repeat ... and try to diagnose the cause
+     * Aside 1: If you think you may be hitting off the toe (hence not hitting the box) then put
+       a hand towel (or head cover) on the shaft-side of the ball with quite a bit of margin so
+       the shaft doesn't hit the towel (maybe 2" from the bottom of the hosel?) and ensure the
+       club path is between the box and the towel
+     * Aside 2: This can also be a great training aid for the driver
+   - Causes: Video yourself from behind the target line to see if you can spot any of these causes.
+     * Downswing is too much outside-to-in (most common) often caused by a *flat* take away
+     * Downswing is too much inside-to-out
+     * Flat take away
+     * Take away where the hands get too far from the body
+     * The head moves down during take away (and stays down); often due to a low take away;
+       often associated with low handicap players
+     * The head moves down during transition
+   - Cure take away: Feel like your arms are on top of your chest
+   - Hitting the heel with a wood/driver will not cause a shank, it will cause a low shot
+   - Shanking is mental as well as physical
+   - If you are on the driving range shanking every lofted iron, do something else (something
+     productive). E.g. Hit a 5 wood or long iron or practice chipping.
 
 1. [AXYS Golf - Eric Kaplan | How To Stop Shanking Your Irons (video) | 2019](https://www.youtube.com/watch?v=Qm2OuzU5dgw)
    - Use proper golf posture:

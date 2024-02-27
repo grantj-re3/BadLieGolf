@@ -29,6 +29,50 @@
    - Tip 1: Turn more: get your right hip back
    - Tip 2: Turn even more: Allow your left heel to come off the ground during the backswing (and to stomp into the ground early during the down swing)
    - Tip 3: Slow the hands down during the down swing
+     * Although I think they mean the same thing, his definition of fast/slow hands appears to be the opposite of Julian Mellor below
+
+1. [ChrisRyanGolf | Learn This And The Game Can Feel So Simple | 2024](https://www.youtube.com/watch?v=YBj3jLTAPWI)
+   - The golf swing consists of 3 body-moves which are blended:
+     * rotation
+     * forward (and backward) bend
+     * tilt
+   - At address, we have *forward bend*
+   - At the top of the backswing, we have *rotation* and *tilt*
+   - Drill 1: How to find the correct body position at the top of the backswing:
+     * Take your address position
+     * Stand up straight (bend elbows so your forearms are horizontal; hold club vertically with club head at the top)
+     * Rotate so your shoulders to 90° (with left shoulder forward)
+     * Tilt from the hips so that your left shoulder moves towards the ball; [as you do this:
+       + Your left knee will bend more
+       + Your right leg will extend so it is almost straight]
+   - Drill 2: Hip movement during the backswing
+     * Stand near a wall with your left foot against the wall and shoulders/hips 90° to the wall
+     * Put a ~6" (~15cm) diameter ball between your left hip and the wall; your hip position should hold it in place
+     * Put an alignment stick (or club) across your shoulders
+     * Take a backswing from the address position while ensuring that your hip continues to hold the ball in place
+   - Important: After improving the student's swing, it was necessary to make a corresponding change to the ball position at address
+
+1. [Julian Mellor - Proper Golfing Swing Method | FAST hands v SLOW hands = MORE DISTANCE | 2022](https://www.youtube.com/watch?v=UTZBdtVkG1Y)
+   - Although I think they mean the same thing, his definition of fast/slow hands appears to be the opposite of Matt Lockey above
+   - Slow hands (bad)
+     * During the downswing, we *pull* (down) with the *back of the lead hand*
+     * A chopping action
+     * Slows the club head down
+     * Leaves the club face open
+     * At impact, the hands are behind the body
+     * Not much *release*
+   - Fast hands (good)
+     * Produce more club head speed and squares the club face much better (hence longer straighter golf shots)
+     * Let the dominant (right) hand hit the ball
+     * Let the dominant (right) hand square up the club face
+     * The hands *release* as the club face approaches impact
+     * We *do not flip* (i.e. allow the club head to get ahead of the hands) because we blend this movement with body rotation
+     * This release sends the ball further with less effort
+     * Drill 1: Practice hitting a ball with feet together so the body is not too involved
+     * Drill 2: Hit an imaginary flower head by:
+       + Holding the shaft one handed with the dominant (right) hand near the club head
+       + Pretend to hit an object in front of you (e.g. a flower head) with the handle by *releasing* the club (stick)
+       + Swing roughly horizontally
 
 1. [Golf with Coach Carolin: Carolin Pinegger | Top of the Backswing...What NOW? Let's optimize this KEY SWING MOVE! (video) | 2024](https://www.youtube.com/watch?v=TZtd6JZuxpw)
    - How to shallow the angle of the club (i.e. make more horizontal) at the start of the downswing

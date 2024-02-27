@@ -29,6 +29,20 @@
    - After impact and finish:
      * weight shifts to the [outside] left heel
 
+1. [Kerrod Gray Golf & Craig Hocknull | Staying Balanced in the Golf Swing | 2023](https://www.youtube.com/watch?v=5mq1NPnSepI)
+   - At the top of your backswing, the weight on your left foot should be under your ankle bone on the inside
+   - At the top of your backswing check your balance by doing heel taps, toe taps and bounce up and down
+   - Try the same tapping/bouncing at the address position
+   - Drill for balance:
+     * 5 iron
+     * Hit a punch shot about 60 yards
+     * Half swing
+     * Head still
+     * Feet *still*; there are still pressure shifts and [rotational/twisting?] movements
+   - Don't push off with your toes during the downswing and follow through
+   - At impact and post-impact, the heels should remain on the ground
+   - Tony Finau keeps his toes in the air from impact until arms are about horizontal in the follow through
+
 1. [Smash Factor Golf - Natalie Adams | Why do i FALL OFF BALANCE after my golf shots?? (video) | 2020](https://www.youtube.com/watch?v=9Jm_StfwsIM)
    - Setup in good balance (iron example):
      * pretty balanced between heels and balls of feet (slightly favouring balls of feet)

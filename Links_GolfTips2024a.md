@@ -83,6 +83,10 @@
    - Feel #3: Feel that you remain with your back to the target at the start of the down swing
      (i.e. while your hands start to *drop into the slot*)
 
+1. Monte Scheinblum
+   - [Hip Turn and Knee Flex-Golf Swing | 2014](https://www.youtube.com/watch?v=ihedpsV15Us)
+   - [Deep Hip Turn | 2012](https://www.youtube.com/watch?v=UW9ZCeA19vs)
+
 1. [AlexElliottGolf | 5 Minutes of This is Better Than Hitting 1000s of Balls at the Range! (video) | 2024](https://www.youtube.com/watch?v=H7hqJz5M7wE)
 
 1. [Matthew Galley | Amazing DRILL to Keep the Left Arm STRAIGHT! (video) | 2024](https://www.youtube.com/watch?v=Ec5zV58IqDo)

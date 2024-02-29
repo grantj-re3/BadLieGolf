@@ -222,3 +222,31 @@ Some of these golf balls may be available via eBay.
 
 1. [Vice Golf](https://www.vicegolf.com/au/)
 
+
+# Marker pens for golf balls
+
+1. Links
+   - [GolfWRX forum: Thewaythatgoes | Best Pen to mark your balls with | 2019](https://forums.golfwrx.com/topic/1593698-best-pen-to-mark-your-balls-with/)
+   - [TheWorkBuzz: Thomas Cosby | The Best Permanent Markers for Golf Balls in 2024 | 2024](https://www.theworkbuzz.com/best-permanent-markers-for-golf-balls/)
+
+1. Sharpie
+   - Permanent Marker: Some claim blue & red last longer [< AU$3]
+   - Sharpie Extreme Permanent Marker [< AU$3]
+   - Sharpie [Medium Black] Paint Marker; Permanent oil based opaque paint marker [AU$7]
+   - Sharpie Industrial Permanent Marker [AU$34]; Magnum [AU$12]
+
+1. Milwaukee Inkzall Permanent Marker [AU$2]
+
+1. MARKi Permanent Marker [< AU$4]
+
+1. Dykem DALO Medium Tip Marker Pen
+   - Not readily available in Australia as far as I can tell
+
+1. General ideas
+   - Acrylic paint pen
+   - Acrylic paint marker pens for stones
+   - "Super industrial" permanent markers
+   - Golf ball marker stamps
+   - Bic permanent markers
+   - Lipstick
+

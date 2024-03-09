@@ -23,6 +23,8 @@
      * Rotation: Rotate body through impact
      * Extension: Extend chest up during follow through
      * Side bend: Your trail shoulder should be lower in the follow through
+   - [GOLF: Finish Your Swing | How To Swing To A Full Finish (video) | 2020](https://www.youtube.com/watch?v=nVlCZv-sWTs):
+     Similar video with a slightly difference emphasis
 
 1. [Coach Lockey: Matt Lockey | 5 ft 8... 70 kg... 300 YARD DRIVES! My Golf Driver Swing Cheats… (video) | 2024](https://www.youtube.com/watch?v=5rWk8VBGMoQ)
    - Tip 0: Pre-game warm up
@@ -99,4 +101,19 @@
 1. [ChrisRyanGolf | GOLF SWING: STAY CONNECTED (video) | 2015](https://www.youtube.com/watch?v=bph8QN1Rmqo)
 
 1. [Top Speed Golf: Clay Ballard | How to Stay Connected in Golf (video) | 2016](https://www.youtube.com/watch?v=LySlOC7Q9pE)
+
+
+### Follow through
+
+1. [ChrisRyanGolf | HOW TO COMPLETE YOUR GOLF FOLLOW THROUGH (video) | 2018](https://www.youtube.com/watch?v=kf0v-iCntNo)
+
+1. [Rick Shiels Golf | THE FOLLOW THROUGH & FINISH POSITION - THE COMPLETE GOLF SWING GUIDE (video) | 2017](https://www.youtube.com/watch?v=0hXNXt94hOI)
+   - [THE COMPLETE GOLF SWING GUIDE (playlist)](https://www.youtube.com/playlist?list=PLKnkfgDBi62mkWMNmNipPUUep6vcj8nYm)
+
+1. [Steve Pratt Golf | This 'Petite' Girl Swings Faster than the PGA Tour Average - HERE'S HOW! (video) | 2024](https://www.youtube.com/watch?v=CXWtMWKOVSQ)
+
+
+### Footwork
+
+1. [Padraig Harrington | What Nobody Tells You About Footwork in the Golf Swing (video) | 2024](https://www.youtube.com/watch?v=wWCvecJ_82w)
 

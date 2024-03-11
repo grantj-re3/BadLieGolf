@@ -24,7 +24,7 @@
      * Extension: Extend chest up during follow through
      * Side bend: Your trail shoulder should be lower in the follow through
    - [GOLF: Finish Your Swing | How To Swing To A Full Finish (video) | 2020](https://www.youtube.com/watch?v=nVlCZv-sWTs):
-     Similar video with a slightly difference emphasis
+     Similar video with a slightly different emphasis
 
 1. [Coach Lockey: Matt Lockey | 5 ft 8... 70 kg... 300 YARD DRIVES! My Golf Driver Swing Cheats… (video) | 2024](https://www.youtube.com/watch?v=5rWk8VBGMoQ)
    - Tip 0: Pre-game warm up

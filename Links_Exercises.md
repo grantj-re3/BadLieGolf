@@ -20,3 +20,6 @@
      * Iron
      * Resistance bands
 
+1. [Jonathan Kim-Moss Golf | Golf Fitness (playlist) | 2020](https://www.youtube.com/playlist?list=PL9LXECPA3NlU1c7okzJdu-vFRaLkYSW7k)
+   - [Golf Fitness Series 4: SHOULDER MOBILITY](https://www.youtube.com/watch?v=7U7byGXqfdU)
+

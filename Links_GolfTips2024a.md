@@ -33,7 +33,7 @@
    - Tip 3: Slow the hands down during the down swing
      * Although I think they mean the same thing, his definition of fast/slow hands appears to be the opposite of Julian Mellor below
 
-1. [ChrisRyanGolf | Learn This And The Game Can Feel So Simple | 2024](https://www.youtube.com/watch?v=YBj3jLTAPWI)
+1. [ChrisRyanGolf | Learn This And The Game Can Feel So Simple (video) | 2024](https://www.youtube.com/watch?v=YBj3jLTAPWI)
    - The golf swing consists of 3 body-moves which are blended:
      * rotation
      * forward (and backward) bend
@@ -54,7 +54,7 @@
      * Take a backswing from the address position while ensuring that your hip continues to hold the ball in place
    - Important: After improving the student's swing, it was necessary to make a corresponding change to the ball position at address
 
-1. [Julian Mellor - Proper Golfing Swing Method | FAST hands v SLOW hands = MORE DISTANCE | 2022](https://www.youtube.com/watch?v=UTZBdtVkG1Y)
+1. [Julian Mellor - Proper Golfing Swing Method | FAST hands v SLOW hands = MORE DISTANCE (video) | 2022](https://www.youtube.com/watch?v=UTZBdtVkG1Y)
    - Although I think they mean the same thing, his definition of fast/slow hands appears to be the opposite of Matt Lockey above
    - Slow hands (bad)
      * During the downswing, we *pull* (down) with the *back of the lead hand*
@@ -86,8 +86,8 @@
      (i.e. while your hands start to *drop into the slot*)
 
 1. Monte Scheinblum
-   - [Hip Turn and Knee Flex-Golf Swing | 2014](https://www.youtube.com/watch?v=ihedpsV15Us)
-   - [Deep Hip Turn | 2012](https://www.youtube.com/watch?v=UW9ZCeA19vs)
+   - [Hip Turn and Knee Flex-Golf Swing (video) | 2014](https://www.youtube.com/watch?v=ihedpsV15Us)
+   - [Deep Hip Turn (video) | 2012](https://www.youtube.com/watch?v=UW9ZCeA19vs)
 
 1. [AlexElliottGolf | 5 Minutes of This is Better Than Hitting 1000s of Balls at the Range! (video) | 2024](https://www.youtube.com/watch?v=H7hqJz5M7wE)
 
@@ -101,6 +101,18 @@
 1. [ChrisRyanGolf | GOLF SWING: STAY CONNECTED (video) | 2015](https://www.youtube.com/watch?v=bph8QN1Rmqo)
 
 1. [Top Speed Golf: Clay Ballard | How to Stay Connected in Golf (video) | 2016](https://www.youtube.com/watch?v=LySlOC7Q9pE)
+
+
+### Release
+
+1. [WorldClassGolf: Craig Hanson | Why Amateurs can’t create Excellence? (video) | 2022](https://www.youtube.com/watch?v=P7b9QPnM6Es)
+   - [Why 99% of Amateurs can't create the PGA Release! - SIMPLE! (video) | 2024](https://www.youtube.com/watch?v=BrfhVXZdeaU)
+
+1. [ChrisRyanGolf | How To RELEASE The Golf Club - This Will BLOW YOUR MIND (video) | 2023](https://www.youtube.com/watch?v=YrNu0DKB3ys)
+
+1. [Jonathan Kim-Moss Golf | HOW TO RELEASE THE GOLF CLUB (video) | 2022](https://www.youtube.com/watch?v=Y_icyjq4B7A)
+
+1. [Scratch Golf Academy: Adam Bazalgette | How To Release The Golf Club (DO THIS!) (video) | 2019](https://www.youtube.com/watch?v=QGMMjaL68Ac)
 
 
 ### Follow through

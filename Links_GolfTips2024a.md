@@ -77,6 +77,7 @@
        + Swing roughly horizontally
 
 1. Monte Scheinblum
+   - [The ultimate golf lesson: Plane and Release by feel (video) | 2009](https://www.youtube.com/watch?v=-FH5r5_tROU)
    - [Hip Turn and Knee Flex-Golf Swing (video) | 2014](https://www.youtube.com/watch?v=ihedpsV15Us)
    - [Deep Hip Turn (video) | 2012](https://www.youtube.com/watch?v=UW9ZCeA19vs)
 

@@ -76,15 +76,6 @@
        + Pretend to hit an object in front of you (e.g. a flower head) with the handle by *releasing* the club (stick)
        + Swing roughly horizontally
 
-1. [Golf with Coach Carolin: Carolin Pinegger | Top of the Backswing...What NOW? Let's optimize this KEY SWING MOVE! (video) | 2024](https://www.youtube.com/watch?v=TZtd6JZuxpw)
-   - How to shallow the angle of the club (i.e. make more horizontal) at the start of the downswing
-     * Each of these *feels* promote an in-to-out swing path (i.e. baby draw)
-     * [A shallow angle at impact allows a divot to be long but not deep, hence potentially more forgiving.]
-   - Feel #1: Feel the right shoulder drop (i.e. move away from your right ear)
-   - Feel #2: Feel that your right elbow comes down into your right pocket
-   - Feel #3: Feel that you remain with your back to the target at the start of the down swing
-     (i.e. while your hands start to *drop into the slot*)
-
 1. Monte Scheinblum
    - [Hip Turn and Knee Flex-Golf Swing (video) | 2014](https://www.youtube.com/watch?v=ihedpsV15Us)
    - [Deep Hip Turn (video) | 2012](https://www.youtube.com/watch?v=UW9ZCeA19vs)
@@ -103,6 +94,20 @@
 1. [Top Speed Golf: Clay Ballard | How to Stay Connected in Golf (video) | 2016](https://www.youtube.com/watch?v=LySlOC7Q9pE)
 
 
+### Downswing
+
+1. [ChrisRyanGolf | Your Trail Arm Really Messed Up Your Swing (How to fix it) (video) | 2023](https://www.youtube.com/watch?v=wqvMR0gH-yI)
+
+1. [Golf with Coach Carolin: Carolin Pinegger | Top of the Backswing...What NOW? Let's optimize this KEY SWING MOVE! (video) | 2024](https://www.youtube.com/watch?v=TZtd6JZuxpw)
+   - How to shallow the angle of the club (i.e. make more horizontal) at the start of the downswing
+     * Each of these *feels* promote an in-to-out swing path (i.e. baby draw)
+     * [A shallow angle at impact allows a divot to be long but not deep, hence potentially more forgiving.]
+   - Feel #1: Feel the right shoulder drop (i.e. move away from your right ear)
+   - Feel #2: Feel that your right elbow comes down into your right pocket
+   - Feel #3: Feel that you remain with your back to the target at the start of the down swing
+     (i.e. while your hands start to *drop into the slot*)
+
+
 ### Release
 
 1. [WorldClassGolf: Craig Hanson | Why Amateurs can’t create Excellence? (video) | 2022](https://www.youtube.com/watch?v=P7b9QPnM6Es)
@@ -111,6 +116,7 @@
 1. [ChrisRyanGolf | How To RELEASE The Golf Club - This Will BLOW YOUR MIND (video) | 2023](https://www.youtube.com/watch?v=YrNu0DKB3ys)
 
 1. [Jonathan Kim-Moss Golf | HOW TO RELEASE THE GOLF CLUB (video) | 2022](https://www.youtube.com/watch?v=Y_icyjq4B7A)
+   - [BEGINNER SERIES (playlist) | 2020](https://www.youtube.com/playlist?list=PL9LXECPA3NlXMPgah2bAs8R9nopsBa6vg)
 
 1. [Scratch Golf Academy: Adam Bazalgette | How To Release The Golf Club (DO THIS!) (video) | 2019](https://www.youtube.com/watch?v=QGMMjaL68Ac)
 

@@ -60,3 +60,5 @@
    - Problem: Ball too far back.
      * Fix: Place the ball just inside the left heel which will be the center/bottom of the swing arc (when most of your weight is over the left leg).
 
+1. [The Golf Sensei | This Will Cure Your Fear of Bunker Shots Instantly | 2024](https://www.youtube.com/watch?v=e_n5JsNeokA)
+￼

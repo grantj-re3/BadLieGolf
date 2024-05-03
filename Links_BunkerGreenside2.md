@@ -34,7 +34,7 @@
    - Exaggerate the body rotation
 
 1. [Steve Johnston Golf | This Bunker Shot Technique is SO EASY You'll be Shocked (video) | 2024](https://www.youtube.com/watch?v=Vw7kMe9Cu3Y)
-   - Hard sand
+   - Hard sand [I like this technique]
      * Strike the sand with the tow of the club face (hence less resistance by the sand)
      * Upright shaft (handle is high) and steep swing plane
      * Right shoulder is high at address
@@ -60,5 +60,5 @@
    - Problem: Ball too far back.
      * Fix: Place the ball just inside the left heel which will be the center/bottom of the swing arc (when most of your weight is over the left leg).
 
-1. [The Golf Sensei | This Will Cure Your Fear of Bunker Shots Instantly | 2024](https://www.youtube.com/watch?v=e_n5JsNeokA)
+1. [The Golf Sensei | This Will Cure Your Fear of Bunker Shots Instantly (video) | 2024](https://www.youtube.com/watch?v=e_n5JsNeokA)
 ￼

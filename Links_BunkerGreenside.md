@@ -523,9 +523,9 @@ For a flat lie in soft sand...
 
 ## What do the pros say?
 
-1. [Golf Tips Edit | GOLF: Bunker by Phil Mickleson | 2020](https://www.youtube.com/watch?v=ed3JthxyLZ0)
-1. [Lower My Handicap | Master The Art Of Bunker Shots With Seve Ballesteros! | 2024](https://www.youtube.com/watch?v=SRBJQVpSawE)
-1. [Lower My Handicap | Jason Day's Bunker Shot Technique Is So EASY You Won't Believe It | 2024](https://www.youtube.com/watch?v=9j61ahYlziY)
+1. [Golf Tips Edit | GOLF: Bunker by Phil Mickleson (video) | 2020](https://www.youtube.com/watch?v=ed3JthxyLZ0)
+1. [Lower My Handicap | Master The Art Of Bunker Shots With Seve Ballesteros! (video) | 2024](https://www.youtube.com/watch?v=SRBJQVpSawE)
+1. [Lower My Handicap | Jason Day's Bunker Shot Technique Is So EASY You Won't Believe It (video) | 2024](https://www.youtube.com/watch?v=9j61ahYlziY)
 1. [TaylorMade Golf | Bunker Technique with Tiger Woods & Jason Day (video) | 2019](https://www.youtube.com/watch?v=Nd00f4nq_ks)
 1. [TaylorMade Golf | Tiger Woods, Rory McIlroy & Jason Day Short Game Session (video) | 2020](https://www.youtube.com/watch?v=LsQgZzkpppw&t=12m35s)
    - 12m35s - 18m06s

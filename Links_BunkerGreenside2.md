@@ -61,4 +61,9 @@
      * Fix: Place the ball just inside the left heel which will be the center/bottom of the swing arc (when most of your weight is over the left leg).
 
 1. [The Golf Sensei | This Will Cure Your Fear of Bunker Shots Instantly (video) | 2024](https://www.youtube.com/watch?v=e_n5JsNeokA)
-￼
+   - 3m50s In a "properly maintained bunker", for a 10 yard bunker shot you need to swing like a 30 yard shot from the turf (i.e. ratio of 1:3).
+   - 26m26s You are not permitted to ground your club in a bunker. So to consistently control the low point of your club during the swing,
+     address the ball with the left arm slightly bent (for a right handed player)... then ensure you straighten it during your backswing
+     (and keep it straight during your downswing).
+   - 32m08s How to hit a bunker shot from a plugged lie? Close the club face so the leading edge of the club does dig into the sand under the ball.
+

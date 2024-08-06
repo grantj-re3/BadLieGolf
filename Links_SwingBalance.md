@@ -99,6 +99,11 @@
      * with a little more detail
      * hold the finish in balance
 
+1. [Shawn Clement's Wisdom in Golf Lessons | WHY YOU STRUGGLE WITH BALANCE IN YOUR GOLF SWING: 3 BULLET PROOF TECHNIQUES FOR YOU | 2020](https://www.youtube.com/watch?v=hHmqYO8XsXU)
+   - [03m42s] Drill 1: Swinging into your finish
+   - [11m27s] Drill 2: The walking Drill
+   - [13m32s] Drill 3: The Two Swing Drill [I like this because you can do it during your game!]
+
 1. [TaylorMade Golf - Rick Sessinghaus | Three Balance Drills for Better Ball Striking (video) | 2020](https://www.youtube.com/watch?v=1fP7Ub-jz3o)
    - Drill 1: Swing and hit with feet together
    - Drill 2: Swing and hit with feet flat on the ground the whole time

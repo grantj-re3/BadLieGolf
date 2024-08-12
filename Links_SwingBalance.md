@@ -40,7 +40,7 @@
      * Your butt should be 1-2 inches from the wall at address
      * At the finish, your left hip should be against the wall
        while your upper body tilts to the right (hence your
-       left shoulder is away from the wall)
+       left shoulder is not touching the wall)
      * The finish should feel solid and comfortable
 
 1. [ChrisRyanGolf | 3 TIPS TO HELP YOU SWING IN BALANCE (video) | 2018](https://www.youtube.com/watch?v=SQWc2XlMhFk)

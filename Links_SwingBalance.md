@@ -1,5 +1,48 @@
 # Golf swing: balance
 
+1. [Jonathan Kim-Moss Golf | HOW TO HOLD YOUR BALANCE (THIS IS WHY YOU DONT FEEL STABLE) (video) | 2021](https://www.youtube.com/watch?v=lRJifHATB8c)
+   - Why improve your [post-impact] balance?
+     * Gives clues about what occurred earlier in your swing
+     * Helps control the club head low point
+     * Helps achieve better ball striking
+   - [0m00s] **How to avoid falling towards the target**
+     * Upper body centre: Near the buttons of your polo shirt
+     * Lower body centre: Near your belt buckle
+     * At the finish: Your belt buckle and upper body is facing
+       the target
+     * Fault: Falling towards the target is usually because at the
+       finish, the upper body centre is in front of the lower body
+       centre (i.e. the upper body is closer to the target)
+     * Fix: As you move towards the finish, your hips should be
+       moving forward (towards the target) but the upper body should
+       stay on top of your lower body or slightly behind the lower
+       body
+     * When you do this correctly, the chest will point high
+   - [4m12s] Wall drill #1
+     * The wall is on your target side
+     * Your lead foot is approx. 4-5 inches away from the wall
+     * Your **weight moves to the outside of the lead foot**
+     * Your belt buckle moves closer to the wall
+     * Your chest finishes slightly further from the wall
+       than your belt buckle
+     * Feel like the lower body leads and tucks under you
+     * You should **not feel pressure on the toes of your trail foot**
+     * Feel solid on the lead side
+     * Visual: Having your upper body directly over the lead leg
+       is good
+   - [6m42s] **How to avoid falling towards the ball**
+     * At the finish: Your weight should be over the outer heel
+       of your lead foot... as your upper body tilts to the right
+   - [8m43s] Experiment
+   - [9m48s] Wall drill #2
+     * The wall is at your back when you are in the address
+       position
+     * Your butt should be 1-2 inches from the wall at address
+     * At the finish, your left hip should be against the wall
+       while your upper body tilts to the right (hence your
+       left shoulder is away from the wall)
+     * The finish should feel solid and comfortable
+
 1. [ChrisRyanGolf | 3 TIPS TO HELP YOU SWING IN BALANCE (video) | 2018](https://www.youtube.com/watch?v=SQWc2XlMhFk)
    1. Setup in good balance (7 iron example):
       - Weight in the middle of the feet (slightly favouring the balls of the feet):
@@ -29,7 +72,7 @@
    - After impact and finish:
      * weight shifts to the [outside] left heel
 
-1. [Kerrod Gray Golf & Craig Hocknull | Staying Balanced in the Golf Swing | 2023](https://www.youtube.com/watch?v=5mq1NPnSepI)
+1. [Kerrod Gray Golf & Craig Hocknull | Staying Balanced in the Golf Swing (video) | 2023](https://www.youtube.com/watch?v=5mq1NPnSepI)
    - At the top of your backswing, the weight on your left foot should be under your ankle bone on the inside
    - At the top of your backswing check your balance by doing heel taps, toe taps and bounce up and down
    - Try the same tapping/bouncing at the address position
@@ -99,7 +142,7 @@
      * with a little more detail
      * hold the finish in balance
 
-1. [Shawn Clement's Wisdom in Golf Lessons | WHY YOU STRUGGLE WITH BALANCE IN YOUR GOLF SWING: 3 BULLET PROOF TECHNIQUES FOR YOU | 2020](https://www.youtube.com/watch?v=hHmqYO8XsXU)
+1. [Shawn Clement's Wisdom in Golf Lessons | WHY YOU STRUGGLE WITH BALANCE IN YOUR GOLF SWING: 3 BULLET PROOF TECHNIQUES FOR YOU (video) | 2020](https://www.youtube.com/watch?v=hHmqYO8XsXU)
    - [03m42s] Drill 1: Swinging into your finish
    - [11m27s] Drill 2: The walking Drill
    - [13m32s] Drill 3: The Two Swing Drill [I like this because you can do it during your game!]

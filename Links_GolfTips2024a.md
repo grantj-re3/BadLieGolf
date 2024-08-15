@@ -136,3 +136,66 @@
 
 1. [Padraig Harrington | What Nobody Tells You About Footwork in the Golf Swing (video) | 2024](https://www.youtube.com/watch?v=wWCvecJ_82w)
 
+
+### Ball Striking: Divot
+
+1. [Bryson DeChambeau | I Gave Rick Shiels A Golf Lesson | 2023](https://www.youtube.com/watch?v=BIe82j-lYtE)
+   - *Lesson: Take a consistent and proper divot to improve your ball striking*
+   - This lesson will improve:
+     * compression of the ball
+     * consistency of ball striking
+     * control of the low point
+   - Will help with:
+     * irons shots
+     * drives
+     * shots into the wind
+     * bad lies
+   - **Bunker drill:** Full shots and little chip shots
+     * Draw a line in the bunker (similar to bunker shot practice)
+     * Drag club back (some sand will fly away from the target at the take away)
+     * Deliver the club to the front edge of the line
+     * [Take a long-ish deep-ish divot]
+   - Practice keys:
+     * Bunker drill: Do until you achieve 5 (or 10) *perfect shots* in a row (without a ball)
+     * If still inconsistent on the range, feel like you are driving your hands forward *past the left foot* [with forward shaft lean]
+     * Be a little more aggressive; don't be afraid [of taking a long-ish deep-ish divot]
+
+1. [Top Speed Golf: Clay Ballard | How to Hit the Ball Then the Turf with Your Irons | Complete Guide | 2022](https://www.youtube.com/watch?v=AHGMmdgdrLA)
+   - [0m00s] Explanation of low point
+   - [8m07s] Drill 1 with pool noodle: At impact:
+     * Left hip is over the outside of the left foot
+     * Left ear is over the ball (in other words, the upper body stays back)
+     * Forward shaft lean
+   - [10m53s] Drill 2a body position at finish:
+     * right knee moves to be in line with left knee
+     * sole of right foot is vertical
+     * balanced over the left leg
+   - Drill 2b body position at finish:
+     * Belt buckle in front of left leg
+   - Drill 2c body position at finish:
+     * Right shoulder finishes towards the target
+     * Try with pole (club shaft) across shoulders
+   - [13m44s] Checking the divot
+     * Divot board
+     * Towel behind the ball
+     * [Real grass divot at practice range]
+     * [Line in the sand as per Bryson DeChambeau's video above]
+     * [Use broken tee behind the ball-position (lying horizontal) and another in front
+       of the ball-position; hit the front tee away while the back tee remains untouched]
+   - [16m37s] Lead up to a [sign-up] video preview
+
+1. [ChrisRyanGolf | HOW TO TAKE A DIVOT AFTER THE GOLF BALL | 2019](https://www.youtube.com/watch?v=qXzrskuCQpg)
+
+1. [Scratch Golf Academy: Adam Bazalgette | Golf: How To Take a Divot in Front of the Ball | 2020](https://www.youtube.com/watch?v=I6ZzDedxFWA)
+   - Drill
+
+1. [Aussie Golf Pros: Glen Haynes | How To Hit The GOLF BALL FIRST (Easy Drill) | 2020](https://www.youtube.com/watch?v=Naku1EnSKy4)
+   - Drill using a broken golf tee
+
+1. [US GOLF TV: Todd Kolb | What Nobody Tells You About Taking a Divot | 2023](https://www.youtube.com/watch?v=iZ9pAo1Dfm8)
+
+
+### Ball Striking: Sweet Spot
+
+1. [Aussie Golf Pros: Glen Haynes | Ball Striking - Find the Sweet Spot | 2020](https://www.youtube.com/watch?v=o8yDxhLYESk)
+   - Drill: Use a tee in front of the toe and another behind the shaft to provide feedback about finding the centre of the club face

@@ -3,8 +3,8 @@
 1. [The Left Rough | Golf Strategy: Tips to Improve your Mental Game | c.2021](https://theleftrough.com/golf-strategy/)
    - Links to articles and tips about course management, strategy, mental game, etc. How to break 100, 90 and 80.
 
-1. [Golf Sidekick - Matt | YouTube channel](https://www.youtube.com/channel/UCaeGjmOiTxekbGUDPKhoU-A)
-   - [Golf Sidekick - Matt | Website](https://www.golfsidekick.com/)
+1. [Golf Sidekick - Matt Greene | YouTube channel](https://www.youtube.com/channel/UCaeGjmOiTxekbGUDPKhoU-A)
+   - [Golf Sidekick - Matt Greene | Website](https://www.golfsidekick.com/)
    - Links to articles and tips about course management, strategy, mental game, etc. How to break 100, 90 and 80.
    - Favourite sayings:
      * GIOTF: Get it on the fairway
@@ -128,7 +128,7 @@
 
 ## How to enjoy your golf
 
-1. [Golf Sidekick - Matt | The WAY OF THE PLAYA - The System to Make Golf Fun Again - Part 1/2 (video) | 2020](https://www.youtube.com/watch?v=nHbSRgIFO2k)
+1. [Golf Sidekick - Matt Greene | The WAY OF THE PLAYA - The System to Make Golf Fun Again - Part 1/2 (video) | 2020](https://www.youtube.com/watch?v=nHbSRgIFO2k)
    - The introductory text says:
      * If you don't like talking in a video, then this one is not for you.
      * I don't know a thing about swing mechanics and I am not the best at
@@ -140,7 +140,7 @@
        best miss and leaving yourself the easiest most comfy shots is just
        a simple and fun way to be in control of your game and emotions.
 
-1. [Golf Sidekick - Matt | MAKE GOLF FUN AGAIN - Way of the Playa - Part 2 No more misery (video) | 2020](https://www.youtube.com/watch?v=77mCJcn8x08)
+1. [Golf Sidekick - Matt Greene | MAKE GOLF FUN AGAIN - Way of the Playa - Part 2 No more misery (video) | 2020](https://www.youtube.com/watch?v=77mCJcn8x08)
    - The introductory text says:
      * BRING THE FUN, and KEEP BRINGING THE FUN
      * Be positive:
@@ -154,14 +154,14 @@
 
 ## How to break 100
 
-1. [Golf Sidekick - Matt | Playlist: HOW TO BREAK 100 GUARANTEED | c.2018-2021](https://www.youtube.com/playlist?list=PLZtIcpk2tWYmXAKCtM9XbOnQh4ybRCni9)
-   - [Golf Sidekick - Matt | HOW TO BREAK 100 - THE SECRET to LOWER SCORES Part 1 (video) | 2020](https://www.youtube.com/watch?v=bzsBsWNmhG4)
+1. [Golf Sidekick - Matt Greene | Playlist: HOW TO BREAK 100 GUARANTEED | c.2018-2021](https://www.youtube.com/playlist?list=PLZtIcpk2tWYmXAKCtM9XbOnQh4ybRCni9)
+   - [Golf Sidekick - Matt Greene | HOW TO BREAK 100 - THE SECRET to LOWER SCORES Part 1 (video) | 2020](https://www.youtube.com/watch?v=bzsBsWNmhG4)
      * Take the pressure off by making your own score card where you:
        + For stroke index 1-9: add 2 strokes to par to give *your* par
        + For stroke index 10-18: add 1 stroke to par to give *your* par
      * Take the pressure off by not accumulating your score until you
        have finished playing your round
-   - [Golf Sidekick - Matt | How to Break 90 or 100 Guaranteed - ESSENTIAL INFO for maximum potential (video) | 2021](https://www.youtube.com/watch?v=cWauCDF5V1I)
+   - [Golf Sidekick - Matt Greene | How to Break 90 or 100 Guaranteed - ESSENTIAL INFO for maximum potential (video) | 2021](https://www.youtube.com/watch?v=cWauCDF5V1I)
      * Know the (approximate) trajectory of your clubs
      * Know how to play a punch shot
      * Have **one** go-to chipping club
@@ -178,9 +178,9 @@
        new swings, tricks, etc. while playing your round of golf.]
      * Know how to sink 3-foot putts. *Practice putts from 1, 2, 3, 4 and 5 feet.*
      * Get good at eliminating double, triple, quadruple bogeys
-   - [Golf Sidekick - Matt | How to Break 100 - STOP AND THINK! (video) | 2018](https://www.youtube.com/watch?v=Xka4pt3dHPA)
+   - [Golf Sidekick - Matt Greene | How to Break 100 - STOP AND THINK! (video) | 2018](https://www.youtube.com/watch?v=Xka4pt3dHPA)
 
-1. [Golf Sidekick - Matt | I promise You will BREAK 100 if you watch this video - throw away Trouble Clubs (video) | 2022](https://www.youtube.com/watch?v=yg3kwrb0Xz8)
+1. [Golf Sidekick - Matt Greene | I promise You will BREAK 100 if you watch this video - throw away Trouble Clubs (video) | 2022](https://www.youtube.com/watch?v=yg3kwrb0Xz8)
    - Course management lesson with a student - on the golf course.
      * Student does not play any club longer that a 7 iron (almost)
      * Tips about club selection, direction of shot, loft of shot
@@ -194,6 +194,25 @@
      6. Practice your putting - you can probably cut 6 strokes alone from NOT three putting. You don't three putt if you practice diligently.
      7. Stop getting angry because you dont play like a pro. This is a delusion. If you advance the ball toward the hole, it is a positive.
 
+
+## How to break 90
+
+*Golf Sidekick* and *The Left Rough* web sites (mentioned on this page) have articles and videos discussing how to break 90.
+
+1. [Jon Perkins Golf | 7 RULES to BREAK 90 Every Time (No Swing Changes) | 2024](https://www.youtube.com/watch?v=W22nKRKK_3U)
+   * He is talking to players who:
+     + play on a reasonably regular basis
+     + have a semi-consistent shot pattern
+     + can drive 200 yards (180m)
+     + can approach from 165 yards (150m)
+   * Rule 1: Use your [available] shots well. [Aim for bogey on most holes.] Plan how you will play each hole.
+   * Rule 2: Simplify chipping (and take disasters out of play)
+   * Rule 3: Get your first putt within 3 feet
+   * Rule 4: Take bunkers out of play[?]
+   * Rule 5: Know your realistic distances
+   * Rule 6: Don't always go for sand wedge or lob wedge around the greens
+   * Rule 7: Remember what you are trying to score. (Aim for bogey and just wait for pars to come.)
+   * [18:37] Recap breaking 90
 
 ## How to break 80
 
@@ -276,7 +295,7 @@
       * You can use just about any club to hit a chip
       * Learning to hit a pinpoint chip can turn three strokes into two
 
-1. [Golf Sidekick - Matt | Golf Strategy: How to Break 80 in Golf – My 666 Method | 2022](https://www.golfsidekick.com/break-80/how-to-break-80/)
+1. [Golf Sidekick - Matt Greene | Golf Strategy: How to Break 80 in Golf – My 666 Method | 2022](https://www.golfsidekick.com/break-80/how-to-break-80/)
    - Build the skills to:
      1. Hit SIX greens in regulation.
      1. Get up and down SIX times to save par.
@@ -312,5 +331,5 @@
      * Join a matchplay league
    - FAQ
 
-1. [Golf Sidekick - Matt | HOW TO BREAK 80 in Golf - Ultimate Guide for Golfers Scoring 80-86 - HOUR OF POWER (video) | 2021](https://www.youtube.com/watch?v=JSK0Dw4NNTU); great video but you need over 1 hour to watch it (at x1)
+1. [Golf Sidekick - Matt Greene | HOW TO BREAK 80 in Golf - Ultimate Guide for Golfers Scoring 80-86 - HOUR OF POWER (video) | 2021](https://www.youtube.com/watch?v=JSK0Dw4NNTU); great video but you need over 1 hour to watch it (at x1)
 

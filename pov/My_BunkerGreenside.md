@@ -8,12 +8,12 @@ E.g. Soft sand which is slighly damp or slightly compacted
 
 Main setup:
 
-- I prefer my weight towards my heels (and keep it there) [1]
+- I prefer my weight towards my heels (and keep it there) <sup>[1]</sup>
 - Weight over my lead/left leg (and keep it there)
 - Lock my lead/left elbow (and keep it locked until after impact)
 - I prefer to address the ball so the centre of the ball is closer to
   the toe of the club head (as I have a tendency to catch too much
-  sand and I *feel* I catch less sand this way) [2]
+  sand and I *feel* I catch less sand this way) <sup>[2]</sup>
 
 Other setup (which I tend to do without thinking):
 
@@ -27,14 +27,14 @@ Other setup (which I tend to do without thinking):
 - I intend to make first contact with the sand about 2" behind
   the ball
 - Address the ball with the club head hovering above the sand and
-  a few inches behind the intended entry point into the sand
+  a few inches behind the intended entry point into the sand <sup>[2]</sup>
 
 Motion:
 
 - Almost pause at the top
 - **Do not allow the hips to move down as the club head moves down.**
   Instead, rotate the hips while keeping them level during the
-  backswing and downswing. [1]
+  backswing and downswing. <sup>[1]</sup>
 - Hit/splash a parcel of sand forward several metres (i.e. along the
   swing line)
 - I try to keep my legs and head very quiet/still during the backswing

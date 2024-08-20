@@ -49,6 +49,11 @@
      * Left shoulder is high at address
      * Wider stance
 
+1. [Dan Grieve | Dan and Collin Morikawa talk short game | 2024](https://www.youtube.com/watch?v=onss4R-RWh8&t=4m40s)
+   - [4m40s] Bunker section
+     * Wide stance
+     * Brace with knees outwards to help prevent knees from buckling (and bringing your level lower)
+
 1. [gabbygolfgirl | How to Get Out of a BUNKER - Golf Basics (video) | 2023](https://www.youtube.com/watch?v=Bzd_NS8l2bA)
    - Long, medium and short bunker shots
    - Have the right loft

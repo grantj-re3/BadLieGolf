@@ -8,6 +8,10 @@
    - Do not sway
    - 70% of weight on the front side
 
+1. [The Art of Simple Golf | Divot Magic For Green Side Bunkers OUT Every Time | 2024](https://www.youtube.com/watch?v=NJiiFZQLQaI)
+   - Swing thought: Take a divot in the bunker
+   - Swing thought: Let the club head throw the divot-sand onto the green
+
 1. [ChrisRyanGolf | AVOID THESE 3 KILLER MISTAKES IN THE BUNKER (video) | 2019](https://www.youtube.com/watch?v=U_kfhg4mBZM)
    - Too much weight on the trail side
    - Cutting across the golf ball

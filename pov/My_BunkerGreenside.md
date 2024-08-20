@@ -17,15 +17,26 @@ Main setup:
 
 Other setup (which I tend to do without thinking):
 
+- Flare the feet
+- Dig the feet into the sand
 - Slightly open the club face (to about 1 o'clock). You may need
   to open it further to avoid a steep bunker wall and lip.
 - Open the stance so that the opened club face points towards
   the target
 - Ball in line with my sternum (after I have moved my weight over
-  my lead/left leg)
-- Right hand grip is very weak
-- I intend to make first contact with the sand about 2" behind
-  the ball
+  my lead/left leg) ... which implies the ball is closer to the
+  left foot than the right
+- No forward shaft lean (i.e. sternum, top of handle and bottom
+  of shaft are all in a line)
+- Right hand grip is very weak (to ensure I do not close the
+  club face during the swing)
+- I intend to:
+  * make first contact with the sand about 2" behind the ball
+  * take a dollar-bill length divot which is fairly shallow
+  * have the lowest point of my swing under the ball
+  * hit forward through the sand 
+  * not make contact with the ball at all (unless hitting a
+    longer shot)
 - Address the ball with the club head hovering above the sand and
   a few inches behind the intended entry point into the sand <sup>[2]</sup>
 
@@ -35,8 +46,8 @@ Motion:
 - **Do not allow the hips to move down as the club head moves down.**
   Instead, rotate the hips while keeping them level during the
   backswing and downswing. <sup>[1]</sup>
-- Hit/splash a parcel of sand forward several metres (i.e. along the
-  swing line)
+- Hit/splash/throw a shallow rectangle-shaped divot of sand several
+  metres towards or onto the green
 - I try to keep my legs and head very quiet/still during the backswing
   and downswing
 - Finish facing the target

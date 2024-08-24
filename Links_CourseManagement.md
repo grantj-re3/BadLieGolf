@@ -80,6 +80,10 @@
        + Be clear with your strategy, break down each hole and work backwards to come up with the best plan you can.
        + This approach doesn’t guarantee success, but it maximises your chances.
 
+1. [Dan Grieve | Short Game shot selection options around the green | 2024](https://www.youtube.com/watch?v=Jo69FOclmz0)
+   - 10 short game scenarios
+   - Safer vs high risk / high reward options
+
 1. [Golf University | Playlist: Inner Golf Lessons | Golf University c.2016-2018](https://www.youtube.com/playlist?list=PLk5pOCqyfd71uq48KYfzR_pBBUDf1V2AA)
    - [Golf University - Lawrie Montague | How to Play the Best Course Management Strategy in Golf | Inner Golf Mastery Series (video) | 2018](https://www.youtube.com/watch?v=Hvi7SPt4Rhw)
      * The 70% rule: Play a club/shot where you can get the result you want 7 times out of 10

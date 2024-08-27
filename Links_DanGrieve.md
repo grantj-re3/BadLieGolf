@@ -77,16 +77,70 @@ Short game expert. Specialises in:
      * Wide stance
      * Brace with knees outwards to help prevent knees from buckling (and bringing your level lower)
 
+1. [Dan Grieve | Rachel Drummond learns The Three Releases | A lesson with Dan | Episode 1 | 2024](https://www.youtube.com/watch?v=CfSoslFUdU0)
+
 
 ## Other channels featuring Dan Grieve
 
 1. [Rick Shiels Golf | This Golf Lesson Changed my LIFE! | 2023](https://www.youtube.com/watch?v=4yLYYz_5Z8c)
+   [3m43s]
+   - [6m30s] Release 1 - Chip and run (low trajectory)
+     * 3/10 grip pressure (very loose)
+     * Level shoulders (not right shoulder down)
+     * Pivot around *stacked* left side
+     * Left foot flared
+     * Wide, connected takeaway
+     * Use the front of the bounce
+     * Sternum just in front of the ball
+     * Release 1: Shaft handle points to the left hip shortly after impact
+       *and* club head stops lower than the hands
+     * Hips must rotate during backswing and follow through
+     * Rehearse the arc in the swing without a club (not a linear swing)
+     * Drill: Grip the club near the ferrule... (see notes re earlier video)
+     * Slow transition
+     * This technique exposes the bounce more, hence is more forgiving
+       (i.e. gives a reasonable result if you to hit it a little heavy/fat)
+   - [23m55s] Release 2 - Soft landing shot (mid trajectory)
+     * Aside: 60° wedge is for *emergency use only*
+     * Grip pressure, shoulders, pivot and flared left foot all as per release 1
+     * Use the middle of the bounce
+     * Hit the ground behind the ball!!!
+     * Sternum just in front of the ball
+     * Release 2: Shaft handle points to the belt buckle shortly after impact
+     * Aim to hit the ground 1 inch before the ball; hitting 3 inches before 
+       the ball is probably ok (but hitting thin is not)
+     * Hands lower than release 1 at address
+     * Let the hands *fall* at transition
+     * Hands finish close to the left hip
+     * Drill:
+       + Feel the club head fall by swinging with thumbs off the handle
+       + Just before impact, support the swing by rotating the chest
+     * Let the left upper arm almost stall just after impact (while
+       the lower arm releases)
+     * Drill to feel release 2:
+       + While swinging the club with the left arm, hold the left upper
+         arm against the chest (with the right hand)
+       + Feel the left lower arm release
+       + Feel the left upper arm being connected to the chest
+   - [48m04s] Bunker
+     * Pads of the hands come off the grip before putting the club
+       in the holster
+     * Feel the right arm move across your stomach after impact
+   - [1h01m52s] Release 3 - Lob shot
 
 1. [On the Road with Iona | My Lesson With The Best Short Game Coach In The World! | 2024](https://www.youtube.com/watch?v=uahu3OKYsxs)
    - Golf IQ: What shot to play? Consider the following factors in this order: Lie first, then Landing zone and finally Loft
 
 1. [Gaz's Golf | I Had A Lesson With Best Coach In The World | 2023](https://www.youtube.com/watch?v=eknWaPzaTjs)
 
+1. [GOLF LIFE: Jimmy Bullard | Can Dan Grieve TRANSFORM Jimmy Bullard’s Short Game?! | Road To The Open EP2 | 2024](https://www.youtube.com/watch?v=krnVlrGhC4A)
+
 1. [Golf Monthly | HOW TO SPIN YOUR CHIP SHOTS... DAN GRIEVE'S TOP TIPS! | 2024](https://www.youtube.com/watch?v=bS_JWkq6hlY)
    - Release 1 & 2
+
+1. Jess Ratcliffe Golf
+   - [Golf Monthly | DAN GRIEVE ON HOW TO ESCAPE BAD LIES! Lesson With 8-Handicap Jess Ratcliffe | 2024](https://www.youtube.com/watch?v=-9BFSfcwPMY)
+     * Tricky Shot Out The Rough
+     * [Excerpt from above](https://www.youtube.com/watch?v=-L7Rqq_heaI)
+   - [How I'm Learning Dan Grieve's Release 1 & 2 (From Dan's Book) | 2024](https://www.youtube.com/watch?v=ePrSvB21wdU)
 

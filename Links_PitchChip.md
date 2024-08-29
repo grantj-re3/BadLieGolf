@@ -237,6 +237,11 @@
    - [How to Read the Lie when Chipping (video) | 2023](https://www.youtube.com/watch?v=2zeVD4_jTKE&list=PLVVMdHjww5Omym2VnkuCaX6MG1LsPGv7A&index=37)
 
 
+1. [Meandmygolf | One Tip That Will Change Your Chipping FOREVER! | 2020](https://www.youtube.com/watch?v=n-G44RSHHzg)
+1. [Meandmygolf | This Chipping Video Will Change EVERYTHING! | 2022](https://www.youtube.com/watch?v=5Jx9fvU9WX0)
+1. [Matt Fryer Golf | Hit the Ground Before Chipping For Better Results! (Simple Golf Tips) | 2024](https://www.youtube.com/watch?v=7sNlgd8dSqo)
+
+
 1. [Danny Maude | CHIP SHOTS Around the Green are MUCH EASIER with this Short Game Technique (video) | 2021](https://www.youtube.com/watch?v=2SOAHQY-Fr0)
    - This chip and run shot typically covers 70-80% of shots around the green
    - Use a different club for more/less run

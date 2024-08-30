@@ -51,6 +51,17 @@
 
 1. [Dan Grieve | Many of his videos include bunker coaching](Links_DanGrieve.md)
 
+1. [Meandmygolf | JASON DAY - HOW TO BECOME THE ULTIMATE BUNKER PLAYER | 2019](https://www.youtube.com/watch?v=Om7e1l0rDUA&t=4m18s)
+   - Wide stance
+   - Open the club face more (to minimise digging); more than 45°; he is trying to lie the club head flat on the sand
+   - Sternum over the ball
+   - Keep as level as possible (to minimise head movement up/down or left/right much)
+   - He likes to have his hands low to the ground (near his knees), hence a lot of knee flex
+   - Focus on contact [?]
+   - Focus on depth of divot (minimal sand)
+   - He feels like he is hitting a high cut (which helps make a shallow divot)
+   - He makes an aggressive/positive/full-swing strike
+
 1. [gabbygolfgirl | How to Get Out of a BUNKER - Golf Basics (video) | 2023](https://www.youtube.com/watch?v=Bzd_NS8l2bA)
    - Long, medium and short bunker shots
    - Have the right loft

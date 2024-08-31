@@ -240,7 +240,16 @@
 1. [Meandmygolf | One Tip That Will Change Your Chipping FOREVER! | 2020](https://www.youtube.com/watch?v=n-G44RSHHzg)
 1. [Meandmygolf | This Chipping Video Will Change EVERYTHING! | 2022](https://www.youtube.com/watch?v=5Jx9fvU9WX0)
 1. [Matt Fryer Golf | Hit the Ground Before Chipping For Better Results! (Simple Golf Tips) | 2024](https://www.youtube.com/watch?v=7sNlgd8dSqo)
-
+1. [Andrew Rice Golf | 3 chipping articles with video | 2016-2018](https://www.andrewricegolf.com/andrew-rice-golf/tag/stay+down)
+   - Some "Different" Chipping Ideas
+   - Shortgame - Land the Plane
+   - My 3 Keys to Great Wedge Play
+1. [GolfPass | Chipping and Pitching (playlist) | 2015-2024](https://www.youtube.com/playlist?list=PLU9JSO9ve8XBtpYmZ8YKeR1kaz51hnsdi)
+1. The Golfer's Journal
+   - [Short Game Chef teaches the stock pitch every golfer should have | The Index Experiment | 2023](https://www.youtube.com/watch?v=FF4qMwZrj2U)
+   - [Short Game Chef Teaches his 35-yard Pitch Feels | The Index Experiment | 2023](https://www.youtube.com/watch?v=MRbhrfTVlVc)
+1. [RollYourRock | Steve Stricker - Chipping & Pitching Instruction | 2012](https://www.youtube.com/watch?v=0NYjM5UkxZQ)
+1. [TaylorMade Golf | Dead Hand Wedge with Jason Day | 2018](https://www.youtube.com/watch?v=CyWEhCyyaYY)
 
 1. [Danny Maude | CHIP SHOTS Around the Green are MUCH EASIER with this Short Game Technique (video) | 2021](https://www.youtube.com/watch?v=2SOAHQY-Fr0)
    - This chip and run shot typically covers 70-80% of shots around the green
@@ -333,5 +342,4 @@
 1. [Golf University - Shane McHenry | How to Hit a Flop Shot (video) | 2022](https://www.youtube.com/watch?v=IjpuJgaSpmY)
 
 1. [Golf University - Justin Speirani | How To Play A Flop Shot (video) | 2021](https://www.youtube.com/watch?v=ImcgCZykKRU)
-
 

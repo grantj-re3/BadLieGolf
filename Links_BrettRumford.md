@@ -5,6 +5,9 @@
 1. [facebook: DP World Tour | Short game tips at the #ItalianOpen with Brett Rumford. Get your questions in! (video) | 2018](https://www.facebook.com/DPWorldTour/videos/short-game-tips-at-the-italianopen-with-brett-rumfordget-your-questions-in/10155406735435969/)
    - Excellent content (but poor quality video)
 
+1. [3Jack Golf Blog | Brett Rumford Short Game Lessons | 2015](http://3jack.blogspot.com/2015/03/brett-rumford-short-game-lessons.html)
+   - Blog post commentary with 4 lesson videos (repeated below) and a demo
+
 1. [DP World Tour | Brett Rumford - Short Game Lesson (video) | 2014](https://www.youtube.com/watch?v=LdnHNn3Jd1k)
 1. [Golf Australia magazine TV | PGA Personal Lessons: The secret to hitting pure pitch shots with Brett Rumford (video) | 2024](https://www.youtube.com/watch?v=_e8bGHUeCds)
 1. [Golfing World | GW Instruction: Brett Rumford's Golf Tips - The Chip and Run (video) | 2012](https://www.youtube.com/watch?v=JBA8p_ErQh0)

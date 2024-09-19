@@ -11,7 +11,7 @@
    - Putting
 
 1. [BE BETTER GOLF: Brendon DeVore | FORGET "USE THE BOUNCE" . CAN'T MISS SHORT game METHOD with TOUR PRO BERRY HENSON (video) | 2024](https://www.youtube.com/watch?v=018yVNyuG44)
-￼
+
 
 ## Long game
 

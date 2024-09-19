@@ -4,6 +4,10 @@
 
 1. [facebook: DP World Tour | Short game tips at the #ItalianOpen with Brett Rumford. Get your questions in! (video) | 2018](https://www.facebook.com/DPWorldTour/videos/short-game-tips-at-the-italianopen-with-brett-rumfordget-your-questions-in/10155406735435969/)
    - Excellent content (but poor quality video)
+   - Frozen or unplayable sections:
+     * 16:00 - 16:33
+     * 17:09 - 18:35
+     * 19:04 - 19:49
 
 1. [3Jack Golf Blog | Brett Rumford Short Game Lessons | 2015](http://3jack.blogspot.com/2015/03/brett-rumford-short-game-lessons.html)
    - Blog post commentary with 4 lesson videos (repeated below) and a demo

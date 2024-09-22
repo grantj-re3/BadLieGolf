@@ -1,4 +1,4 @@
-# Golf tips - 2024
+# Golf tips - 2024 Part A
 
 
 ## Short game

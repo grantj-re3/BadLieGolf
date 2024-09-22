@@ -22,7 +22,7 @@
    - Keep arms relaxed; at address, move the hands up to the belt buckle a couple of times
    - [He has a slow smooth transition where the downswing appears to start due to gravity]
 
-1. [Golfer Geeks: Jamie | How To Chip In Golf For Beginners | 2024]((https://golfergeeks.com/how-to-chip-in-golf/)
+1. [Golfer Geeks: Jamie | How To Chip In Golf For Beginners | 2024](https://golfergeeks.com/how-to-chip-in-golf/)
    - Lots of info and videos, including various techniques
    - Radius Control | Chipping: One club vs. many clubs | Chipping with Your Wedges |
      Chipping with the bounce of your wedge | Paul Runyan-Inspired chipping technique
@@ -65,6 +65,18 @@
      * Feel like your back remains pointing at the target until the hands are almost at your waist
 
 1. [FreeOnlineGolf: Pete Styles | Golf Follow Through Drill (video) | 2015](https://www.youtube.com/watch?v=xt7dhy1bjU0)
+   - Hold two irons loosely
+   - Swing loosely and don't let them hit the ground
+   - Finish with the clubs pointing at the ground behind you (nearby)
+   - Finish on-plane
+
+
+## Balance
+
+1. [GOLF: Nick Dimengo | This drill improves golf swing balance, helping you launch drives farther | 2023](https://golf.com/instruction/drill-improves-golf-swing-balance/)
+   - As I go into my follow through, my hips are underneath me and my knees are together
+
+1. [GOLF: Joe Plecker | Drill Skills: How using a towel can help you improve your balance throughout your swing | 2020](https://golf.com/instruction/drill-skills-how-using-a-towel-can-help-you-improve-your-balance-throughout-your-swing/)
    - Drills to be done without a ball and with a towel rolled into a tube
    - If you fall forward in the downswing, put the towel-tube under your heels
      and this will train you to push back against the towel and hence stay
@@ -74,12 +86,4 @@
      balanced during your swing
    - After fixing your balance issues, practice with the towel-tube under the
      arches of your feet
-
-
-## Balance
-
-1. [GOLF: Nick Dimengo | This drill improves golf swing balance, helping you launch drives farther | 2023](https://golf.com/instruction/drill-improves-golf-swing-balance/)
-   - As I go into my follow through, my hips are underneath me and my knees are together
-
-1. [GOLF: Joe Plecker | Drill Skills: How using a towel can help you improve your balance throughout your swing | 2020](https://golf.com/instruction/drill-skills-how-using-a-towel-can-help-you-improve-your-balance-throughout-your-swing/)
 

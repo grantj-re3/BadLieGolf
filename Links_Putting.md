@@ -1,5 +1,22 @@
 # Putting
 
+## Cameron Smith
+
+1. [LIV Golf | LIV Lessons: Cam Smith - Chapter 1 | Putting Fundamentals | 2024](https://www.youtube.com/watch?v=uAy-XOULxTg)
+   - The Fundamentals: Grip, Setup, Balance & Tempo of the Stroke |
+     The Grip | Best Advice Cam’s Ever Received | The Set Up |
+     Cam’s Pre-Shot Routine | Falling in Love With the Line |
+     Finding Your Balance | Identifying the Path | Tempo Tips —
+     The Speed of the Putt 
+
+1. [LIV Golf | LIV Lessons: Cam Smith - Chapter 2 | Putting Distance Control | 2024](https://www.youtube.com/watch?v=5S8H3kynCTU) & Green Reading
+   - Controlling Your Tempo & Backswing | How to Read the Green (With
+     Your Feet) | Straddling Your Line, Feeling the Weight |
+     Reading the Green Can Be a Personal Preference | Slope & Grain |
+     Which Way Is the Grass Growing? | Mirror Drills | Step #1 — Make
+     Sure You’re Set Up Right | What Cam Does Before Every Round
+
+
 ## Aimee Cho
 
 1. [Aimee Cho | Perfect Putting Starts Here!! (video) | 2021](https://www.youtube.com/watch?v=xfz9mTZntHc&list=PL0uaI4r3925QcWIyXqdegaBR8ulbBjgfb&index=14)

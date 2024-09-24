@@ -2,19 +2,21 @@
 
 ## Cameron Smith
 
-1. [LIV Golf | LIV Lessons: Cam Smith - Chapter 1 | Putting Fundamentals | 2024](https://www.youtube.com/watch?v=uAy-XOULxTg)
+1. [LIV Golf | LIV Lessons: Cam Smith - Chapter 1 | Putting Fundamentals (video) | 2024](https://www.youtube.com/watch?v=uAy-XOULxTg)
    - The Fundamentals: Grip, Setup, Balance & Tempo of the Stroke |
      The Grip | Best Advice Cam’s Ever Received | The Set Up |
      Cam’s Pre-Shot Routine | Falling in Love With the Line |
      Finding Your Balance | Identifying the Path | Tempo Tips —
      The Speed of the Putt 
 
-1. [LIV Golf | LIV Lessons: Cam Smith - Chapter 2 | Putting Distance Control | 2024](https://www.youtube.com/watch?v=5S8H3kynCTU) & Green Reading
+1. [LIV Golf | LIV Lessons: Cam Smith - Chapter 2 | Putting Distance Control (video) | 2024](https://www.youtube.com/watch?v=5S8H3kynCTU) & Green Reading
    - Controlling Your Tempo & Backswing | How to Read the Green (With
      Your Feet) | Straddling Your Line, Feeling the Weight |
      Reading the Green Can Be a Personal Preference | Slope & Grain |
      Which Way Is the Grass Growing? | Mirror Drills | Step #1 — Make
      Sure You’re Set Up Right | What Cam Does Before Every Round
+   - [Australian Golf Digest | Cam Smith: How I Read Greens | 2024](https://www.australiangolfdigest.com.au/cam-smith-how-i-read-greens/) —
+     written version of the Green Reading portion
 
 
 ## Aimee Cho

@@ -17,6 +17,11 @@
      Sure You’re Set Up Right | What Cam Does Before Every Round
    - [Australian Golf Digest | Cam Smith: How I Read Greens | 2024](https://www.australiangolfdigest.com.au/cam-smith-how-i-read-greens/) —
      written version of the Green Reading portion
+   - He is using the Pro Path Putting Mirror from Back 2 Basics Golf
+
+1. [LIV Golf | Cam Smith & Troy Mullins Talk Putting | Invitational Chicago | 2022](https://www.youtube.com/watch?v=gqByP3DOuYk)
+   - Setup using a mirror
+   - He is using the Limited Edition Groove Putting Mirror from EyeLine Golf PRO
 
 
 ## Aimee Cho
@@ -235,6 +240,20 @@
    * Putt 5 balls into each area
    * Next day repeat for 50 feet
    * Next day repeat for 60 feet
+
+
+## Reading greens
+
+1. [Golf Science Lab: Cordie Walker with Ralph Bauer | Uncover the Ultimate Green Reading Process (stop guessing) | 2024](https://www.youtube.com/watch?v=ASw_iNo2xKw)
+   - They are using the [Tour Read Golf](https://tourreadgolf.com/) app [currently only available for iPhone]
+   - More info: [Mind Caddie: Karl Morris | Mastering the Art of Putting: Insights from PGA Tour Coach Ralph Bauer | 2024](https://www.youtube.com/watch?v=Lp2LAdwQ9i8&t=30m28s)
+
+1. [Dan Hendriksen Golf | PUTTING - AIMPOINT v PLUMB BOB | 2020](https://www.youtube.com/watch?v=1o3UFLvdWyA)
+
+1. [Meandmygolf: Piers Ward with Derek Uyeda | This Tip Was EYE OPENING...Wish I Knew This Sooner! | 2022](https://www.youtube.com/watch?v=EmKK4gTo62I)
+   - Derek Uyeda is Xander Schauffele's putting coach
+   - Green reading and aiming
+   - They are using [Putting Plates](https://puttingplates.com/process/)
 
 
 ## My putting thoughts

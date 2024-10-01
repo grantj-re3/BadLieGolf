@@ -80,6 +80,23 @@ Short game expert. Specialises in:
 1. [Dan Grieve | Rachel Drummond learns The Three Releases | A lesson with Dan | Episode 1 | 2024](https://www.youtube.com/watch?v=CfSoslFUdU0)
 
 
+1. [Instagram: dangrievegolf](https://www.instagram.com/dangrievegolf/)
+   - [SOFT LANDING SHOT: Improving consistency](https://www.instagram.com/reel/C2cwfKPN5E7/)
+     * Release 2
+     * Lighten the grip pressure
+     * Folding the right arm in the backswing
+     * Smoothing out the tempo
+   - [BUNKERS: Key set-up points](https://www.instagram.com/dangrievegolf/reel/DAdhemXN4a2/)
+     * Stood further away with a wider stance
+     * Opened the face more
+     * Sat down into the heels
+     * Lowered the hands at address
+   - [BUNKER SET-UP: Building solid fundamentals](https://www.instagram.com/dangrievegolf/reel/C-tD4QCt8FF/)
+     * wider stance
+     * flare the lead foot out
+     * place approximately 70% [of your] weight on the lead side
+
+
 ## Other channels featuring Dan Grieve
 
 1. [Rick Shiels Golf | This Golf Lesson Changed my LIFE! | 2023](https://www.youtube.com/watch?v=4yLYYz_5Z8c)
@@ -135,12 +152,20 @@ Short game expert. Specialises in:
 
 1. [GOLF LIFE: Jimmy Bullard | Can Dan Grieve TRANSFORM Jimmy Bullard’s Short Game?! | Road To The Open EP2 | 2024](https://www.youtube.com/watch?v=krnVlrGhC4A)
 
-1. [Golf Monthly | HOW TO SPIN YOUR CHIP SHOTS... DAN GRIEVE'S TOP TIPS! | 2024](https://www.youtube.com/watch?v=bS_JWkq6hlY)
-   - Release 1 & 2
-
-1. Jess Ratcliffe Golf
-   - [Golf Monthly | DAN GRIEVE ON HOW TO ESCAPE BAD LIES! Lesson With 8-Handicap Jess Ratcliffe | 2024](https://www.youtube.com/watch?v=-9BFSfcwPMY)
+1. Golf Monthly
+   - [Beginners Guide To Chipping: Dan Grieve shares some expert advice and drills on the chipping basics | 2022](https://www.golfmonthly.com/videos/short-game-tips/beginners-guide-to-chipping)
+   - [HOW TO SPIN YOUR CHIP SHOTS... DAN GRIEVE'S TOP TIPS! | 2024](https://www.youtube.com/watch?v=bS_JWkq6hlY)
+     * Release 1 & 2
+   - [LIVE BUNKER LESSON WITH DAN GRIEVE! 25 Handicap Golfer Fixed | 2024](https://www.youtube.com/watch?v=ntQ-YnlmyC4)
+   - [DAN GRIEVE ON HOW TO ESCAPE BAD LIES! Lesson With 8-Handicap Jess Ratcliffe | 2024](https://www.youtube.com/watch?v=-9BFSfcwPMY)
+     * Jess Ratcliffe
      * Tricky Shot Out The Rough
      * [Excerpt from above](https://www.youtube.com/watch?v=-L7Rqq_heaI)
+
+1. Jess Ratcliffe Golf
    - [How I'm Learning Dan Grieve's Release 1 & 2 (From Dan's Book) | 2024](https://www.youtube.com/watch?v=ePrSvB21wdU)
+
+1. Golf Pride Grips
+   - [Short Game Series with Dan Grieve – Using Hand Placement on Grip to Control Trajectory | 2023](https://www.youtube.com/watch?v=M-f8ulaQqB8)
+   - [Short Game Series with Dan Grieve – Mastering Bunker Play with ALIGN | 2023](https://www.youtube.com/watch?v=T3LaSEjh410)
 

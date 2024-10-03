@@ -25,6 +25,20 @@
    - Poor concept of impact [concept: club head travels *forwards* through the sand to carry the parcel
      of sand onto the green; not the concept of hitting down into the sand]
 
+1. [Golf Tips | Golf Pro Nick Faldo helps you get out of sand bunkers | 2010](https://www.youtube.com/watch?v=fiFDnHmCG2Y)
+   - How to find your point of contact with the sand (i.e. impact point)
+   - On a flat portion of a practice bunker, draw a line in the sand
+   - Put your left heel on the line
+   - Stand slightly open
+   - Club head ahead of the line
+   - Address with the butt of the club pointing at your stomach
+   - At the top of the backswing (with arms nearly horizontal) shaft points towards the sky
+   - Synchronise the chest and arms to land the clubhead exactly on the line
+     * If the arms are too fast you will hit the sand before the line
+     * If the chest is too fast you will hit the sand after the line
+   - It may help if you pause at the top (during the drill)
+   - Repeat for uphill/downhill bunker lie
+
 1. [Mark Crossfield | I Cheat from the bunker you should too (golf swing tips) (video) | 2023](https://www.youtube.com/watch?v=mN7AH1bJ0WM)
    - Speed
      * Arm swing

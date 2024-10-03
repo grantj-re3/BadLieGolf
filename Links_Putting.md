@@ -256,6 +256,23 @@
    - They are using [Putting Plates](https://puttingplates.com/process/)
 
 
+## Putting mirror
+
+1. [Back 2 Basics Golf  | Improve Your Putting with the Pro Path Putting Mirror: Step-by-Step Walkthrough by Richard Woodhouse | 2024](https://www.youtube.com/watch?v=kL6bg68Xebs)
+   - 5-6 feet from the hole
+   - Choose a straight putt; adjust as required
+   - Shoulder line | Clubface alignment | Path to face relationship |
+     Eye line | Stroke length | Centered contact
+1. [Mister One Putt: John | Perfect Your Putting: 9 Ways with a Putting Mirror | 2024](https://www.youtube.com/watch?v=2wNBHvKH6rs)
+   - Alignment and Aiming Aid | Putter Face at Set-Up | Helps Keep
+     Putter Face Square During the Stroke | Check Eye Position |
+     Check Shoulder Set-Up Position | Check Hand Position at Set-Up |
+     Stroke Length Trainer | Gate Drill Stroke Accuracy Training
+1. [Golf: Zephyr Melton | Eye alignment is the key to holing more putts. Here’s how to get better at it | 2022](https://golf.com/instruction/eye-alignment-golftec/)
+1. [The Left Rough | Improve your stroke: How to use a putting mirror](https://theleftrough.com/how-to-use-a-putting-mirror/)
+   - Eye position | Shoulder alignment | Practice
+
+
 ## My putting thoughts
 
 I confess that I putt with the [claw grip](Links_PuttingClawSaw.md).

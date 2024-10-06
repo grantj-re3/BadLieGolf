@@ -87,3 +87,11 @@
    - After fixing your balance issues, practice with the towel-tube under the
      arches of your feet
 
+
+## Swaying / lower body lateral movement
+
+1. [Early Golfer: Vince Richmond | How To Stop Swaying In Your Golf Swing | 2022](https://earlygolfer.com/swaying-in-golf-swing/)
+1. [Big Tee’s Golf: Tyler | Steady Your Shot: Expert Tips on How to Stop Swaying in The Golf Swing | 2024](https://www.bigteesgolfworld.com/how-to-stop-swaying-in-the-golf-swing/)
+1. [WhyGolf: WhysGuy | How to Stop Swaying in 3 Steps | 2022](https://whygolf.com/blogs/whysguyscorner/how-to-stop-swaying-in-golf-swing)
+1. [WomensGolf.com: Megan Johnston | Here’s How to Stop Swaying in Your Backswing | 2024](https://womensgolf.com/stop-swaying-in-your-backswing)
+

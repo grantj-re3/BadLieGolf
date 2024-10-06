@@ -39,18 +39,6 @@
    - It may help if you pause at the top (during the drill)
    - Repeat for uphill/downhill bunker lie
 
-1. [Mark Crossfield | I Cheat from the bunker you should too (golf swing tips) (video) | 2023](https://www.youtube.com/watch?v=mN7AH1bJ0WM)
-   - Speed
-     * Arm swing
-     * Shoulder to shoulder swing
-     * Plenty of body rotation
-   - Open the club face and maintain loft during the swing
-   - At the end of the swing, club face should point towards your own face
-   - For a longer shot, use a longer wedge
-   - Aim for the fat part of the green when necessary
-   - Check what sort of sand you are playing from
-   - Exaggerate the body rotation
-
 1. [Steve Johnston Golf | This Bunker Shot Technique is SO EASY You'll be Shocked (video) | 2024](https://www.youtube.com/watch?v=Vw7kMe9Cu3Y)
    - Hard sand [I like this technique]
      * Strike the sand with the tow of the club face (hence less resistance by the sand)
@@ -62,6 +50,9 @@
      * Lower shaft (handle is low) and shallow swing plane (around the body)
      * Left shoulder is high at address
      * Wider stance
+
+1. [Golf: Zephyr Melton | 5 easy steps to get up-and-down from the bunker like a pro | 2021](https://golf.com/instruction/bunker-shots/how-to-hit-bunker-shot-five-tips/)
+   - Club selection | Evaluate sand | Set clubface | Adjust setup | Steepen swing
 
 1. [Dan Grieve | Many of his videos include bunker coaching](Links_DanGrieve.md)
 
@@ -97,6 +88,18 @@
      address the ball with the left arm slightly bent (for a right handed player)... then ensure you straighten it during your backswing
      (and keep it straight during your downswing).
    - 32m08s How to hit a bunker shot from a plugged lie? Close the club face so the leading edge of the club does dig into the sand under the ball.
+
+1. [Mark Crossfield | I Cheat from the bunker you should too (golf swing tips) (video) | 2023](https://www.youtube.com/watch?v=mN7AH1bJ0WM)
+   - Speed
+     * Arm swing
+     * Shoulder to shoulder swing
+     * Plenty of body rotation
+   - Open the club face and maintain loft during the swing
+   - At the end of the swing, club face should point towards your own face
+   - For a longer shot, use a longer wedge
+   - Aim for the fat part of the green when necessary
+   - Check what sort of sand you are playing from
+   - Exaggerate the body rotation
 
 
 ## Drills

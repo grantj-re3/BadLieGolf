@@ -242,6 +242,11 @@
    * Next day repeat for 60 feet
 
 
+## Wearing glasses
+
+1. [Info about wearing glasses & golf/putting](Links_VisionCorrectionAndGolf.md)
+
+
 ## Reading greens
 
 1. [Golf Science Lab: Cordie Walker with Ralph Bauer | Uncover the Ultimate Green Reading Process (stop guessing) | 2024](https://www.youtube.com/watch?v=ASw_iNo2xKw)

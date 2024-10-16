@@ -1,5 +1,64 @@
 # Putting
 
+## [Porzak Golf](https://www.youtube.com/playlist?list=PLmQeGFuasi12FPRTqeXq48psdxpB-I-HJ)
+
+1. [Adam Porzak | The LAST Putting Lesson You Will EVER Need || 7 TIPS (video) | 2022](https://www.youtube.com/watch?v=oUBLtw6Ft2I)
+   1. Hips above ankles
+   2. Arms in front of body
+      - Rotate-tuck-tilt setup (without a club)
+      - Putter is an extension of the forearms
+      - Tuck: elbows about half way between sternum and the seam on side of shirt
+      - Tilt: Step forward over the balls of feet to tilt until putter hits the ground
+   3. Eyes above the ball
+   4. Hands under shoulders
+   5. Shoulders must be square (i.e. parallel to ball-to-target line) even if stance is open
+   6. Ball position 1 inch ahead of centre
+   7. Small deloft by doing a forward shaft lean (by 1 inch at the top of the handle)
+      - Hence butt of club is above the ball
+      - No hinging of the wrist
+   8. He doesn't mind:
+      - open stance
+      - various stance widths (but prefers distance between outside of feet to be the same as outside of shoulders)
+
+1. [Adam Porzak | How To Putt The Ball Straight EVERY TIME || 5 Putting TIPS (video) | 2023](https://www.youtube.com/watch?v=aYRbMLQVdZo)
+   - Session goals: Establish ball position | Build a putting routine | Shoulder alignment
+   - If ball is left of the ideal position, you are likely to putt left
+   - If the shoulders are open, you are likely to putt left (for a right handed player)
+   - Setup routine: Feet together | Ball position on lead big toe | Spread feet with even weight distribution | Handle slightly pressed
+   - Don't look for a stroke fault until after you have looked for a setup fault
+
+1. [Adam Porzak | If You Need To Improve Your Putting, WATCH THIS! (video) | 2023](https://www.youtube.com/watch?v=5FIVqAwRLjQ)
+   - Content: Session goals | SPNMW | Shoulder Rock | Grip Pressure |
+     Core Putting | Practice Routine | Lead Wrist | The Finish |
+     Overview | Master Class
+   - [Straight Putt No Matter What (SPNMW)](https://porzakgolf.myshopify.com/collections/training-aids-1/products/copy-of-straight-putt-no-matter-what)
+   - Putting checkpoints: Read greens | Alignment | Roll on line
+   - How to stay connected: Core tight | Elbows in | Rock shoulders
+   - Shoulder rock drill: Putt with an alignment stick (or club) underneath your arms (and above your elbows)
+   - Grip Pressure: 5/10
+   - Practice Routine: Pick random putts | Focus on path and alignment |
+     10-15 minutes with SPNMW | Simulate real putts
+   - Lead Wrist: The putter shaft should point to the left armpit at the point of impact (not at the belly button)
+   - The Finish: Short follow through (see 3:1 recommendation below) | Hold the finish
+
+1. [Adam Porzak | Putting Fundamentals for Beginners and Beyond (video) | 2023](https://www.youtube.com/watch?v=-FJfVmCtEoc)
+   - Excerpts from the 3 videos above
+
+1. [Mike Pitt | BEST Putting Drills that will LOWER Your Score || 3 Drills (video) | 2022](https://www.youtube.com/watch?v=etqmi31cpEY)
+   - Drill 1: Around the world (after finding the straight uphill putt)
+   - Drill 2: Hit long putts (over 15 feet / 5m) to within 3 feet (1m) of the hole
+     * For long putts, backswing length to follow through length should be about 3:1 (and it feels like it has been hit softly)
+   - Drill 3: Hit 3 consecutive long putts to 3 different holes to within 1 yard (1m). [You can use a larger number than 3.]
+
+1. [Adam Porzak with mentor Todd Sones | EVERYTHING You Need To Know To Become A GREAT Putter (video) | 2024](https://www.youtube.com/watch?v=eSMSss0w_rw)
+   - Content: Introduction | Rotate,Tuck,Tilt | Connection Points |
+     Proper Grip | Bend At The Hips | Eye Line | Putting Arc |
+     Arm Line | Shoulder Alignment | Leg Alignment | Forward Press |
+     Rhythm  | Putting In The Zone | Master Class
+   - **Think during the set up** so you don't have to think during the stroke
+   - Book: "In The Zone: Learn to Putt Like a Champion" by Todd Sones, Matthew Rudy, 2019
+
+
 ## Cameron Smith
 
 1. [LIV Golf | LIV Lessons: Cam Smith - Chapter 1 | Putting Fundamentals (video) | 2024](https://www.youtube.com/watch?v=uAy-XOULxTg)
@@ -19,9 +78,16 @@
      written version of the Green Reading portion
    - He is using the Pro Path Putting Mirror from Back 2 Basics Golf
 
-1. [LIV Golf | Cam Smith & Troy Mullins Talk Putting | Invitational Chicago | 2022](https://www.youtube.com/watch?v=gqByP3DOuYk)
+1. [LIV Golf | Cam Smith & Troy Mullins Talk Putting | Invitational Chicago (video) | 2022](https://www.youtube.com/watch?v=gqByP3DOuYk)
    - Setup using a mirror
    - He is using the Limited Edition Groove Putting Mirror from EyeLine Golf PRO
+
+
+## [Michele Low Golf](https://www.youtube.com/playlist?list=PLiHKcuFjQZTwRs99jwEqcMgFynXF3nxH3)
+
+1. [Putting Basics (video) | 2020](https://www.youtube.com/watch?v=wtcK70NHyyA)
+1. [No More 3 Putts - Distance Control (video) | 2021](https://www.youtube.com/watch?v=hZEZ-QqpRU8)
+1. [Art of Green Reading (video) | 2021](https://www.youtube.com/watch?v=fHzEvTjTVWI)
 
 
 ## Aimee Cho
@@ -56,13 +122,13 @@
   [Aussie Golf Pros (Glen Haynes) | Myth No.4 - Accelerate Through Putts (video) | 2021](https://www.youtube.com/watch?v=wSWC3_xv8Vc)
 * Reading greens: [Aussie Golf Pros (Glen Haynes) | Complete Guide To Green Reading (video) | 2020](https://www.youtube.com/watch?v=06bT7LGEh90)
 * Reading greens: [Aussie Golf Pros (Glen Haynes) | Putting - Green Reading (Why You Miss On The Low Side - Amateur Miss) (video) | 2020](https://www.youtube.com/watch?v=W9C-8H2dIA4)
-* Distance control drill/game: [Glen Haynes | Putting Game for Perfect Pace | 2020](https://www.youtube.com/watch?v=TrKgEFB2HEI)
+* Distance control drill/game: [Glen Haynes | Putting Game for Perfect Pace (video) | 2020](https://www.youtube.com/watch?v=TrKgEFB2HEI)
 * Short putt drill/game: [The Best Putting Drill - Clockface (video) | 2019](https://www.youtube.com/watch?v=VGMUaBdZE84)
 
 
 ## Golf Sidekick
 
-[Golf Sidekick & Michele Low | How I Changed My Putting Stroke Grip - My First Ever Putting Lesson Michele Low | 2020](https://www.youtube.com/watch?v=CoVrDVPM0wM)
+[Golf Sidekick & Michele Low | How I Changed My Putting Stroke Grip - My First Ever Putting Lesson Michele Low (video) | 2020](https://www.youtube.com/watch?v=CoVrDVPM0wM)
 
 - Have a correct and consistent setup:
   * Grip more along the *life line* which promotes:
@@ -99,7 +165,7 @@
 
 ## The Golf Sensei - Ed Schwent
 
-1. [This Short Game Clinic Will Change Your Life | 2023](https://www.youtube.com/watch?v=8GFfzVj8_H4)
+1. [This Short Game Clinic Will Change Your Life (video) | 2023](https://www.youtube.com/watch?v=8GFfzVj8_H4)
    - This is a very long video, 1h38m, so I've shown 4 blocks of time in the notes below.
    - *0-25m*
    - **Practice 15 yard & 30 yard shots**
@@ -240,6 +306,12 @@
    * Putt 5 balls into each area
    * Next day repeat for 50 feet
    * Next day repeat for 60 feet
+
+
+## Jude Hobbs Golf
+
+1. [HOW YOUR ELBOWS ARE AFFECTING YOUR PUTTING STROKE (video) | 2022](https://www.youtube.com/watch?v=D9E_SMJwUK8)
+1. [How To STOP Your WOBBLY BACKSTROKE (video) | 2023](https://www.youtube.com/watch?v=saNPGLiMgAM)
 
 
 ## Wearing glasses

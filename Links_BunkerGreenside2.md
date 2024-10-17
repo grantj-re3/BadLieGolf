@@ -54,7 +54,8 @@
 1. [Golf: Zephyr Melton | 5 easy steps to get up-and-down from the bunker like a pro | 2021](https://golf.com/instruction/bunker-shots/how-to-hit-bunker-shot-five-tips/)
    - Club selection | Evaluate sand | Set clubface | Adjust setup | Steepen swing
 
-1. [Dan Grieve | Many of his videos include bunker coaching](Links_DanGrieve.md)
+1. [Dan Grieve | Many of his videos include bunker shots](Links_DanGrieve.md)
+1. [Porzak Golf | Several videos are about bunker shots](Links_PorzakGolf.md)
 
 1. [Meandmygolf | JASON DAY - HOW TO BECOME THE ULTIMATE BUNKER PLAYER | 2019](https://www.youtube.com/watch?v=Om7e1l0rDUA&t=4m18s)
    - Wide stance

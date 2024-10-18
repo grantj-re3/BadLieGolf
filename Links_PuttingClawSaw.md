@@ -26,7 +26,8 @@
    - Grip pressure | More upright shaft | Smooth stroke | Hold your clubface after you've hit the putt
 
 1. [Jude Hobbs Golf | Should You Use THE CLAW GRIP When PUTTING (video) | 2023](https://www.youtube.com/watch?v=19DPDk9ii0Q)
-   - What is the Claw Grip? | Advantages & disadvantages | Reverse Claw Grip
+   - Advantages: Takes right hand/wrist dominance out of the stroke | Allows tempo to be smooth
+   - Disadvantage: Many people find it more difficult to stroke at the correct speed for 20, 30, 40, 50 feet
    - Don't allow the right arm to "flare out"; keep it connected
 
 1. [Glen Haynes | How To Putt With The Claw Grip (video) | 2021](https://www.youtube.com/watch?v=It1yp5cEoK8)

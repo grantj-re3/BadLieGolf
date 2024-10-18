@@ -2,8 +2,6 @@
 
 ## Putting
 
-1. [Porzak Golf | Putting Tips and Lessons (playlist) | 2020-2024](https://www.youtube.com/playlist?list=PLmQeGFuasi12FPRTqeXq48psdxpB-I-HJ)
-
 1. [Adam Porzak | The LAST Putting Lesson You Will EVER Need || 7 TIPS (video) | 2022](https://www.youtube.com/watch?v=oUBLtw6Ft2I)
    1. Hips above ankles
    2. Arms in front of body
@@ -60,6 +58,8 @@
    - **Think during the set up** so you don't have to think during the stroke
    - Book: "In The Zone: Learn to Putt Like a Champion" by Todd Sones, Matthew Rudy, 2019
 
+1. [Porzak Golf | Putting Tips and Lessons (playlist) | 2020-2024](https://www.youtube.com/playlist?list=PLmQeGFuasi12FPRTqeXq48psdxpB-I-HJ)
+
 
 ## Greenside bunker shots
 
@@ -84,4 +84,16 @@
    - Aim point is towards your target (even when the club face is open)
 1. [Adam Porzak | The Most Effective Bunker Lesson On Youtube! (video) | 2023](https://www.youtube.com/watch?v=tGZoNn3whFY)
 1. [Adam Porzak | NEVER Fear Bunkers Ever Again! (video) | 2024](https://www.youtube.com/watch?v=DMrVwKRaNAg)
+
+
+## Chipping and pitching
+
+1. [Adam Porzak | The EASIEST Shot To Hit In Golf (video) | 2024](https://www.youtube.com/watch?v=tHAUQkbBzoU)
+1. [Adam Porzak | How To Hit The Bump And Run Chip Shot || 5 Easy Tips (video) | 2023](https://www.youtube.com/watch?v=OlQMjOnFIRk)
+1. [Adam Porzak | Top 5 Tips On EFFORTLESS Chipping (video) | 2023](https://www.youtube.com/watch?v=oFxxmXMNA3Q)
+1. [Adam Porzak with mentor Todd Sones | This SHORT GAME Lesson Will Change Your Game FOREVER! || Part 1 (video) | 2023](https://www.youtube.com/watch?v=P_V_Jr29tlc)
+1. [Adam Porzak with mentor Todd Sones | Chipping vs Pitching: What's the Difference? (video) | 2023](https://www.youtube.com/watch?v=kSHXGUu2eKc)
+
+1. [Short Game Lessons (playlist) | 2020-2024](https://www.youtube.com/playlist?list=PLmQeGFuasi13aFOqLu7Y9D--D-nQ_DRPP)
+1. [Wedge Shot Lessons (playlist) | 2020-2024](https://www.youtube.com/playlist?list=PLmQeGFuasi10vBDBryTJu6Q-6v1mwClLa)
 

@@ -260,9 +260,9 @@
 1. [How To STOP Your WOBBLY BACKSTROKE (video) | 2023](https://www.youtube.com/watch?v=saNPGLiMgAM)
 
 
-## Wearing glasses
+## Claw/Saw/Pencil Grip
 
-1. [Info about wearing glasses & golf/putting](Links_VisionCorrectionAndGolf.md)
+1. [Here](Links_PuttingClawSaw.md)
 
 
 ## Reading greens
@@ -306,6 +306,11 @@
    - More info: [Mind Caddie: Karl Morris | Mastering the Art of Putting: Insights from PGA Tour Coach Ralph Bauer (video) | 2024](https://www.youtube.com/watch?v=Lp2LAdwQ9i8&t=30m28s)
 
 1. [Dan Hendriksen Golf | PUTTING - AIMPOINT v PLUMB BOB (video) | 2020](https://www.youtube.com/watch?v=1o3UFLvdWyA)
+
+
+## Wearing glasses
+
+1. [Info about wearing glasses & golf/putting](Links_VisionCorrectionAndGolf.md)
 
 
 ## Putting mirror

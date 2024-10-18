@@ -31,6 +31,11 @@ my distance vision in normal (non-golf) situations improved, however
 - Consider using contact lenses for golf (but some people say the lenses can dry out
   before they complete 18 holes)
 - Consider laser eye surgery
+- Consider a face-on putting technique, i.e. side saddle
+  * [Julian Mellor | SIDE SADDLE PUTTING - Its so SIMPLE and EFFECTIVE for SENIOR GOLFERS (video) | 2022](https://www.youtube.com/watch?v=R-U_dT36NmE)
+  * [Golf Tips Magazine: Dr. Gerald Walford | Is It Time To Try Side-Saddle Putting? | 2019](https://golftipsmag.com/instruction/putting/is-it-time-to-try-side-saddle-putting/)
+  * [The Hackers Paradise: Josh Babbitt | Face the Hole Golf: Side Saddle Putting | 2023](https://www.thehackersparadise.com/face-the-hole-golf-side-saddle-putting/)
+  * [PR Dionne Inc | Mastering the Optimal Basic Setup for the GP Putter | 2021](https://face-on-putting.com/basic-setup/)
 
 
 ## Optical distortion and golf

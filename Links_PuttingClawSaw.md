@@ -1,6 +1,5 @@
 # Claw (Saw) Putting Grip - Links
 
-
 ## Coaching
 
 1. [Julian Mellor | The SAW GRIP stopped my YIPS after 30 years (video) | 2021](https://m.youtube.com/watch?v=3fHpaPm8P9M)
@@ -18,6 +17,17 @@
      * Right forearm movement is towards the target (gives stability).
    - I think the last 2 putts (starting at 9m08s) were also holed-out
      (but don't look like it because the hole is full of balls).
+   - Variations:
+     * [DIFFERENT variations of the SAW GRIP for PUTTING | 2021](https://www.youtube.com/watch?v=mR00v10EoDk)
+   - Same story, different golfer:
+     * [Rob McGarr | I had putting yips for a year. This cured them instantly | 2024](https://www.youtube.com/watch?v=bMWlx7wOSLk)
+
+1. [Julian Mellor | GOLF TIPS: Part 5 of 5 | 2022](https://www.youtube.com/watch?v=RANxKFq6e8M)
+   - Grip pressure | More upright shaft | Smooth stroke | Hold your clubface after you've hit the putt
+
+1. [Jude Hobbs Golf | Should You Use THE CLAW GRIP When PUTTING (video) | 2023](https://www.youtube.com/watch?v=19DPDk9ii0Q)
+   - What is the Claw Grip? | Advantages & disadvantages | Reverse Claw Grip
+   - Don't allow the right arm to "flare out"; keep it connected
 
 1. [Glen Haynes | How To Putt With The Claw Grip (video) | 2021](https://www.youtube.com/watch?v=It1yp5cEoK8)
 
@@ -70,7 +80,7 @@
 1. [Michael Breed | Claw Grip Putting - The Golf Fix (video) | 2015](https://www.youtube.com/watch?v=BcMkOrB4g2M)
 
 
-## Discussion by pro-tour players
+## Discussion/demo by pro-tour players
 
 1. [RollYourRock | Mark O'Mera - Saw Grip for Putting (video) |2008](https://www.youtube.com/watch?v=j0Qq49sA3FU)
 
@@ -79,4 +89,9 @@
 1. [Golfing World | Tommy Fleetwood Explains His Claw Putting Grip - Tommy Fleetwood's Putting Tips (video) | 2017](https://www.youtube.com/watch?v=pfLo0PhbpkA)
 
 1. [RollYourRock | Chris Dimarco Putting with the Claw Grip (video) |2008](https://www.youtube.com/watch?v=qQmwEJuAWGA)
+
+1. Collin Morikawa
+   - [Golf: Nick Piastowski | Collin Morikawa was struggling to make putts two weeks ago. Then he found the saw | 2021](https://golf.com/news/collin-morikawa-struggled-putt-two-weeks-ago-found-saw/)
+   - [RollYourRock | Collin Morikawa Putting Drill (Pre-Round) w/ Expert Analysis (4K) | 2022](https://www.youtube.com/watch?v=aFtJwSwud5I)
+   - [RollYourRock | Collin Morikawa - Full Putting Routine / Saw Grip (2021) | 2021](https://www.youtube.com/watch?v=cHMe9ZQOmFU)
 

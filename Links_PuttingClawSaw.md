@@ -18,11 +18,11 @@
    - I think the last 2 putts (starting at 9m08s) were also holed-out
      (but don't look like it because the hole is full of balls).
    - Variations:
-     * [DIFFERENT variations of the SAW GRIP for PUTTING | 2021](https://www.youtube.com/watch?v=mR00v10EoDk)
+     * [DIFFERENT variations of the SAW GRIP for PUTTING (video) | 2021](https://www.youtube.com/watch?v=mR00v10EoDk)
    - Same story, different golfer:
-     * [Rob McGarr | I had putting yips for a year. This cured them instantly | 2024](https://www.youtube.com/watch?v=bMWlx7wOSLk)
+     * [Rob McGarr | I had putting yips for a year. This cured them instantly (video) | 2024](https://www.youtube.com/watch?v=bMWlx7wOSLk)
 
-1. [Julian Mellor | GOLF TIPS: Part 5 of 5 | 2022](https://www.youtube.com/watch?v=RANxKFq6e8M)
+1. [Julian Mellor | GOLF TIPS: Part 5 of 5 (video) | 2022](https://www.youtube.com/watch?v=RANxKFq6e8M)
    - Grip pressure | More upright shaft | Smooth stroke | Hold your clubface after you've hit the putt
 
 1. [Jude Hobbs Golf | Should You Use THE CLAW GRIP When PUTTING (video) | 2023](https://www.youtube.com/watch?v=19DPDk9ii0Q)
@@ -92,6 +92,6 @@
 
 1. Collin Morikawa
    - [Golf: Nick Piastowski | Collin Morikawa was struggling to make putts two weeks ago. Then he found the saw | 2021](https://golf.com/news/collin-morikawa-struggled-putt-two-weeks-ago-found-saw/)
-   - [RollYourRock | Collin Morikawa Putting Drill (Pre-Round) w/ Expert Analysis (4K) | 2022](https://www.youtube.com/watch?v=aFtJwSwud5I)
-   - [RollYourRock | Collin Morikawa - Full Putting Routine / Saw Grip (2021) | 2021](https://www.youtube.com/watch?v=cHMe9ZQOmFU)
+   - [RollYourRock | Collin Morikawa Putting Drill (Pre-Round) w/ Expert Analysis (4K) (video) | 2022](https://www.youtube.com/watch?v=aFtJwSwud5I)
+   - [RollYourRock | Collin Morikawa - Full Putting Routine / Saw Grip (2021) (video) | 2021](https://www.youtube.com/watch?v=cHMe9ZQOmFU)
 

@@ -42,19 +42,8 @@
 
 ## Long game
 
-1. [Jonathan Kim-Moss Golf | Releasing the Golf Club (video) | 2023](https://www.youtube.com/watch?v=MVR6WCbOR0M)
-   - Check points
-   - [8m43] Drill
-     * Full backswing
-     * Hit the ball hard
-     * Try to stop the arms and hands as early and quickly as possible
-
-1. [Jonathan Kim-Moss Golf | PERFECT FOLLOW THROUGH WITH 3 MOVES (video) | 2021](https://www.youtube.com/watch?v=-WMnaMuLw0Y)
-   - Pressure/weight shift
-   - Extension
-   - Rotation
-   - Drill to get to the "arms horizontal" position
-   - [Driver Follow Through [Extension] Drill](https://www.youtube.com/shorts/4blOaiiETY4)
+1. [Jonathan Kim-Moss Golf](Links_JonathanKimMoss.md)
+   - Releasing the Golf Club | PERFECT FOLLOW THROUGH WITH 3 MOVES | ...and others
 
 1. [JChownGolf: Jonathan Chown | He's 76 Years Old & Hits Driver 270+ Yards. Heres How (video) | 2024](https://www.youtube.com/watch?v=kLk7mkLbEtc)
 

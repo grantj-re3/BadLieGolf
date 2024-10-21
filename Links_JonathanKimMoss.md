@@ -20,5 +20,14 @@
 
 1. [Wrist Action Unleashed: Mastering the Perfect Follow Through in Golf (video) | 2023](https://www.youtube.com/watch?v=za4T2rhDupA)
 
+1. [HOW TO KEEP YOUR LEFT ARM STRAIGHT (WHAT REALLY NEEDS TO HAPPEN) (video) | 2021](https://www.youtube.com/watch?v=65v-CLglPV4)
+   * Great lesson. I need to work on this!
+
+1. IN to OUT SERIES
+   - [PART 1: SET UP POSITION (video) | 2022](https://www.youtube.com/watch?v=6K0aZn1ngZY)
+   - [PART 2: BACKSWING (video) | 2022](https://www.youtube.com/watch?v=FyKRRBvgtQY)
+     * Great lesson. I need to work on this!
+   - [Part 3: DOWNSWING (video) | 2022](https://www.youtube.com/watch?v=QXHKCNzkJh8)
+
 1. [BEGINNER SERIES (playlist) | 2020](https://www.youtube.com/playlist?list=PL9LXECPA3NlXMPgah2bAs8R9nopsBa6vg)
 

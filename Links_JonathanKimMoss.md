@@ -23,6 +23,8 @@
 1. [HOW TO KEEP YOUR LEFT ARM STRAIGHT (WHAT REALLY NEEDS TO HAPPEN) (video) | 2021](https://www.youtube.com/watch?v=65v-CLglPV4)
    * Great lesson. I need to work on this!
 
+1. [ARM SPEED GOLF SWING (video) | 2024](https://www.youtube.com/watch?v=FmCt2R8rxHw)
+
 1. IN to OUT SERIES
    - [PART 1: SET UP POSITION (video) | 2022](https://www.youtube.com/watch?v=6K0aZn1ngZY)
    - [PART 2: BACKSWING (video) | 2022](https://www.youtube.com/watch?v=FyKRRBvgtQY)

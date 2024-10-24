@@ -28,7 +28,7 @@
      Allows the arms to move higher while staying straight
    - *Punch drill (for back swing)*: Extend the lead arm down the line
      of your toes | Chest turns | Lead shoulder moves under the chin |
-     Bring the trail hand to join the lean hand
+     Bring the trail hand to join the lead hand
    - *Glove under lead-arm drill (for follow through)*:
      Place a glove under your lead armpit | Keep the top of the bicep
      against the side of your chest (not your elbow against your rib cage) |
@@ -45,10 +45,10 @@
 
 1. [PART 1: SET UP POSITION (video) | 2022](https://www.youtube.com/watch?v=6K0aZn1ngZY)
 
-1. :star: [PART 2: BACKSWING (video) | 2022](https://www.youtube.com/watch?v=FyKRRBvgtQY)
+1. :thumbsup: [PART 2: BACKSWING (video) | 2022](https://www.youtube.com/watch?v=FyKRRBvgtQY)
    - *Rotation during the backswing*:
      * The lead knee must bend more and the trail knee must straighten more
-     * The hips move slightly towards the target
+     * It *feels like* the pelvis moves slightly towards the target
      * Rotating the knees more allows the hips to rotate more
        which allows the chest to rotate more
    - *Hand path/depth during the backswing*: By the time the
@@ -59,7 +59,7 @@
      lead wrist during the backswing. This rolls the clubface
      open and will likely make the downswing steep. A neutral
      or bowed/flexed wrist at the top will help the clubhead
-     to stay behind the hands.
+     to stay behind (i.e. deeper than) the hands.
 
 1. [Part 3: DOWNSWING (video) | 2022](https://www.youtube.com/watch?v=QXHKCNzkJh8)
 

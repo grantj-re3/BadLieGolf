@@ -34,7 +34,7 @@
 
 1. [BEGINNER SERIES (playlist) | 2020](https://www.youtube.com/playlist?list=PL9LXECPA3NlXMPgah2bAs8R9nopsBa6vg)
 
-## DRIVER SERIES 
+## Driver Series
 
 He is often comparing the driver swing to a 7-iron swing, so we can
 learn something about iron shots here too.
@@ -42,7 +42,7 @@ learn something about iron shots here too.
 1. [PART 1: Set Up Position | 2022](https://www.youtube.com/watch?v=zdp-flHvhdY)
    - Driver: The ball is *not* on the ground | We do *not*
      want to hit down | The driver is much longer
-   - *Iron setup*: Ball position slightly to the left of cenre |
+   - *Iron setup*: Ball position slightly to the left of centre |
      Head is mostly behind the ball | Weight is fairly even
      (about 55% on the lead side) | We hit down on the ball |
      Radius (low point) is in front of the ball
@@ -55,30 +55,30 @@ learn something about iron shots here too.
      Flat lower back and slightly rounded upper back |
      Shoulders *not* pinched together
    - *Driver setup (side view)*: Posture is the same as 7-iron |
-     (1) Hands are a little outside of the shoulder line |
+     (1) Hands are a little outside of the shoulder line (not directly below) |
      (2a) Shoulders must remain parallel to your feet line (even
-     though the ball is positions further forward) | (2b) Forearms
+     though the ball is positioned further forward) | (2b) Forearms
      must also remain in alignment
 
 1. [PART 2: Backswing | 2022](https://www.youtube.com/watch?v=2PP5vA1XTOE)
-   - Content: Rotation | Extension | Sway
    - *Chest rotation*: Allows hands to move higher | Allows hands to
      move further behind your body (i.e. depth) | Helps prevent swinging
      "over the top" (resulting in steepness and an out-to-in path) |
-     See *HOW TO MAKE ROTATION EASIER IN THE GOLF SWING!* link above
+     See *HOW TO MAKE ROTATION EASIER IN THE GOLF SWING* link above
    - *Extension*: Not enough extension causes the head to move off the ball |
      ... and limits the height of your hands | Too much extension causes
      a reverse pivot
-   - Check point 1: An alignment stick perpendicular to your chest should
-     be slightly above horizontal at the top of your backswing
-   - Check point 2: At the top of your backswing, there should be a small
-     space (say 15cm) between your back and a vertical line above the ball (from the front view)
-   - Check point 3: At the top of your backswing, your head should not
-     have moved left/right (or back/forward)... but it may rotate
+     * Check point 1: An alignment stick perpendicular to your chest should
+       be slightly above horizontal at the top of your backswing
+     * Check point 2: At the top of your backswing, there should be a small
+       space [say 15cm] between your back and a vertical line above the ball
+       (from the front view)
+     * Check point 3: At the top of your backswing, your head should not
+       have moved left/right (or back/forward)... but it may rotate
    - *Sway*: The hips are permitted to move slightly away from the target
-     at the beginning of the backswing, but by the time the backswing
+     at the *beginning* of the backswing, but by the time the backswing
      is completed, they should have returned to the address position
-     or even be slightly closer to the target (i.e. re-centered)
+     or be slightly closer to the target (i.e. re-centered)
 
 1. [PART 3: Downswing | 2022](https://www.youtube.com/watch?v=VKegow4i6Mo)
 1. [PART 4: FOLLOW THROUGH | 2022](https://www.youtube.com/watch?v=h6x_DTC3jp0)

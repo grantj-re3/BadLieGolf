@@ -1,11 +1,11 @@
 # Putting
 
-## Porzak Golf
+## :thumbsup: Porzak Golf
 
 1. [Porzak Golf | Several videos are about putting](Links_PorzakGolf.md)
 
 
-## Cameron Smith
+## :thumbsup: Cameron Smith
 
 1. [LIV Golf | LIV Lessons: Cam Smith - Chapter 1 | Putting Fundamentals (video) | 2024](https://www.youtube.com/watch?v=uAy-XOULxTg)
    - The Fundamentals: Grip, Setup, Balance & Tempo of the Stroke |
@@ -262,18 +262,38 @@
 
 ## fitzygolfpro: Brian Fitzgerald
 
-1. [Short Putting Tips & Tricks 2020](https://www.youtube.com/watch?v=d_CKrRn6fd0)
-￼
+1. [Short Putting Tips & Tricks 2020 (video)](https://www.youtube.com/watch?v=d_CKrRn6fd0)
 
-## Quiet Eye putting
+
+## Smartline Putting: Nick Kumpis
+
+1. :thumbsup: [1 Easy Way to Master Your Putting Distance Control & No More 3 Putts (video) | 2024](https://www.youtube.com/watch?v=ePEqwyJCdto)
+   - Learn how much back swing (and follow through) you need for particular distances
+   - Measure your distance to the hole
+   - Make appropriate adjustments for up/down slope and green speed
+
+1. [Putting Tempo Drill | Eyes Closed (video) | 2023](https://www.youtube.com/watch?v=14xuPk_neJ4)
+   - Start drill with 5-10 foot range
+   - Probably not suitable for putts above 20-30 feet
+
+1. [How to develop FEEL in Putting - no look guess putt drill (video) | 2019](https://www.youtube.com/watch?v=88FZQ_Gy_Ck)
+   - Drill to develop a feel for distance
+   - After putting, keep your head down (or close your eyes)
+   - Guess if your distance was short, right or long
+   - Putt from various distances and up/down slopes
+
+1. [Top Putting Drill to Make More Putts From 3 to 9 Feet (video) | 2023](https://www.youtube.com/watch?v=wv7M9pGaZBg)
+
+
+## :thumbsup: Quiet Eye putting
 
 1. [Academic links](Links_AcademicStudyOfGolf.md)
-1. [fitzygolfpro: Brian Fitzgerald | Quiet Eye Putting - Putting Better Using A Simple Dot | 2018](https://www.youtube.com/watch?v=z4BXXok3NGE)
+1. [fitzygolfpro: Brian Fitzgerald | Quiet Eye Putting - Putting Better Using A Simple Dot (video) | 2018](https://www.youtube.com/watch?v=z4BXXok3NGE)
    - Mark a dot on your golf ball before your round
    - I gather he is placing the dot near the impact point during his putting routine
    - Immediately before putting, focus on the dot for 2 seconds
    - Keeps the mind quiet and eyes still
-1. [Golf Science Lab | Little Known Putting Tip - Quiet Eye Golf | 2020](https://www.youtube.com/watch?v=OTJYpWHmKFs)
+1. [Golf Science Lab | Little Known Putting Tip - Quiet Eye Golf (video) | 2020](https://www.youtube.com/watch?v=OTJYpWHmKFs)
 
 
 ## Claw/Saw/Pencil Grip

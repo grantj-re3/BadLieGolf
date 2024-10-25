@@ -260,6 +260,22 @@
 1. [How To STOP Your WOBBLY BACKSTROKE (video) | 2023](https://www.youtube.com/watch?v=saNPGLiMgAM)
 
 
+## fitzygolfpro: Brian Fitzgerald
+
+1. [Short Putting Tips & Tricks 2020](https://www.youtube.com/watch?v=d_CKrRn6fd0)
+￼
+
+## Quiet Eye putting
+
+1. [Academic links](Links_AcademicStudyOfGolf.md)
+1. [fitzygolfpro: Brian Fitzgerald | Quiet Eye Putting - Putting Better Using A Simple Dot | 2018](https://www.youtube.com/watch?v=z4BXXok3NGE)
+   - Mark a dot on your golf ball before your round
+   - I gather he is placing the dot near the impact point during his putting routine
+   - Immediately before putting, focus on the dot for 2 seconds
+   - Keeps the mind quiet and eyes still
+1. [Golf Science Lab | Little Known Putting Tip - Quiet Eye Golf | 2020](https://www.youtube.com/watch?v=OTJYpWHmKFs)
+
+
 ## Claw/Saw/Pencil Grip
 
 1. [Here](Links_PuttingClawSaw.md)

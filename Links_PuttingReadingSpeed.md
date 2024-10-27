@@ -1,4 +1,4 @@
-Putting: Reading Speed
+# Putting: Reading Speed
 
 ## Stimpmeter
 

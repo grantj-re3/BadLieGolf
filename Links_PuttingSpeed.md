@@ -1,4 +1,4 @@
-# Putting: Reading Speed
+# Speed/length of putts
 
 ## Stimpmeter
 
@@ -46,7 +46,7 @@
    - Observation 3: Rolling the green can increase the speed significantly e.g. from 7.4 to 9.9 = 2.5 feet (+34%).
 
 
-## Evidence based approach to putting speed
+## Evidence-based approach to putting speed
 
 1. [GolfWRX: Tom Stickney II | How drastically does slope effect green speed? More than you even think… | 2018](https://www.golfwrx.com/522438/how-drastically-does-slope-effect-green-speed-more-than-you-even-think/)
    - Chart showing how up/down slope changes the effective stimp
@@ -58,6 +58,11 @@
 1. [Probable Golf Instruction | Downhill & Uphill Putts](https://probablegolfinstruction.com/downhill_uphill_putts.htm)
    - Charts for 1% up/down slope putts for various distances
    - Shows the calculations used for the models
+
+1. [Smartline Putting: Nick Kumpis | 1 Easy Way to Master Your Putting Distance Control & No More 3 Putts (video) | 2024](https://www.youtube.com/watch?v=ePEqwyJCdto)
+   - Learn how much back swing (and follow through) you need for particular distances
+   - Measure your distance to the hole
+   - Make appropriate adjustments for up/down slope and green speed
 
 1. [Golf Gear Guy | How To Read Golf Greens For Speed And Break | 2018-2019](https://golfgearguy.com/how-to-read-golf-greens-for-speed-and-break/)
    - *The putting pace trick*: I developed for my own game: the 10 pace putt system

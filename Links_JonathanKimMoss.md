@@ -37,6 +37,11 @@
      Add the trail hand; Add a small backswing | Add a full backswing
 
 1. [ARM SPEED GOLF SWING (video) | 2024](https://www.youtube.com/watch?v=FmCt2R8rxHw)
+   - At transition, turn your chest into your lead arm
+     i.e. your arm/club will be delayed compared to your chest turn
+   - Helps the downswing throwing action
+   - Drill: Feel this lead arm only action: First without a club | Then with a
+     inverted/correct orientation club in your lead hand | Then with 2 hands
 
 1. [BEGINNER SERIES (playlist) | 2020](https://www.youtube.com/playlist?list=PL9LXECPA3NlXMPgah2bAs8R9nopsBa6vg)
 

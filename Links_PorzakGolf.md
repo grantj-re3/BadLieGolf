@@ -82,6 +82,9 @@
      * Let the club head drop (slide) underneath the ball
      * Knees move towards the target as the body rotates
    - Aim point is towards your target (even when the club face is open)
+1. [Adam Porzak | Greenside Bunker 101 || Get Out With EASE! (video) | 2024](https://www.youtube.com/watch?v=lRV0WYmwYMQ)
+   - Connection: Allow the body and arms to rotate together
+   - Leverage: Keep the right elbow fairly close to the body
 1. [Adam Porzak | The Most Effective Bunker Lesson On Youtube! (video) | 2023](https://www.youtube.com/watch?v=tGZoNn3whFY)
 1. [Adam Porzak | NEVER Fear Bunkers Ever Again! (video) | 2024](https://www.youtube.com/watch?v=DMrVwKRaNAg)
 

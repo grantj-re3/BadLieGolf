@@ -129,6 +129,8 @@
    - The Danger Zone
    - Visualize Your Shots
 
+1. [Golf Therapy | You Only Need 3 Shots to Be Good at Golf | 2024](https://www.youtube.com/watch?v=9cSC8MRENDs)
+
 
 ## How to enjoy your golf
 

@@ -55,3 +55,8 @@
    - [LiveAbout | Understanding 'Preferred Lies' (Lift, Clean and Place) | 2019](https://www.liveabout.com/preferred-lies-1560959)
    - [LiveAbout | Putting Across Sprinkler Heads in Golf: Free Relief? | 2019](https://www.liveabout.com/putt-from-off-green-with-obstacles-1561300)
 
+1. Golf Monthly
+   - [Neil Tappin & Jeremy Ellwood | 7 RULES (EVEN EXPERIENCED) GOLFERS FIND CONFUSING! | 2023](https://www.youtube.com/watch?v=NsGrA5kTpW0)
+   - [Neil Tappin & Jeremy Ellwood | 7 SURPRISING GOLF RULES THAT COULD CATCH YOU OUT! | 2022](https://www.youtube.com/watch?v=UNJy5xosxDk)
+   - [Neil Tappin & Jeremy Ellwood | 8 RULES GOLFERS BREAK... WITHOUT REALISING!! | 2020](https://www.youtube.com/watch?v=iAioXOIqMFw)
+

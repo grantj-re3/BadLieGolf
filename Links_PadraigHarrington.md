@@ -94,11 +94,40 @@
    - When starting the down swing, pronate the wrists by around 20°
    - By the time you reach impact, the wrists will be pronated by around 5° (in other words, the wrists are in the process of extending)
 
+1. [Golf: Zephyr Melton | Here are 7 at-home drills from Ryder Cup captain Padraig Harrington | 2020](https://golf.com/news/7-drills-ryder-cup-captain-padraig-harrington/)
+   - Chipping drill | Bunker drill | Impact position drill | Clean contact drill |
+     Tips for beginners (x2) | Use your arms to drive your body
+
+
+## Greenside bunker shots
+
+1. [EFFECTIVE PLAY FROM THE BUNKER | Paddy's Golf Tip #7 (video) | 2021](https://www.youtube.com/watch?v=ghjWd8dKB9M)
+   - Get your body in the right position
+   - Drill to keep weight on lead foot: Hit bunker shot with trail heel off the ground
+   - Practice tip: Give yourself a good lie by teeing the ball up on some sand
+   - His setup at 2m42s & 3m00s:
+     * Ball is slightly behind the lead heel
+     * Ball is slightly in front of the sternum
+     * Trail arm is vertical
+     * Trail wrist is cupped
+     * Lead arm points to the trail foot
+     * Lead wrist is bowed
+   - He wants to encourage a out-to-in (cut) on the downswing:
+     * Beware of taking the club back on the outside on the downswing...
+     * Instead he says to take the club *back on the inside* and bring it *down from the outside*
+   - He says most of the backswing uses arms rather than body rotation
+   - Don't open the clubface too much, perhaps 30° (i.e. 1 o'clock)
+   - He briefly covers shots from: uphill lies, downhill lies and plugged lies
+
+1. [Golf: Kevin Cunningham | Padraig Harrington reveals the secrets to hitting out of hard and soft sand | 2020](https://golf.com/instruction/bunker-shots/padraig-harrington-bunker-secrets-soft-sand/)
+   - [X: Padraig Harrington | How to hit a bunker shot from very soft sand and very hard sand (video) | 2020](https://x.com/padraig_h/status/1253422395873869836)
+
+1. [PLAYING FROM PLUGGED LIES IN BUNKERS | Paddy's Golf Tip #35 (video) | 2022](https://www.youtube.com/watch?v=jJGD7OQB7d0)
+
 
 ## Long game
 
 1. [Padraig Harrington | THE SECRET TO EFFECTIVE DRIVING | Paddy's Golf Tip #12 (video) | 2021](https://www.youtube.com/watch?v=-QxjnF_-eKA)
-
 1. [Padraig Harrington | HITTING DRAWS AND FADES | Paddy's Golf Tip #11 (video) | 2021](https://www.youtube.com/watch?v=IEcJIrVtiM0)
 
 

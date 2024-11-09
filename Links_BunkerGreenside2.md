@@ -8,7 +8,10 @@
    - Do not sway
    - 70% of weight on the front side
 
-1. [The Art of Simple Golf | Divot Magic For Green Side Bunkers OUT Every Time | 2024](https://www.youtube.com/watch?v=NJiiFZQLQaI)
+1. [The Art of Simple Golf | This Bunker Shot Technique is SO EASY You’ll be Shocked (video) | 2022](https://www.youtube.com/watch?v=S9zJWFUnxVA)
+   - Drill: Without a ball, practice hitting the sand various distances
+
+1. [The Art of Simple Golf | Divot Magic For Green Side Bunkers OUT Every Time (video) | 2024](https://www.youtube.com/watch?v=NJiiFZQLQaI)
    - Swing thought: Take a divot in the bunker
    - Swing thought: Let the club head throw the divot-sand onto the green
 
@@ -25,7 +28,7 @@
    - Poor concept of impact [concept: club head travels *forwards* through the sand to carry the parcel
      of sand onto the green; not the concept of hitting down into the sand]
 
-1. [Golf Tips | Golf Pro Nick Faldo helps you get out of sand bunkers | 2010](https://www.youtube.com/watch?v=fiFDnHmCG2Y)
+1. [Golf Tips | Golf Pro Nick Faldo helps you get out of sand bunkers (video) | 2010](https://www.youtube.com/watch?v=fiFDnHmCG2Y)
    - How to find your point of contact with the sand (i.e. impact point)
    - On a flat portion of a practice bunker, draw a line in the sand
    - Put your left heel on the line
@@ -56,8 +59,9 @@
 
 1. [Dan Grieve | Many of his videos include bunker shots](Links_DanGrieve.md)
 1. [Porzak Golf | Several videos are about bunker shots](Links_PorzakGolf.md)
+1. [Padraig Harrington | Several videos are about bunker shots](Links_PadraigHarrington.md)
 
-1. [Meandmygolf | JASON DAY - HOW TO BECOME THE ULTIMATE BUNKER PLAYER | 2019](https://www.youtube.com/watch?v=Om7e1l0rDUA&t=4m18s)
+1. [Meandmygolf | JASON DAY - HOW TO BECOME THE ULTIMATE BUNKER PLAYER (video) | 2019](https://www.youtube.com/watch?v=Om7e1l0rDUA&t=4m18s)
    - Wide stance
    - Open the club face more (to minimise digging); more than 45°; he is trying to lie the club head flat on the sand
    - Sternum over the ball

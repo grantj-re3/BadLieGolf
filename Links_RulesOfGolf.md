@@ -33,6 +33,15 @@
 1. [R&A | Rules Quiz | c.2019-2022](https://www.randa.org/quiz)
 
 
+## United States Golf Association (USGA)
+
+1. [Golf's New Rules: Major Changes](https://www.usga.org/content/usga/home-page/rules-hub/rules-modernization/major-changes/major-changes.html)
+   - The main changes to the Rules of Golf that took effect in 2019
+1. [Rules hub](https://www.usga.org/content/usga/home-page/rules-hub.html)
+1. [Rules of Golf Explained (2023) (playlist)](https://www.youtube.com/playlist?list=PLnU5qUEfww3f5x5gRldQB9yWr5YdBwWwV)
+1. [Rules of Golf Shorts (playlist)](https://www.youtube.com/playlist?list=PLnU5qUEfww3dYQwcnZ5qoGAlwzGRtghdA)
+
+
 ## Golf Australia
 
 1. [Golf Australia | Rules of Golf | c.2022](https://www.golf.org.au/rulesofgolf/)
@@ -51,12 +60,28 @@
 
 ## Other
 
+1. EXPERT GOLF
+   - [NEW GOLF RULES 2019 | The 20 Most Important CHANGES (video)](https://www.youtube.com/watch?v=chPOtfLUHC0)
+     * Excellent brief coverage of the major rule changes which occurred in 2019
+   - [Rules (playlist) | 2018-2021](https://www.youtube.com/playlist?list=PLYJfdVIfdyhwGXuZUFbbJN34JPThRrJ7n)
+
 1. [LiveAbout | Golf Rules FAQ | c.2018-2019](https://www.liveabout.com/golf-rules-faq-1565966)
    - [LiveAbout | Understanding 'Preferred Lies' (Lift, Clean and Place) | 2019](https://www.liveabout.com/preferred-lies-1560959)
    - [LiveAbout | Putting Across Sprinkler Heads in Golf: Free Relief? | 2019](https://www.liveabout.com/putt-from-off-green-with-obstacles-1561300)
 
 1. Golf Monthly
-   - [Neil Tappin & Jeremy Ellwood | 7 RULES (EVEN EXPERIENCED) GOLFERS FIND CONFUSING! | 2023](https://www.youtube.com/watch?v=NsGrA5kTpW0)
-   - [Neil Tappin & Jeremy Ellwood | 7 SURPRISING GOLF RULES THAT COULD CATCH YOU OUT! | 2022](https://www.youtube.com/watch?v=UNJy5xosxDk)
-   - [Neil Tappin & Jeremy Ellwood | 8 RULES GOLFERS BREAK... WITHOUT REALISING!! | 2020](https://www.youtube.com/watch?v=iAioXOIqMFw)
+   - [Rules Of Golf Advice (playlist) | 2014-2024](https://www.youtube.com/playlist?list=PLl3504ZoW2FNNcmaEZ8Hn7Imk2kD7WYwk)
+     * Beware: Some of the rules in the older videos may be out of date
+     * E.g. 6 Most Important New Rules: 2019 Golf Rules | What To Do When You LOSE YOUR GOLF BALL |
+       5 golf rules mistakes that WILL cost you a penalty shot | Dos & Don'ts In Bunkers |
+       Building A Stance In A Bunker | Water Hazard Relief Options
+   - [Golf Monthly: Videos](https://www.youtube.com/@GolfMonthly/videos)
+     * Scroll down a few years of videos then search on the page for "rule"
+       or "quiz" or "question"
+   - [Neil Tappin & Jeremy Ellwood | 7 RULES (EVEN EXPERIENCED) GOLFERS FIND CONFUSING! (video) | 2023](https://www.youtube.com/watch?v=NsGrA5kTpW0)
+   - [Neil Tappin & Jeremy Ellwood | 7 SURPRISING GOLF RULES THAT COULD CATCH YOU OUT! (video) | 2022](https://www.youtube.com/watch?v=UNJy5xosxDk)
+   - [Neil Tappin & Jeremy Ellwood | 8 RULES GOLFERS BREAK... WITHOUT REALISING!! (video) | 2020](https://www.youtube.com/watch?v=iAioXOIqMFw)
+
+1. [Golf: Rules Guy](https://golf.com/writers/rules-guy-2/)
+   - Question & Answer format
 

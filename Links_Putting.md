@@ -344,6 +344,19 @@
 1. [Dan Hendriksen Golf | PUTTING - AIMPOINT v PLUMB BOB (video) | 2020](https://www.youtube.com/watch?v=1o3UFLvdWyA)
 
 
+## Flagstick in or out?
+
+1. Those who favour IN
+   - [MyGolfSpy | TESTED: Flagstick In (vs) Flagstick Out? | 2019](https://mygolfspy.com/news-opinion/flagstick-in-flagstick-out/)
+   - [EXPERT GOLF | FLAGSTICK IN OR OUT | Which is BETTER? (video) | 2018](https://www.youtube.com/watch?v=Mc90UbpJbuM)
+   - [Golf: Dave Pelz | The science proves you should leave the flagstick in when you putt | 2019](https://golf.com/news/tournaments/dave-pelz-the-science-proves-you-should-leave-the-flagstick-in-when-you-putt-2/)
+   - [MrShortGame Golf | Golf Flagstick in or Out? There's Something That Nobody is Talking About! (video) | 2019](https://www.youtube.com/watch?v=_MFIMtMJGtw)
+
+1. Those who favour OUT
+   - [Australian Golf Digest: Mike Stachura | Putting with the flagstick in could be a mistake, new Golf Digest study shows | 2019](https://www.australiangolfdigest.com.au/putting-with-the-flagstick-in-could-be-a-mistake-new-golf-digest-study-shows/)
+   - [American Institute of Physics: Peter Gwynne | Should Golfers Keep the Flagstick in the Cup When They Putt? | 2021](https://ww2.aip.org/inside-science/should-golfers-keep-the-flagstick-in-the-cup-when-they-putt)
+
+
 ## Wearing glasses
 
 1. [Info about wearing glasses & golf/putting](Links_VisionCorrectionAndGolf.md)

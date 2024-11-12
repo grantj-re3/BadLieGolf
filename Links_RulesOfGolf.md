@@ -1,5 +1,8 @@
 # Rules of Golf
 
+*Beware: There were major changes to the rules of golf in 2019.
+Take care with any resources prior to this date.*
+
 
 ## R&A Championships Limited / St Andrews
 
@@ -37,9 +40,21 @@
 
 1. [Golf's New Rules: Major Changes](https://www.usga.org/content/usga/home-page/rules-hub/rules-modernization/major-changes/major-changes.html)
    - The main changes to the Rules of Golf that took effect in 2019
+1. [Rules poster: 15 Rules Every Golfer Should Know (PDF) | 2023](https://www.usga.org/content/dam/usga/pdf/2023/rules/2023RulesPoster.pdf)
+   - Includes minor changes to the Rules of Golf that took effect in 2023
 1. [Rules hub](https://www.usga.org/content/usga/home-page/rules-hub.html)
 1. [Rules of Golf Explained (2023) (playlist)](https://www.youtube.com/playlist?list=PLnU5qUEfww3f5x5gRldQB9yWr5YdBwWwV)
 1. [Rules of Golf Shorts (playlist)](https://www.youtube.com/playlist?list=PLnU5qUEfww3dYQwcnZ5qoGAlwzGRtghdA)
+
+
+## Florida State Golf Association (FSGA)
+
+1. [Rules of Golf - What Can I Move? | 2019](https://www.fsga.org/News/Details/1763)
+   - Excellent summary
+   - Loose impediments may be moved anywhere on the course including bunkers...
+   - ...you may have noticed that sand is not a loose impediment
+1. [New Rules You Should Know | c.2019](https://www.fsga.org/sections/content/New-Rules-You-Should-Know/944)
+1. [Summary Chart: The Major Changes in the Rules of Golf for 2019 (PDF)](https://www.usga.org/content/dam/usga/images/rules/rules-modernization/New-Rules/summary-of-main/Summary%20of%20Main%20Changes_2019%20Rules%20of%20Golf_FINAL.pdf)
 
 
 ## Golf Australia

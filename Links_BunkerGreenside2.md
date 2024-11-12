@@ -54,6 +54,18 @@
      * Left shoulder is high at address
      * Wider stance
 
+1. [HackMotion: Matt Stevens | The Bunker Shot Blueprint: 10 Pro Tips for More Up and Downs | 2024](https://hackmotion.com/tips-for-bunker-shots/)
+   - Select a Lofted Club | Play a High Bounce Sole Grind | Open the Clubface |
+     Position the Ball Forward | Place Weight on Your Front Foot |
+     Dig Your Feet Into the Sand | Aim At the Target | Lengthen Your Backswing |
+     Extend [cup] the Lead Wrist | Hit the Sand Behind Your Ball
+   - Includes several videos and drills
+
+1. [Golf Insider: Will Shaw | How to Hit a Bunker Shot – The Ultimate Guide | 2023](https://golfinsideruk.com/how-to-hit-bunker-shot/)
+   - Set-up | swing | direction | distance | trajectory | advanced techniques
+   - Includes several videos and drills
+   - Wrist release drill
+
 1. [Golf: Zephyr Melton | 5 easy steps to get up-and-down from the bunker like a pro | 2021](https://golf.com/instruction/bunker-shots/how-to-hit-bunker-shot-five-tips/)
    - Club selection | Evaluate sand | Set clubface | Adjust setup | Steepen swing
 

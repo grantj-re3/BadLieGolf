@@ -99,6 +99,9 @@ Short game expert. Specialises in:
 
 ## Other channels featuring Dan Grieve
 
+1. [Inci Mehmet | DAN GRIEVES TIPS FIXED MY YIPS! | 2024](https://www.youtube.com/watch?v=xJyi3BgBiDs&t=5m1s)
+   - This video appears to be teaching/recapping release 1
+
 1. [Rick Shiels Golf | This Golf Lesson Changed my LIFE! | 2023](https://www.youtube.com/watch?v=4yLYYz_5Z8c)
    [3m43s]
    - [6m30s] Release 1 - Chip and run (low trajectory)

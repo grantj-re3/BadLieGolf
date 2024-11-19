@@ -42,6 +42,12 @@
    - It may help if you pause at the top (during the drill)
    - Repeat for uphill/downhill bunker lie
 
+1. [Golfing World | Bunker Shots Made Easy! | Nick Faldo Bunker Tips | 2016](https://www.youtube.com/watch?v=u54LaR2lpeY)
+   - Mimic the pros... pick the one which works for you
+   - Gary Player: Weight on the left side of each foot | Strike a match (for speed on the downswing [with shallow divot])
+   - Seve Ballesteros: Steep backswing and follow through
+   - Ernie Els: Feel right heel off the ground (for a higher right shoulder) | Use the least power to get the job done
+
 1. [Steve Johnston Golf | This Bunker Shot Technique is SO EASY You'll be Shocked (video) | 2024](https://www.youtube.com/watch?v=Vw7kMe9Cu3Y)
    - Hard sand [I like this technique]
      * Strike the sand with the tow of the club face (hence less resistance by the sand)
@@ -72,6 +78,19 @@
 1. [Dan Grieve | Many of his videos include bunker shots](Links_DanGrieve.md)
 1. [Porzak Golf | Several videos are about bunker shots](Links_PorzakGolf.md)
 1. [Padraig Harrington | Several videos are about bunker shots](Links_PadraigHarrington.md)
+
+1. [Gaz's Golf | NEVER THIN A Bunker Shot Again | Full Bunker Lesson | 2022](https://www.youtube.com/watch?v=dz_ImzjwgQk)
+   - Weight forward means the following are in a vertical line: left shoulder | left hip | left knee | left foot
+   - Keep your weight forward during the whole backswing, down swing and follow through
+   - For Gaz, the ball is only slightly forward of center
+   - Sternum 2-3 inches in front of the ball
+   - Tiger Woods feel: release the wrists before impact (so the bounce is in play)
+   - Slow swing: implies finesse e.g. more reliable low point
+   - Long swing: implies more speed
+
+1. [TaylorMade Golf | Rory McIlroy Teaches You Two Different Bunker Shots | 2023](https://www.youtube.com/watch?v=Vb2UCnI2G8U)
+   - High flighted shot
+   - Lower shot which will run more [and easier in my view]
 
 1. [Meandmygolf | JASON DAY - HOW TO BECOME THE ULTIMATE BUNKER PLAYER (video) | 2019](https://www.youtube.com/watch?v=Om7e1l0rDUA&t=4m18s)
    - Wide stance
@@ -125,4 +144,6 @@
 1. [Nick Foy Golf | 15 Golf Bunker Drills to Escape the Sand Confidently | 2018-2023](https://nickfoygolf.com/golf-bunker-drills/)
 1. [Foy Golf Academy | 7 Amazing Sand Bunker Drills to Practice | 2021](https://foygolfacademy.com/sand-bunker-practice-drills/)
 1. [My Golf Instructor: Maria Palozola | Bunker Drills | c.2017](https://www.mygolfinstructor.com/instruction/bunkers/drills/)
+1. [Reddit/golf: Sean Anderson Golf | Here’s a fun bunker tip instead of “line in the sand” | 2024](https://www.reddit.com/r/golf/comments/1dqld32/heres_a_fun_bunker_tip_instead_of_line_in_the_sand/?rdt=35613)
+   - Same as Nick Foy Golf, drill 2: *Tee It Up – Bottom Point Drill*
 

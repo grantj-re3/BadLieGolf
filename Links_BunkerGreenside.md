@@ -444,6 +444,9 @@ For a flat lie in soft sand...
        + make a small pile of sand *in the bunker* 
        + place a ball on the pile of sand
        + swing as before
+   - [fitzygolfpro | The Easiest Way to Escape Any Bunker (You Won’t Believe How Simple This Is!) | 2024](https://www.youtube.com/watch?v=jGF6kQwmyPM)
+     * Cheap plastic chopping board
+     * Similar principle to the Kevin Sprecher video above and the Dave Pelz Bunker Board below
 
 1. [The Art of Simple Golf - Alex Fortey | How To Practice Perfect Bunker Shots Without Needing A Sand Trap (video) | 2016](https://www.youtube.com/watch?v=X7JPVXGiPj0)
    - Acceleration drill 1:

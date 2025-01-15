@@ -2,14 +2,14 @@
 
 ## Backswing
 
-1. [TRAIL ARM MOVEMENT BACKSWING | 2024](https://www.youtube.com/watch?v=mT0Kwhb72rg)
-1. [HOW TO STOP RUSHING YOUR DOWNSWING | 2024](https://www.youtube.com/watch?v=4TZqQDkhEIs)
+1. [TRAIL ARM MOVEMENT BACKSWING (video) | 2024](https://www.youtube.com/watch?v=mT0Kwhb72rg)
+1. [HOW TO STOP RUSHING YOUR DOWNSWING (video) | 2024](https://www.youtube.com/watch?v=4TZqQDkhEIs)
 
 
 ## Downswing / sequence / lag
 
-1. [SEQUENCE OF THE GOLF SWING | 2024](https://www.youtube.com/watch?v=lXEmb8TRNgg)
-1. [HOW TO CREATE LAG IN THE GOLF SWING | 2024](https://www.youtube.com/watch?v=-f_b1DJrG_A)
+1. [SEQUENCE OF THE GOLF SWING (video) | 2024](https://www.youtube.com/watch?v=lXEmb8TRNgg)
+1. [HOW TO CREATE LAG IN THE GOLF SWING (video) | 2024](https://www.youtube.com/watch?v=-f_b1DJrG_A)
 1. [ARM SPEED GOLF SWING (video) | 2024](https://www.youtube.com/watch?v=FmCt2R8rxHw)
    - At transition, turn your chest into your lead arm
      i.e. your arm/club will be delayed compared to your chest turn
@@ -17,12 +17,12 @@
    - Drill: Feel this lead arm only action: First without a club | Then with a
      inverted/correct orientation club in your lead hand | Then with 2 hands
 
-1. [Unique Trail Arm Drill for the Downswing | 2024](https://www.youtube.com/watch?v=Ir_aGimPpKg)
+1. [Unique Trail Arm Drill for the Downswing (video) | 2024](https://www.youtube.com/watch?v=Ir_aGimPpKg)
 
 
 ## Release
 
-1. [BODY AND WRIST RELEASE | 2024](https://www.youtube.com/watch?v=mO3-3ZfzFhc)
+1. [BODY AND WRIST RELEASE (video) | 2024](https://www.youtube.com/watch?v=mO3-3ZfzFhc)
    - Release is the point at which the clubhead passes the hands
    - Downswing sequence: Weightshift | Hip rotation | Chest | Arms | Club
    - In the follow through, everything **decelerates** in the same order
@@ -47,7 +47,7 @@
 
 ## Follow through / finish
 
-1. [How to Finish Your Golf Swing | Perfect Your Follow-Through for Better Shots | 2025](https://www.youtube.com/watch?v=PgIETq-SEHk)
+1. [How to Finish Your Golf Swing | Perfect Your Follow-Through for Better Shots (video) | 2025](https://www.youtube.com/watch?v=PgIETq-SEHk)
    - Rotation
    - Extension
    - Weight finishes on the outside heal of the left foot
@@ -134,7 +134,7 @@
 He is often comparing the driver swing to a 7-iron swing, so we can
 learn something about iron shots here too.
 
-1. [PART 1: Set Up Position | 2022](https://www.youtube.com/watch?v=zdp-flHvhdY)
+1. [PART 1: Set Up Position (video) | 2022](https://www.youtube.com/watch?v=zdp-flHvhdY)
    - Driver: The ball is *not* on the ground | We do *not*
      want to hit down | The driver is much longer
    - *Iron setup*: Ball position slightly to the left of centre |
@@ -155,7 +155,7 @@ learn something about iron shots here too.
      though the ball is positioned further forward) | (2b) Forearms
      must also remain in alignment
 
-1. [PART 2: Backswing | 2022](https://www.youtube.com/watch?v=2PP5vA1XTOE)
+1. [PART 2: Backswing (video) | 2022](https://www.youtube.com/watch?v=2PP5vA1XTOE)
    - *Chest rotation*: Allows hands to move higher | Allows hands to
      move further behind your body (i.e. depth) | Helps prevent swinging
      "over the top" (resulting in steepness and an out-to-in path) |
@@ -175,6 +175,6 @@ learn something about iron shots here too.
      is completed, they should have returned to the address position
      or be slightly closer to the target (i.e. re-centered)
 
-1. [PART 3: Downswing | 2022](https://www.youtube.com/watch?v=VKegow4i6Mo)
-1. [PART 4: FOLLOW THROUGH | 2022](https://www.youtube.com/watch?v=h6x_DTC3jp0)
+1. [PART 3: Downswing (video) | 2022](https://www.youtube.com/watch?v=VKegow4i6Mo)
+1. [PART 4: FOLLOW THROUGH (video) | 2022](https://www.youtube.com/watch?v=h6x_DTC3jp0)
 

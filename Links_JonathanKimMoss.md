@@ -1,5 +1,40 @@
 # Jonathan Kim-Moss Golf
 
+## Backswing
+
+1. [TRAIL ARM MOVEMENT BACKSWING | 2024](https://www.youtube.com/watch?v=mT0Kwhb72rg)
+1. [HOW TO STOP RUSHING YOUR DOWNSWING | 2024](https://www.youtube.com/watch?v=4TZqQDkhEIs)
+
+
+## Downswing / sequence / lag
+
+1. [SEQUENCE OF THE GOLF SWING | 2024](https://www.youtube.com/watch?v=lXEmb8TRNgg)
+1. [HOW TO CREATE LAG IN THE GOLF SWING | 2024](https://www.youtube.com/watch?v=-f_b1DJrG_A)
+1. [ARM SPEED GOLF SWING (video) | 2024](https://www.youtube.com/watch?v=FmCt2R8rxHw)
+   - At transition, turn your chest into your lead arm
+     i.e. your arm/club will be delayed compared to your chest turn
+   - Helps the downswing throwing action
+   - Drill: Feel this lead arm only action: First without a club | Then with a
+     inverted/correct orientation club in your lead hand | Then with 2 hands
+
+1. [Unique Trail Arm Drill for the Downswing | 2024](https://www.youtube.com/watch?v=Ir_aGimPpKg)
+
+
+## Release
+
+1. [BODY AND WRIST RELEASE | 2024](https://www.youtube.com/watch?v=mO3-3ZfzFhc)
+   - Release is the point at which the clubhead passes the hands
+   - Downswing sequence: Weightshift | Hip rotation | Chest | Arms | Club
+   - In the follow through, everything **decelerates** in the same order
+     as above to allow the club to move past the arms
+   - [4m58] Two ways to check the separation between hips and chest
+   - [6m47] Stop-quick drill: When you stop:
+     * Chest facing forward
+     * Hips turned left
+     * Hands near the left pocket
+     * Right arm and shaft in a straight line
+     * Right shoulder has only turned a little (maybe 20-30°, not 90°)
+
 1. [HOW TO RELEASE THE GOLF CLUB (video) | 2022](https://www.youtube.com/watch?v=Y_icyjq4B7A)
 
 1. [Releasing the Golf Club (video) | 2023](https://www.youtube.com/watch?v=MVR6WCbOR0M)
@@ -9,10 +44,42 @@
      * Hit the ball hard
      * Try to stop the arms and hands as early and quickly as possible
 
+
+## Follow through / finish
+
+1. [How to Finish Your Golf Swing | Perfect Your Follow-Through for Better Shots | 2025](https://www.youtube.com/watch?v=PgIETq-SEHk)
+   - Rotation
+   - Extension
+   - Weight finishes on the outside heal of the left foot
+   - Left hip is beyond the left heal
+   - Maintain side bend
+   - [5m47] Drill #1: Upper & lower body finish
+     * Alignment stick behind lower back
+     * Hold there with both forearms
+     * Rotate & extend into the finish position (with chest
+       pointing left of the target)
+     * At the finish, the left hip is above the right hip
+   - [8m02] Drill #2: Upper body finish
+     * Club horizontal at your chest
+     * Two fists holding the grip with palms facing your chest
+     * Clubface facing the same direction as your face
+     * During follow through, the trail shoulder rotates forward and up
+   - [10m21] Balance feel/idea: Prevent your weight from moving towards the ball
+     * During the backswing, the right hip goes up [and back] while
+       the left hip goes down and across
+     * During the downswing, pull the left hip back to match the right
+       (not the right hip forward to match the left)
+     * This (a) prevents "jamming you up" at impact, (b) gives the
+       arms a lot more room to follow through, (c) makes it easier
+       to move your weight to the outside heel of the left foot
+
 1. [PERFECT FOLLOW THROUGH WITH 3 MOVES (video) | 2021](https://www.youtube.com/watch?v=-WMnaMuLw0Y)
    - Pressure/weight shift | Extension | Rotation
    - Drill to get to the "arms horizontal" position
    - [Driver Follow Through [Extension] Drill](https://www.youtube.com/shorts/4blOaiiETY4)
+
+
+## Other
 
 1. [HOW TO MAKE ROTATION EASIER IN THE GOLF SWING! (video) | 2024](https://www.youtube.com/watch?v=17NThfso1ic)
    - Posture | Knee flex | Neck rotation | Tilt
@@ -35,13 +102,6 @@
      Swing from the impact position to almost horizontal arm follow through
      (you must extend to get your arm higher) | *Variations*: Lead arm only;
      Add the trail hand; Add a small backswing | Add a full backswing
-
-1. [ARM SPEED GOLF SWING (video) | 2024](https://www.youtube.com/watch?v=FmCt2R8rxHw)
-   - At transition, turn your chest into your lead arm
-     i.e. your arm/club will be delayed compared to your chest turn
-   - Helps the downswing throwing action
-   - Drill: Feel this lead arm only action: First without a club | Then with a
-     inverted/correct orientation club in your lead hand | Then with 2 hands
 
 1. [BEGINNER SERIES (playlist) | 2020](https://www.youtube.com/playlist?list=PL9LXECPA3NlXMPgah2bAs8R9nopsBa6vg)
 

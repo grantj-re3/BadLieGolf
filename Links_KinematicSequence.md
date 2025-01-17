@@ -19,27 +19,31 @@
 
 ## Acceleration sequence in the downswing
 
-1. [ChrisRyanGolf | PERFECT GOLF SWING SEQUENCE | 2016](https://www.youtube.com/watch?v=q-lBOZzsaj4&t=48s)
-1. [Golf Coach: Dr. Noel | Learn the Pro Golf Swing Sequence for Effortless Power | 2023](https://www.youtube.com/watch?v=9aeUOVFW3Io)
-1. [Lucas Wald | Can You Make a Perfect Slow Motion Golf Swing? | 2017](https://www.youtube.com/watch?v=ra3c5XSpGZ0)
-1. [Visual Golf | Adam Scott Golf Swing Sequence and Slowmotion | 2023](https://www.youtube.com/watch?v=akoPRy4k5Zg)
-1. [Paul Wilson Golf | Golf Instruction - How To Get That Slow Easy Swing | 2012](https://www.youtube.com/watch?v=rFxh7hhXwjI)
-1. [Eric Cogorno Golf with Trevor Salzman | The TRICK to Leading With Your Hips In The Golf Swing | 2023](https://www.youtube.com/watch?v=veBaQOxnkes&t=2m31s)
+1. [ChrisRyanGolf | PERFECT GOLF SWING SEQUENCE (video) | 2016](https://www.youtube.com/watch?v=q-lBOZzsaj4&t=48s)
+1. [Golf Coach: Dr. Noel | Learn the Pro Golf Swing Sequence for Effortless Power (video) | 2023](https://www.youtube.com/watch?v=9aeUOVFW3Io)
+1. [Lucas Wald | Can You Make a Perfect Slow Motion Golf Swing? (video) | 2017](https://www.youtube.com/watch?v=ra3c5XSpGZ0)
+1. [Visual Golf | Adam Scott Golf Swing Sequence and Slowmotion (video) | 2023](https://www.youtube.com/watch?v=akoPRy4k5Zg)
+1. [Paul Wilson Golf | Golf Instruction - How To Get That Slow Easy Swing (video) | 2012](https://www.youtube.com/watch?v=rFxh7hhXwjI)
+1. [Eric Cogorno Golf with Trevor Salzman | The TRICK to Leading With Your Hips In The Golf Swing (video) | 2023](https://www.youtube.com/watch?v=veBaQOxnkes&t=2m31s)
 
 
 ## Decelaration sequence at release
 
-1. RotarySwing.com Golf Instruction
-   - [Is Deceleration More Important than Acceleration in the Golf Swing? (video) | 2020](https://www.youtube.com/watch?v=K6OA8UGq3FI)
-     * Detailed coaching lesson; 28 minutes
-   - [How to Sequence the Golf Downswing (video) | 2020](https://www.youtube.com/watch?v=NRhp4V1f7Nk)
-     * Detailed coaching lesson; 33 minutes
-   - [Golf Lesson - Learn How to Post Up Like the Pros | 2020](https://www.youtube.com/watch?v=vA-efF-18EI&t=12m6s)
-     * Detailed coaching lesson; the last 27 minutes
-   - [Frisbee Drill for Sequencing Downswing & Creating CRAZY Lag | 2023](https://www.youtube.com/watch?v=FlGm5CbXe_g)
+1. [MyGolfDNA - Chris Tyler | Learn How To Post Up At Impact Like A PRO | Golf Impact Drill (video) | 2023](https://www.youtube.com/watch?v=2Fl30Oy3yks)
+   - He did a similar video [here](https://www.youtube.com/watch?v=fzI4nmtMtDM)
+
+1. RotarySwing.com Golf Instruction: Chuck Quinton
+   - [How to Add Power to Your Golf Swing: The Secret of Snapping the Club for Maximum Distance (video) | 2023](https://www.youtube.com/watch?v=MVwA55N-poc)
+   - [I Can Make Your Downswing World Class w/ These 2 SIMPLE Moves (video) | 2018](https://www.youtube.com/watch?v=DwR-E4WKTfc&t=1m49s)
+   - Lead/left arm: [Learn How Tiger Woods Creates Effortless Speed in the Golf Swing (video) | 2024](https://www.youtube.com/watch?v=DXHjobJ20qw)
+   - [Frisbee Drill for Sequencing Downswing & Creating CRAZY Lag (video) | 2023](https://www.youtube.com/watch?v=FlGm5CbXe_g)
      * Downswing should be lead (left) arm dominant
      * Lead-arm only drill creates effortless lag (i.e. wrist angle) on the downswing
      * [5m12] Frisbee analogy
+   - Student coaching lessons:
+     * [28m] [Is Deceleration More Important than Acceleration in the Golf Swing? (video) | 2020](https://www.youtube.com/watch?v=K6OA8UGq3FI)
+     * [33m] [How to Sequence the Golf Downswing (video) | 2020](https://www.youtube.com/watch?v=NRhp4V1f7Nk)
+     * [The last 27m] [Golf Lesson - Learn How to Post Up Like the Pros (video) | 2020](https://www.youtube.com/watch?v=vA-efF-18EI&t=12m6s)
 
 1. [Jonathan Kim-Moss Golf](Links_JonathanKimMoss.md)
    - Release section

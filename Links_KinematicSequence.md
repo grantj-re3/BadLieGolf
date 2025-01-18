@@ -24,6 +24,8 @@
 1. [Lucas Wald | Can You Make a Perfect Slow Motion Golf Swing? (video) | 2017](https://www.youtube.com/watch?v=ra3c5XSpGZ0)
 1. [Visual Golf | Adam Scott Golf Swing Sequence and Slowmotion (video) | 2023](https://www.youtube.com/watch?v=akoPRy4k5Zg)
 1. [Paul Wilson Golf | Golf Instruction - How To Get That Slow Easy Swing (video) | 2012](https://www.youtube.com/watch?v=rFxh7hhXwjI)
+1. [andrewkigerpga | Crack The Whip (power for your golf swing) (video) | 2012](https://www.youtube.com/watch?v=53u2RsKcHmU)
+   - Load | store | release
 1. [Eric Cogorno Golf with Trevor Salzman | The TRICK to Leading With Your Hips In The Golf Swing (video) | 2023](https://www.youtube.com/watch?v=veBaQOxnkes&t=2m31s)
 
 
@@ -45,11 +47,14 @@
      * [33m] [How to Sequence the Golf Downswing (video) | 2020](https://www.youtube.com/watch?v=NRhp4V1f7Nk)
      * [The last 27m] [Golf Lesson - Learn How to Post Up Like the Pros (video) | 2020](https://www.youtube.com/watch?v=vA-efF-18EI&t=12m6s)
 
+1. Others who teach that straightening the left knee produces power
+   - [Scratch Golf Academy | Left Knee In The Golf Downswing (COPY THIS MOVE!) (video) | 2020](https://www.youtube.com/watch?v=_aLjlOwulTg&t=7m18s)
+   - [Hitting It Solid Golf | Golf Swing Left Knee Movement Is Key ➜ Produce Amazing Consistency (video) | 2020](https://www.youtube.com/watch?v=5vdiLRmy2Fo&t=2m05s)
+   - [Top Speed Golf - Clay Ballard | Golf Swing | Left Knee Movement is Key (video) | 2016](https://www.youtube.com/watch?v=Fs9BptF0YoY&t=180s)
+
+
 1. [Jonathan Kim-Moss Golf](Links_JonathanKimMoss.md)
    - Release section
-
-1. [andrewkigerpga | Crack The Whip (power for your golf swing) (video) | 2012](https://www.youtube.com/watch?v=53u2RsKcHmU)
-   - Load | store | release
 
 1. [Chowardgolf | Decelerating in the Golf Swing, It Can Lead to Bombs! (video) | 2022](https://www.youtube.com/watch?v=1VEY_FpdQho)
    - Description & short-swing drill

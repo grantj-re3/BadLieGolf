@@ -19,6 +19,11 @@
 
 ## Acceleration sequence in the downswing
 
+1. Herman Williams Golf
+   - [Wrist Action in Golf Swing for Lag, Speed, Power & Distance (video) | 2011](https://www.youtube.com/watch?v=JcOD_wdrEeo)
+   - [Transition in Golf Swing - Part 2 of Speed, Power & Distance Series (video) | 2011](https://www.youtube.com/watch?v=K0OetcVjHeM)
+   - [Impact & Finish in Golf Swing - Pt 3 of Distance in Golf Series (video) | 2011](https://www.youtube.com/watch?v=GLLR_9gFcKs)
+
 1. [ChrisRyanGolf | PERFECT GOLF SWING SEQUENCE (video) | 2016](https://www.youtube.com/watch?v=q-lBOZzsaj4&t=48s)
 1. [Golf Coach: Dr. Noel | Learn the Pro Golf Swing Sequence for Effortless Power (video) | 2023](https://www.youtube.com/watch?v=9aeUOVFW3Io)
 1. [Lucas Wald | Can You Make a Perfect Slow Motion Golf Swing? (video) | 2017](https://www.youtube.com/watch?v=ra3c5XSpGZ0)
@@ -27,6 +32,11 @@
 1. [andrewkigerpga | Crack The Whip (power for your golf swing) (video) | 2012](https://www.youtube.com/watch?v=53u2RsKcHmU)
    - Load | store | release
 1. [Eric Cogorno Golf with Trevor Salzman | The TRICK to Leading With Your Hips In The Golf Swing (video) | 2023](https://www.youtube.com/watch?v=veBaQOxnkes&t=2m31s)
+
+1. James Parker Golf
+   - [Part 1 – How To Load The Club During The Back Swing | 2014-2024](https://www.jamesparkergolf.com/load-the-club-during-the-backswing/)
+   - [Part 2 – Foot Pressure In The Golf Swing & How To Feel It | 2014-2024](https://www.jamesparkergolf.com/foot-pressure-in-the-golf-swing/)
+   - [Part 3 – Golf Swing Side Tilting & Extending | Weight & Pressure Data | 2015-2024](http://www.jamesparkergolf.com/golf-swing-side-tilting-and-extending-weight-pressure-data/)
 
 
 ## Decelaration sequence at release

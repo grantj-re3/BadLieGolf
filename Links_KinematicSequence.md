@@ -16,6 +16,24 @@
 
 1. [Golfwell: Cordie Walker | Understanding the Kinematic Sequence w/ Dr Phil Cheetham (podcast) | 2017](https://golfwell.co/kinematic-sequence/)
 
+1. [JB Performance and Reconditioning: Jared Bickle | The Kinematic Sequence: What All Great Ball Strikers have in Common | 2021-2024](https://www.jaredbicklept.com/post/the-kinematic-sequence-what-all-great-ball-strikers-have-in-common)
+
+1. My thoughts
+   - Kinematic Sequence results in a *throwing* or *slinging* action which
+     we need to achieve a high club head speed at impact
+   - Although there are many differences, there are also several similarities
+     to the *trebuchet*. The trebuchet has:
+     * a stable base (where the machine is in contact with the ground)
+     * a relatively slow movement of heavy components near the base
+     * a relatively fast movement of lighter components far from the base
+     * a two lever system where:
+       + the *joint* between the two levers is free to throw or sling the projectile
+       + the second (faster) lever's rotation lags behind that of the first until
+         near the point of release
+     * References:
+       + [Art of Engineering | Medieval Engineering | How Trebuchets Work (video) | 2021](https://www.youtube.com/watch?v=jTBDc19eW2o)
+       + [Real World Physics Problems: Franco Normani | Trebuchet Physics](https://www.real-world-physics-problems.com/trebuchet-physics.html)
+
 
 ## Acceleration sequence in the downswing
 

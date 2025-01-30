@@ -32,7 +32,9 @@
          near the point of release
      * References:
        + [Art of Engineering | Medieval Engineering | How Trebuchets Work (video) | 2021](https://www.youtube.com/watch?v=jTBDc19eW2o)
+       + [KiwiCo: Drew | How Trebuchets Work: The Science Behind Trebuchets | 2020](https://www.kiwico.com/blog/the-science-behind/how-trebuchets-work)
        + [Real World Physics Problems: Franco Normani | Trebuchet Physics](https://www.real-world-physics-problems.com/trebuchet-physics.html)
+       + [Real World Physics Problems: Franco Normani | The Physics Of A Golf Swing](https://www.real-world-physics-problems.com/physics-of-a-golf-swing.html)
 
 
 ## Acceleration sequence in the downswing

@@ -39,10 +39,7 @@
 
 ## Acceleration sequence in the downswing
 
-1. Herman Williams Golf
-   - [Wrist Action in Golf Swing for Lag, Speed, Power & Distance (video) | 2011](https://www.youtube.com/watch?v=JcOD_wdrEeo)
-   - [Transition in Golf Swing - Part 2 of Speed, Power & Distance Series (video) | 2011](https://www.youtube.com/watch?v=K0OetcVjHeM)
-   - [Impact & Finish in Golf Swing - Pt 3 of Distance in Golf Series (video) | 2011](https://www.youtube.com/watch?v=GLLR_9gFcKs)
+1. :thumbsup: [Herman Williams Golf](Links_HermanWilliams.md)
 
 1. [ChrisRyanGolf | PERFECT GOLF SWING SEQUENCE (video) | 2016](https://www.youtube.com/watch?v=q-lBOZzsaj4&t=48s)
 1. [Golf Coach: Dr. Noel | Learn the Pro Golf Swing Sequence for Effortless Power (video) | 2023](https://www.youtube.com/watch?v=9aeUOVFW3Io)
@@ -61,8 +58,11 @@
 
 ## Decelaration sequence at release
 
-1. [MyGolfDNA - Chris Tyler | Learn How To Post Up At Impact Like A PRO | Golf Impact Drill (video) | 2023](https://www.youtube.com/watch?v=2Fl30Oy3yks)
-   - He did a similar video [here](https://www.youtube.com/watch?v=fzI4nmtMtDM)
+1. :thumbsup: [MyGolfDNA - Chris Tyler](Links_MyGolfDNA.md)
+   - Transition | sit down | post up | release
+
+1. :thumbsup: [Jonathan Kim-Moss Golf](Links_JonathanKimMoss.md)
+   - Release section
 
 1. RotarySwing.com Golf Instruction: Chuck Quinton
    - [How to Add Power to Your Golf Swing: The Secret of Snapping the Club for Maximum Distance (video) | 2023](https://www.youtube.com/watch?v=MVwA55N-poc)
@@ -81,10 +81,6 @@
    - [Scratch Golf Academy | Left Knee In The Golf Downswing (COPY THIS MOVE!) (video) | 2020](https://www.youtube.com/watch?v=_aLjlOwulTg&t=7m18s)
    - [Hitting It Solid Golf | Golf Swing Left Knee Movement Is Key ➜ Produce Amazing Consistency (video) | 2020](https://www.youtube.com/watch?v=5vdiLRmy2Fo&t=2m05s)
    - [Top Speed Golf - Clay Ballard | Golf Swing | Left Knee Movement is Key (video) | 2016](https://www.youtube.com/watch?v=Fs9BptF0YoY&t=180s)
-
-
-1. [Jonathan Kim-Moss Golf](Links_JonathanKimMoss.md)
-   - Release section
 
 1. [Chowardgolf | Decelerating in the Golf Swing, It Can Lead to Bombs! (video) | 2022](https://www.youtube.com/watch?v=1VEY_FpdQho)
    - Description & short-swing drill

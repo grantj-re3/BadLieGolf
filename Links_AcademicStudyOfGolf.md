@@ -31,6 +31,8 @@
 1. [Phys.org - Lisa Zyga | The mathematics of golf (review) | 2017](https://phys.org/news/2017-08-mathematics-golf.html)
    - [Proceedings of The Royal Society A - S. R. Otto | Some applications of mathematics in golf | 2017](https://doi.org/10.1098/rspa.2017.0392)
 
+1. [Real World Physics Problems: Franco Normani | The Physics Of A Golf Swing](https://www.real-world-physics-problems.com/physics-of-a-golf-swing.html)
+
 
 ## Quiet Eye putting
 

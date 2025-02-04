@@ -14,6 +14,7 @@
      [Shift and Turn Your Body Like A Pro | 2024](https://www.youtube.com/watch?v=3xDn-Ao0eGY)
      * The Setup Video mentioned at 1m16s is:
        [How To Make Your Golf Setup Perfect For Power And Balance | 2023](https://www.youtube.com/watch?v=LfkqfLFKSPs)
+   - Similar and complimentary video: [PLEASE STOP Trying To Turn Your Shoulders Through Impact For Speed! Do This Instead... | 2023](https://www.youtube.com/watch?v=dE40ZrQaVNc)
 
 1. [The Right Arm Has To Do This if You Want a Tour Quality Release | 2024](https://www.youtube.com/watch?v=UZlitju4Ayg)
 1. [What a Tour Quality Release Feels Like in the Golf Swing | 2024](https://www.youtube.com/watch?v=14pEKTqgnPM)

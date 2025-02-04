@@ -37,12 +37,27 @@
        + [Real World Physics Problems: Franco Normani | The Physics Of A Golf Swing](https://www.real-world-physics-problems.com/physics-of-a-golf-swing.html)
 
 
+## Setup / address
+
+### Right arm at address
+
+1. [Steve Pratt Golf | Right Arm Throw Action in Detail - For Incredible Clubhead Speed! | 2020](https://www.youtube.com/watch?v=KZzGHAKx2c0&t=1m59s)
+   - [1m59s - 2m52s]
+1. [Coach Lockey | Start Your Right Arm Like This. You Will Rip It!! (Golf Swing Cheat) | 2025](https://www.youtube.com/watch?v=H02DljUoO2M&t=1m34s)
+1. [Kerrod Gray Golf & Alex Clapp | How to Position the Arms at Address on Golf Course - Perfect Setup Every Time! | 2022](https://www.youtube.com/watch?v=o2aTBJoLoX8&t=2m56s)
+   - [2m56s-3m44s] and [6m29-7m25s]
+
+
 ## Acceleration sequence in the downswing
 
 1. :thumbsup: [Herman Williams Golf](Links_HermanWilliams.md)
 
 1. [ChrisRyanGolf | PERFECT GOLF SWING SEQUENCE (video) | 2016](https://www.youtube.com/watch?v=q-lBOZzsaj4&t=48s)
-1. [Golf Coach: Dr. Noel | Learn the Pro Golf Swing Sequence for Effortless Power (video) | 2023](https://www.youtube.com/watch?v=9aeUOVFW3Io)
+1. Golf Coach: Dr. Noel
+   - [Learn the Pro Golf Swing Sequence for Effortless Power (video) | 2023](https://www.youtube.com/watch?v=9aeUOVFW3Io)
+   - [Are You Missing out on the Effortless Speed From Your Levers | 2023](https://www.youtube.com/watch?v=H9p7g8EmxFI)
+
+1. [RotarySwing.com Golf Instruction: Chuck Quinton | The Key Secrets To Being a Consistent Ball Striker - How to Stop Casting and Swinging Over the Top | 2021](https://www.youtube.com/watch?v=Bl9DSthiUiM&t=11m56s)
 1. [Lucas Wald | Can You Make a Perfect Slow Motion Golf Swing? (video) | 2017](https://www.youtube.com/watch?v=ra3c5XSpGZ0)
 1. [Visual Golf | Adam Scott Golf Swing Sequence and Slowmotion (video) | 2023](https://www.youtube.com/watch?v=akoPRy4k5Zg)
 1. [Paul Wilson Golf | Golf Instruction - How To Get That Slow Easy Swing (video) | 2012](https://www.youtube.com/watch?v=rFxh7hhXwjI)

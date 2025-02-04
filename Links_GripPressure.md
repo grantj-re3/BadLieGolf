@@ -3,6 +3,8 @@
 1. [Rob Cheney Golf | The Golf Grip and Pressure Points - Unlock the Key to Better Golf | 2024](https://www.youtube.com/watch?v=C8JDlLaMpC4)
 1. [The Par Train | How to Grip the Golf Club Perfectly | The Best Grip Tutorial I've Ever Heard | 2024](https://www.youtube.com/watch?v=9Pu7ksj-rtM)
 1. [Scratch Golf Academy | Correct Understanding of Grip Pressure in Golf | 2023](https://www.youtube.com/watch?v=aSYxtVKCfQI)
+1. [Golf Coach: Dr. Noel | How to Form the Perfect Golf Grip | 2013](https://www.youtube.com/watch?v=LxN9sRQV-bM)
+
 1. [Meandmygolf | How To Build The "PERFECT" Golf Grip...Avoid These KILLER Mistakes! | 2023](https://www.youtube.com/watch?v=vW6i3IUTcq4)
 1. [MAKE THE TURN | Golf Grip Pressure Secret! | 2016](https://www.youtube.com/watch?v=x6jNDGpZJmo)
 

@@ -17,7 +17,10 @@
    - Drill: Feel this lead arm only action: First without a club | Then with a
      inverted/correct orientation club in your lead hand | Then with 2 hands
 
-1. [Unique Trail Arm Drill for the Downswing (video) | 2024](https://www.youtube.com/watch?v=Ir_aGimPpKg)
+1. :thumbsup: [Unique Trail Arm Drill for the Downswing (video) | 2024](https://www.youtube.com/watch?v=Ir_aGimPpKg)
+1. [THE ROLE OF YOUR TRAIL ELBOW IN THE SWING | 2020](https://www.youtube.com/watch?v=GvSOoQiPcPE&t=3m17s)
+   - [3m17s] Drill
+1. [STOP GETTING STUCK IN YOUR DOWNSWING | 2024](https://www.youtube.com/watch?v=vSLzxdrgjNo)
 
 
 ## Release
@@ -79,6 +82,12 @@
    - [Driver Follow Through [Extension] Drill](https://www.youtube.com/shorts/4blOaiiETY4)
 
 
+## Knee movement
+
+1. [KNEE MOVEMENT (PART 1): BACKSWING | 2022](https://www.youtube.com/watch?v=EQgqfuAGuNM)
+1. :thumbsup: [KNEE MOVEMENT SERIES (PART 2: DOWN SWING) | 2022](https://www.youtube.com/watch?v=lM0U_pUUM44)
+
+
 ## Other
 
 1. [HOW TO MAKE ROTATION EASIER IN THE GOLF SWING! (video) | 2024](https://www.youtube.com/watch?v=17NThfso1ic)
@@ -102,6 +111,9 @@
      Swing from the impact position to almost horizontal arm follow through
      (you must extend to get your arm higher) | *Variations*: Lead arm only;
      Add the trail hand; Add a small backswing | Add a full backswing
+
+1. [3 THINGS THAT LIMIT MOBILITY IN THE GOLF SWING | 2020](https://www.youtube.com/watch?v=hXWm4T9WBkw)
+1. [3 IDEAS TO MAKE YOUR PRACTICE BETTER | 2020](https://www.youtube.com/watch?v=fj2fC-T8nGw)
 
 1. [BEGINNER SERIES (playlist) | 2020](https://www.youtube.com/playlist?list=PL9LXECPA3NlXMPgah2bAs8R9nopsBa6vg)
 

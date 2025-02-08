@@ -27,6 +27,10 @@ off the toe of the club)! You may be able to look for ball impact marks by:
    1. Does your club face stay too open?
       * Check the toe of the club points to the sky (or slightly closed?) during the backswing when shaft is parallel to ground
 
+1. [Golf Coach: Dr. Noel | SIMPLE SHANK FIX - MAIN CAUSES PLUS DRILLS | 2023](https://www.youtube.com/watch?v=OnA7mQY8Cs8)
+
+1. [MyGolfDNA - Chris Tyler](Links_MyGolfDNA.md)
+
 1. [Kerrod Gray Golf | Simple Way To Fix The Shank | 3 Main Causes (video) | 2021](https://www.youtube.com/watch?v=SRVWhGQRmM8)
    1. *Check your setup*, 3m04s:
       * Stand in a balanced position at address. Don't stand too close or too far from the ball.

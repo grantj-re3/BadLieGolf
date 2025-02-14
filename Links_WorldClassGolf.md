@@ -6,16 +6,24 @@ Aside: [DIY Golfer | Golf Swing Positions: P Classification System](https://www.
 1. [This Move Simplifies Your Entire Golf Swing!! | 2024](https://www.youtube.com/watch?v=D5lxLPrpN4k)
    - [0m00s] Part 1: Shift and lift: High lead shoulder (forming a "wall") | Narrow gap between knees |
      Hips open | Spine tilts away from target
-   - [3m47s] Drill 1a: High lead shoulder
-   - [4m56s] Drill 1b: Spine tilts away from target
+   - [3m47s] Drill 1a: High lead shoulder (hold iron clubhead in lead hand)
+   - [4m56s] Drill 1b: Spine tilts away from target (hold iron clubhead in trail hand)
    - [7m14s] Part 2: Head and hips move towards the ball
    - [8m35s] Drill 2a: Feel head position (with a noodle)
    - [10m57s] Drill 2b: Head position (against a physical wall) and high lead shoulder
 
-1. [The NEW Ridiculously Easy Way To Swing For Amateurs!!! | 2024](https://www.youtube.com/watch?v=XMIG-3NjHXI)
-   - Shift and lift
-   - Your back should be arched at the finish
-   - Drills...
+1. Similar video: [The NEW Ridiculously Easy Way To Swing For Amateurs!!! | 2024](https://www.youtube.com/watch?v=XMIG-3NjHXI)
+   - [0m00s] Part 1: Head moves towards the ball
+   - [0m50s] Drill 1a: Similar to 2a above
+   - [2m32s] Part 2: Shift and lift
+   - [3m23s] Drill 2a: Similar to 1b above but he also mentions the **right wrist position at P3-P4-P5**
+     * New info starts here
+   - [5m30s] Note: Your back should be arched at the finish | Knees together
+   - [7m13s] Drill 2b: Alignment stick (or chair) to check the "lift" range of motion
+   - [8m15s] Drill 2c: Left hip back | Left shoulder up | Right foot on the ground
+   - [9m31s] Drill 2d: Head position (against a physical wall) | Right hand points away at P5 |
+     Right hand moves down to impact while left hand slides up left side to your belt |
+     Left pec and shoulder are high | Do reps
 
 1. [Why 99% of Amateurs can't create PGA Wrist Motion! - Simple! | 2025](https://www.youtube.com/watch?v=9nEo7DE_TSA)
    - [0m00s] Part 1: Various wrist positions during the swing

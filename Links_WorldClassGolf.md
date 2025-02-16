@@ -34,6 +34,19 @@ Aside: [DIY Golfer | Golf Swing Positions: P Classification System](https://www.
    - Checkpoints: Trail arm is visible | Three fingers of the trail hand are visible | Narrow gap between knees
    - Drill: Start with correct wrists and checkpoints at P8 and work back to P6
 
+1. [The Wrist Move that 95% of Golfers are Missing! - ( Evidence Based) | 2024](https://www.youtube.com/watch?v=ivxo55uWKFY)
+   - [0m00s] Part 1: Right wrist position at P5 (checkpoint)
+     * Right hand pointing away at P5
+     * See crease in the right wrist
+   - [3m06s] Part 2: Right wrist position at P8
+     * Right palm faces back towards your head
+     * [3m23s] David Duval's drill
+     * [4m22s] Right lower leg forms a line with club shaft at P9 | Loose arms/hands
+     * [5m48s] Feel position by "painting the wall"
+   - [9m25s] Part 3: End of grip points to the target before thed grip gets behind your head
+     * At the finish (P10) the grip points up
+     * Drill 3a: Start at the finish, then work backwards and then perform a real swing
+
 1. Impact position & [Why 99% Of Amateurs don’t start the Downswing correctly! | 2024](https://www.youtube.com/watch?v=KSEyIaS3GBQ)
    - [0m00s] Part 1: Re-plant the lead heel
    - [3m26s] Part 2: Don't straighten the lead leg too early

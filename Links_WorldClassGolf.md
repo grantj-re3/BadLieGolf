@@ -18,7 +18,7 @@ Aside: [DIY Golfer | Golf Swing Positions: P Classification System](https://www.
    - [0m00s] Part 1: Head moves towards the ball
      * [0m50s] Drill 1a: Similar to 2a above
    - [2m32s] Part 2: Shift and lift
-     * [3m23s] Drill 2a: Similar to 1b above but he also mentions the **right wrist position at P3-P4-P5**
+     * [3m23s] Drill 2a: Similar to 1b above but he also mentions the **right wrist position at P5**
        + New info starts here
      * [5m30s] Note: Your back should be arched at the finish | Knees together
      * [7m13s] Drill 2b: Alignment stick (or chair) to check the "lift" range of motion
@@ -37,7 +37,7 @@ Aside: [DIY Golfer | Golf Swing Positions: P Classification System](https://www.
      * [4m27s] Drill 1c: Feel various wrist positions using the "hanger" (accessory)
    - [7m22s] Part 2: Wrist position at P8
      * Checkpoints: Trail arm is visible | Three fingers of the trail hand are visible | Narrow gap between knees
-     * Drill: Start with correct wrists and checkpoints at P8 and work back to P6
+     * Drill 2a: Start with correct wrists and checkpoints at P8 and work back to P6
 
 1. :thumbsup: [The Wrist Move that 95% of Golfers are Missing! - ( Evidence Based) | 2024](https://www.youtube.com/watch?v=ivxo55uWKFY)
    - [0m00s] Part 1: Right wrist position at P5 (checkpoint)
@@ -48,7 +48,7 @@ Aside: [DIY Golfer | Golf Swing Positions: P Classification System](https://www.
      * [3m23s] **David Duval's drill**: Throw the club behind you
      * [4m22s] Right lower leg forms a line with club shaft at P9 | Loose arms/hands
      * [5m48s] Feel position by "painting the wall"
-   - [9m25s] Part 3: End of grip points to the target before thed grip gets behind your head
+   - [9m25s] Part 3: End of grip points to the target before the grip gets behind your head
      * At the finish (P10) the grip points up
      * Drill 3a: Start at the finish, then work backwards and then perform a real swing
 

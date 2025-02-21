@@ -37,6 +37,20 @@
        + [Real World Physics Problems: Franco Normani | The Physics Of A Golf Swing](https://www.real-world-physics-problems.com/physics-of-a-golf-swing.html)
 
 
+## Channels which seem to strongly apply the Kinematic Sequence
+
+1. :thumbsup: [World Class Golf - Craig Hanson & Dr. Rob Neal](Links_WorldClassGolf.md)
+1. :thumbsup: [Herman Williams Golf](Links_HermanWilliams.md)
+1. :thumbsup: [MyGolfDNA - Chris Tyler](Links_MyGolfDNA.md)
+   - Transition | sit down | post up | release
+
+1. :thumbsup: [Jonathan Kim-Moss Golf](Links_JonathanKimMoss.md)
+   - Release section
+
+1. :thumbsup: [Steve Pratt Golf](https://www.youtube.com/@Inmotion70)
+1. :thumbsup: [CHAGOL TV - Charlie Takaoki](Links_CHAGOLTV.md)
+
+
 ## Setup / address
 
 ### Right arm at address
@@ -49,8 +63,6 @@
 
 
 ## Acceleration sequence in the downswing
-
-1. :thumbsup: [Herman Williams Golf](Links_HermanWilliams.md)
 
 1. [ChrisRyanGolf | PERFECT GOLF SWING SEQUENCE (video) | 2016](https://www.youtube.com/watch?v=q-lBOZzsaj4&t=48s)
 1. Golf Coach: Dr. Noel
@@ -72,12 +84,6 @@
 
 
 ## Decelaration sequence at release
-
-1. :thumbsup: [MyGolfDNA - Chris Tyler](Links_MyGolfDNA.md)
-   - Transition | sit down | post up | release
-
-1. :thumbsup: [Jonathan Kim-Moss Golf](Links_JonathanKimMoss.md)
-   - Release section
 
 1. RotarySwing.com Golf Instruction: Chuck Quinton
    - [How to Add Power to Your Golf Swing: The Secret of Snapping the Club for Maximum Distance (video) | 2023](https://www.youtube.com/watch?v=MVwA55N-poc)

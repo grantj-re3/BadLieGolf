@@ -53,6 +53,47 @@ Aside: [DIY Golfer | Golf Swing Positions: P Classification System](https://www.
      * Drill 3a: Start at the finish, then work backwards and then perform a real swing
 
 
+## Downswing: Right elbow
+
+1. :thumbsup: [You Won’t Believe How Easy This Makes The Downswing! - Simple! | 2024](https://www.youtube.com/watch?v=r7dJ0HC-xFM)
+   - [0m00s] Part 1: Right elbow leads the hands | Right elbow moves in front of the hip at P6 | Clubface must point
+     slightly down at P6 | Forearm points up
+     * [6m40s] Fred Couples drill 1a: Setup aiming left of target, but hit towards target | Feel the right elbow lead the hands
+   - [8m14s] Part 2: Right wrist on the downswing
+     * [9m08s] Drill 2a: Preset the iron at P6 | Crease the right wrist | Clubface at 1 o'clock | Keep the connection while
+       rotating the body to the top | Maintain a deep (not flat) shoulder angle | Maintain the right wrist crease
+
+1. :thumbsup: [How To Start the DOWNSWING! - Stop Flipping! - Shallow and Create Room! | 2021](https://www.youtube.com/watch?v=4y1RVEIv1Is)
+   - When the right elbow is near the right hip, it arrives at the "finish line" before the hands
+   - Keep left shoulder high and right shoulder low
+   - Action is similar to skipping a stone across the water
+
+1. Similar video: [THE Easiest Way to Shallow out Golf Swing - "HOW to Shallow the Golf Club" | 2020](https://www.youtube.com/watch?v=I9mXGkMKVS8)
+   - When the right elbow is near the right hip, it arrives at the "finish line" before the hands
+   - Action is similar to skipping a stone across the water
+
+
+## Downswing
+
+1. :thumbsup: [The Long Right Arm! - The New Easier Downswing! | 2024](https://www.youtube.com/watch?v=oUAb6L15baI)
+   - [0m00s] Part 1: Reconnect the right arm/elbow during the downswing
+     * [5m24s] Drill 1a
+   - [7m59s] Part 2: Straighten the right arm during the downswing
+     | Right forearm points about a metre beyond the ball
+     | Right hand pushes down towards the ball at P6
+     | Hands near the right leg at P6
+     * [10m27s] Drill 2a
+   - [13m01s] Part 3: Direction: In the downswing, bring the arms down from the inside
+     (if the target is 12 o'clock, bring the arms down between 6 and 7 o'clock)
+
+1. [What Nobody Tells You About The Downswing! - ( Best Drill Ever) | 2024](https://www.youtube.com/watch?v=rdb6ot2CgE0&t=10m53s)
+   - [0m00s] Leave room between the right shoulder and the chin at P7.5
+   - [4m25s] Drill 1: Keep thighs pointing 1 o'clock to 1:30 "for a split second" at the start of the downswing?
+   - [6m45s] Drill 2: Right shoulder down | Left foot big toe remains on the ground | Right foot rolls left
+   - [10m53s] Drill 3: Two clubs on the ground | A third club placed across your chest | Rotate back until club 3
+     is parallel to club 1 | Right leg will be extended and drawn back | Then shift so club 3 is parallel to club 2
+
+
 ## Impact position
 
 1. [Why 99% Of Amateurs don’t start the Downswing correctly! | 2024](https://www.youtube.com/watch?v=KSEyIaS3GBQ)

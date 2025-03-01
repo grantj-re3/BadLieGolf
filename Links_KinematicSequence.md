@@ -39,17 +39,13 @@
 
 ## Channels which seem to strongly apply the Kinematic Sequence
 
-1. :thumbsup: [Erika Larkin](Links_ErikaLarkin.md)
-1. :thumbsup: [World Class Golf - Craig Hanson & Dr. Rob Neal](Links_WorldClassGolf.md)
-1. :thumbsup: [Herman Williams Golf](Links_HermanWilliams.md)
-1. :thumbsup: [MyGolfDNA - Chris Tyler](Links_MyGolfDNA.md)
-   - Transition | sit down | post up | release
-
-1. :thumbsup: [Jonathan Kim-Moss Golf](Links_JonathanKimMoss.md)
-   - Release section
-
-1. :thumbsup: [Steve Pratt Golf](https://www.youtube.com/@Inmotion70)
-1. :thumbsup: [CHAGOL TV - Charlie Takaoki](Links_CHAGOLTV.md)
+[Erika Larkin](Links_ErikaLarkin.md) |
+[World Class Golf - Craig Hanson & Dr. Rob Neal](Links_WorldClassGolf.md) |
+[Herman Williams Golf](Links_HermanWilliams.md) |
+[MyGolfDNA - Chris Tyler](Links_MyGolfDNA.md) |
+[Jonathan Kim-Moss Golf](Links_JonathanKimMoss.md) |
+[Steve Pratt Golf](https://www.youtube.com/@Inmotion70) |
+[CHAGOL TV - Charlie Takaoki](Links_CHAGOLTV.md)
 
 
 ## Setup / address

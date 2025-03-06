@@ -116,7 +116,7 @@
 
 1. [ChrisRyanGolf | How To RELEASE The Golf Club - This Will BLOW YOUR MIND (video) | 2023](https://www.youtube.com/watch?v=YrNu0DKB3ys)
 
-1. [Jonathan Kim-Moss Golf](Links_JonathanKimMoss.md)
+1. [Jonathan Kim-Moss Golf](people/Links_JonathanKimMoss.md)
 
 1. [Scratch Golf Academy: Adam Bazalgette | How To Release The Golf Club (DO THIS!) (video) | 2019](https://www.youtube.com/watch?v=QGMMjaL68Ac)
 

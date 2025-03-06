@@ -29,7 +29,7 @@ off the toe of the club)! You may be able to look for ball impact marks by:
 
 1. [Golf Coach: Dr. Noel | SIMPLE SHANK FIX - MAIN CAUSES PLUS DRILLS | 2023](https://www.youtube.com/watch?v=OnA7mQY8Cs8)
 
-1. [MyGolfDNA - Chris Tyler](Links_MyGolfDNA.md)
+1. [MyGolfDNA - Chris Tyler](people/Links_MyGolfDNA.md)
 
 1. [Kerrod Gray Golf | Simple Way To Fix The Shank | 3 Main Causes (video) | 2021](https://www.youtube.com/watch?v=SRVWhGQRmM8)
    1. *Check your setup*, 3m04s:

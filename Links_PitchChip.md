@@ -218,7 +218,7 @@
 
 ## Chip shots
 
-1. [Dan Grieve | Various chipping, pitching & bunker shot videos](Links_DanGrieve.md)
+1. [Dan Grieve | Various chipping, pitching & bunker shot videos](people/Links_DanGrieve.md)
    - Excellent explanations and demos
    - Best known for the *Three Releases* system
    - Book/ebook: *3 Releases: The Short Game System: Transform Your Technique & Thinking, 2022*

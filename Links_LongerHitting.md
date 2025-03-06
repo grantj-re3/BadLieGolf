@@ -22,5 +22,5 @@
      | More hip-turn during take back (i.e. wind up) | More shoulder-turn during take back (i.e. wind up) | More looseness in the swing
 
 1. [Steve Pratt Golf | The 3 MOST IMPORTANT Moves in the Golf Swing! | 2022](https://www.youtube.com/watch?v=s5VHLRFIaUA)
-1. [Mike Austin Swing](Links_AustinSwing.md)
+1. [Mike Austin Swing](people/Links_AustinSwing.md)
 

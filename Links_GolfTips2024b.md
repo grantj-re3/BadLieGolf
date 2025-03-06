@@ -42,7 +42,7 @@
 
 ## Long game
 
-1. [Jonathan Kim-Moss Golf](Links_JonathanKimMoss.md)
+1. [Jonathan Kim-Moss Golf](people/Links_JonathanKimMoss.md)
    - Releasing the Golf Club | PERFECT FOLLOW THROUGH WITH 3 MOVES | ...and others
 
 1. [JChownGolf: Jonathan Chown | He's 76 Years Old & Hits Driver 270+ Yards. Heres How (video) | 2024](https://www.youtube.com/watch?v=kLk7mkLbEtc)

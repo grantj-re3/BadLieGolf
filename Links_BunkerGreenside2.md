@@ -75,9 +75,9 @@
 1. [Golf: Zephyr Melton | 5 easy steps to get up-and-down from the bunker like a pro | 2021](https://golf.com/instruction/bunker-shots/how-to-hit-bunker-shot-five-tips/)
    - Club selection | Evaluate sand | Set clubface | Adjust setup | Steepen swing
 
-1. [Dan Grieve | Many of his videos include bunker shots](Links_DanGrieve.md)
-1. [Porzak Golf | Several videos are about bunker shots](Links_PorzakGolf.md)
-1. [Padraig Harrington | Several videos are about bunker shots](Links_PadraigHarrington.md)
+1. [Dan Grieve | Many of his videos include bunker shots](people/Links_DanGrieve.md)
+1. [Porzak Golf | Several videos are about bunker shots](people/Links_PorzakGolf.md)
+1. [Padraig Harrington | Several videos are about bunker shots](people/Links_PadraigHarrington.md)
 
 1. [Gaz's Golf | NEVER THIN A Bunker Shot Again | Full Bunker Lesson | 2022](https://www.youtube.com/watch?v=dz_ImzjwgQk)
    - Weight forward means the following are in a vertical line: left shoulder | left hip | left knee | left foot

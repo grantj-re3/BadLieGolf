@@ -52,10 +52,10 @@
 
 ### Right arm at address
 
-1. [Steve Pratt Golf | Right Arm Throw Action in Detail - For Incredible Clubhead Speed! | 2020](https://www.youtube.com/watch?v=KZzGHAKx2c0&t=1m59s)
+1. [Steve Pratt Golf | Right Arm Throw Action in Detail - For Incredible Clubhead Speed! (video) | 2020](https://www.youtube.com/watch?v=KZzGHAKx2c0&t=1m59s)
    - [1m59s - 2m52s]
-1. [Coach Lockey | Start Your Right Arm Like This. You Will Rip It!! (Golf Swing Cheat) | 2025](https://www.youtube.com/watch?v=H02DljUoO2M&t=1m34s)
-1. [Kerrod Gray Golf & Alex Clapp | How to Position the Arms at Address on Golf Course - Perfect Setup Every Time! | 2022](https://www.youtube.com/watch?v=o2aTBJoLoX8&t=2m56s)
+1. [Coach Lockey | Start Your Right Arm Like This. You Will Rip It!! (Golf Swing Cheat) (video) | 2025](https://www.youtube.com/watch?v=H02DljUoO2M&t=1m34s)
+1. [Kerrod Gray Golf & Alex Clapp | How to Position the Arms at Address on Golf Course - Perfect Setup Every Time! (video) | 2022](https://www.youtube.com/watch?v=o2aTBJoLoX8&t=2m56s)
    - [2m56s-3m44s] and [6m29-7m25s]
 
 
@@ -64,9 +64,9 @@
 1. [ChrisRyanGolf | PERFECT GOLF SWING SEQUENCE (video) | 2016](https://www.youtube.com/watch?v=q-lBOZzsaj4&t=48s)
 1. Golf Coach: Dr. Noel
    - [Learn the Pro Golf Swing Sequence for Effortless Power (video) | 2023](https://www.youtube.com/watch?v=9aeUOVFW3Io)
-   - [Are You Missing out on the Effortless Speed From Your Levers | 2023](https://www.youtube.com/watch?v=H9p7g8EmxFI)
+   - [Are You Missing out on the Effortless Speed From Your Levers (video) | 2023](https://www.youtube.com/watch?v=H9p7g8EmxFI)
 
-1. [RotarySwing.com Golf Instruction: Chuck Quinton | The Key Secrets To Being a Consistent Ball Striker - How to Stop Casting and Swinging Over the Top | 2021](https://www.youtube.com/watch?v=Bl9DSthiUiM&t=11m56s)
+1. [RotarySwing.com Golf Instruction: Chuck Quinton | The Key Secrets To Being a Consistent Ball Striker - How to Stop Casting and Swinging Over the Top (video) | 2021](https://www.youtube.com/watch?v=Bl9DSthiUiM&t=11m56s)
 1. [Lucas Wald | Can You Make a Perfect Slow Motion Golf Swing? (video) | 2017](https://www.youtube.com/watch?v=ra3c5XSpGZ0)
 1. [Visual Golf | Adam Scott Golf Swing Sequence and Slowmotion (video) | 2023](https://www.youtube.com/watch?v=akoPRy4k5Zg)
 1. [Paul Wilson Golf | Golf Instruction - How To Get That Slow Easy Swing (video) | 2012](https://www.youtube.com/watch?v=rFxh7hhXwjI)
@@ -81,6 +81,23 @@
 
 
 ## Decelaration sequence at release
+
+1. Malaska Golf
+   - [Maximize Your Driver Distance With the Correct Sequence of Skills (video) | 2024](https://www.youtube.com/watch?v=YXj-TC0ctwk)
+     * Let the Momentum of the Club Work | The Sound of Speed | How Your Hands Work for Speed |
+       Removing Tension In Your Arms | Creating the Sequence
+
+   - [LIVE / DISTANCE / Episode 2: Where Speed Really Comes From (video) | 2020](https://www.youtube.com/watch?v=9h7ACG5AiLg)
+     * 57 minute video of live streamed instruction
+     * [0m00s] Loose/tension-free shoulders, hands and wrists yield more power than body rotation or hip rotation
+     * [16m41s] If the body moves correctly, it can help accelerate the arms and club head
+     * [26m24s] During the downswing the lateral movement stops, then the left hip moves back to accelerate the club head
+     * [31m20s] Use the ground to push away from the arc of the club (not up) | Summary
+     * [36m52s] How to use your hands/wrists to hit straight (i.e. reduce dispersion)
+     * [39m26s] Beware trying to copy some pro-golfer moves which may result in injury
+       + We want control first, then speed
+       + Efficiency: We want the effort to come down and speed to go up
+     * [48m52s] He tries to teach the easiest and most efficient way to play golf
 
 1. RotarySwing.com Golf Instruction: Chuck Quinton
    - [How to Add Power to Your Golf Swing: The Secret of Snapping the Club for Maximum Distance (video) | 2023](https://www.youtube.com/watch?v=MVwA55N-poc)

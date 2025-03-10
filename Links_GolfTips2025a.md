@@ -40,6 +40,8 @@
 
 1. [MyGolfSpy: Brittany Olizarowicz | Best Golf Transition Drills (4 to try) | 2024](https://mygolfspy.com/news-opinion/best-golf-transition-drills-4-to-try/) -- watch videos 1 & 4
 
+1. [Eric Cogorno Golf | This ONE Hip Move Could Fix Your Entire Swing w/ Mike Malaska (Revisited) (video) | 2024](https://www.youtube.com/watch?v=gjKaUpz1dCA)
+
 
 ## Downswing
 

@@ -34,6 +34,8 @@
 1. :thumbsup: [Giles Gill Golf | EVERYTHING You Need To Know About Rotating In The Downswing! (video) | 2023](https://www.youtube.com/watch?v=ZAe8FrO33Jo)
    - Drill for how much hip rotation we have | Wall drag drill | Chopsticks drill | Preset impact drill
 
+1. [Billy Fitzgerald Golf](people/Links_BillyFitzgerald.md)
+
 1. [Milo Lines Golf | 5 Keys To Building A Rotational Golf Swing (video) | 2021](https://www.youtube.com/watch?v=dEHn9i9H618&t=1m47s)
    - Key #4: Ground work (from the start to the finish of the swing)
    - Although only about half of the video is about transition, it's worth watching it all

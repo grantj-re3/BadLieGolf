@@ -59,3 +59,13 @@
    - [How To Start Your Downswing For Explosive Power (video) | 2017](https://www.youtube.com/watch?v=gHpwkrM7c9M)
    - [Arm Trick To Increase Lag In The Downswing (video) | 2018](https://www.youtube.com/watch?v=GYHROYn4TVY)
 
+
+## Driver & spin
+
+If you don't understand any of the Golf Analysis terms, go to
+[this glossary page](Links_Glossary.md) and look at the Trackman terms.
+
+1. [The Stephens Golf Center | Causes and fixes for Negative Attack Angle- Trackman Golf | 2015](https://www.youtube.com/watch?v=Fxo6IFzyopU)
+1. [Sydney Golf Tech (Greg Bayley) | How to optimise your driver spin | 2023](https://www.youtube.com/watch?v=l8WZJ7hPLqs)
+1. [Golf Monthly: Joel Tadman | What Loft Of Driver Should I Use? | 2024](https://www.golfmonthly.com/gear/gear-blog/what-loft-of-driver-should-i-use-69479) -- garden hose analogy
+

@@ -65,7 +65,24 @@
 If you don't understand any of the Golf Analysis terms, go to
 [this glossary page](Links_Glossary.md) and look at the Trackman terms.
 
-1. [The Stephens Golf Center | Causes and fixes for Negative Attack Angle- Trackman Golf | 2015](https://www.youtube.com/watch?v=Fxo6IFzyopU)
-1. [Sydney Golf Tech (Greg Bayley) | How to optimise your driver spin | 2023](https://www.youtube.com/watch?v=l8WZJ7hPLqs)
+1. [The Stephens Golf Center | Causes and fixes for Negative Attack Angle- Trackman Golf (video) | 2015](https://www.youtube.com/watch?v=Fxo6IFzyopU)
+1. [Alistair Davies Golf | Increase Distance By Reducing Backspin Spin With The Driver (video) | 2019](https://www.youtube.com/watch?v=b3EXNfMJ3Ss)
+1. [Sydney Golf Tech (Greg Bayley) | How to optimise your driver spin (video) | 2023](https://www.youtube.com/watch?v=l8WZJ7hPLqs)
+1. [GolfersRx | How Backspin Affects Your Driving Distance (video) | 2018](https://www.youtube.com/watch?v=zCgpk3WroDA)
 1. [Golf Monthly: Joel Tadman | What Loft Of Driver Should I Use? | 2024](https://www.golfmonthly.com/gear/gear-blog/what-loft-of-driver-should-i-use-69479) -- garden hose analogy
+
+
+### Data
+
+1. [My Golf Distance.com | Optimal Golf Distance Chart by Angle of Attack | c.2022](https://mygolfdistance.com/optimal-golf-distance-chart-by-angle-of-attack/)
+   - Web site: [How to add 135 yards to your drives](https://mygolfdistance.com/sim2/) |
+     [Average Driving Distance for Men and Women](https://mygolfdistance.com/average-driving-distance/) |
+     [Optimal Driving Distance Simulator](https://mygolfdistance.com/Simulators/OptimalSim.html)
+
+1. PING Optimal launch and spin chart
+   - I can't find the original document, but here are some references...
+   - [WRX Club Techs | Optimal launch and spin chart | 2022](https://forums.golfwrx.com/topic/1874426-optimal-launch-and-spin-chart/)
+   - [Mark Crossfield | How Far Should You Hit Your Driver - The Truth Exposed Stop The LIES (video) | 2025](https://www.youtube.com/watch?v=BItjRJWAkMg&t=6m38s)
+
+1. [PING: Chris Broadie | Unlocking Distance: Launch Conditions and Angle of Attack | c.2020](https://ping.com/en-us/blogs/proving-grounds/optimal-launch-and-spin)
 

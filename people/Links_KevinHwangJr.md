@@ -71,7 +71,7 @@ Many of his videos are short, 2 to 10 minutes
    - [1m00s] Drill #1a: L-to-L drill | Lift trail foot when the club moves to the lead side | Repeat continuously
    - [2m32s] Drill #1b: Make a normal swing | Hit the ball | During the follow through, step towards target with your trail foot
    - [3m06s] Drill #2: Re-center step-drill: Feet together | Towards the top of the backswing | Lead foot steps towards target | Complete the swing
-   - [3m50s] Drill #3: At the top | Side-bend while upper body fall towards the target
+   - [3m50s] Drill #3: At the top | Side-bend while upper body falls towards the target
 
 
 ## Wrists
@@ -80,7 +80,7 @@ Many of his videos are short, 2 to 10 minutes
    - Aim: To get the left/lead knuckles to point more towards the ground without hooking the ball
    - [1m07s] 1: Supinated release: Lead hand phone drill
    - [2m23s] 2a: At about P8: Clubhead remains outside the hands | Clubhead and glove logo point towards the ground
-   - [3m19s] 2b: Lead elbow should point towards the target
+   - [3m19s] 2b: When shoulders are square? (P1 & P6): Lead elbow should point towards the target
    - [4m11s] 3: Need the correct sequence, i.e. a delayed/late hit (avoid a "hit impulse" early in the downswing)
 
 1. [How to create effortless power in the golf swing and gain distance along the way! (video) | 2024](https://www.youtube.com/watch?v=pJ6XV4Nbwkk)

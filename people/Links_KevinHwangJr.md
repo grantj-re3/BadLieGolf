@@ -43,25 +43,33 @@
      "Pump" [lower?] body to setup position (P6) 3 times | On the 3rd pump, "throw" the club and complete the swing
 
 
-## Transition
+## Transition and shift
 
 1. :thumbsup: [[ GOLF LESSON ] 3 Drills To Immediately Fix Your Early Extension | 2023](https://www.youtube.com/watch?v=XXlUGy-nuUQ)
    - Ensure that your lead hip does not move towards the ball during the backswing
    - During the backswing: lead hip stays in place and trail hip moves back | During the downswing: trail hip stays in place and lead hip moves back
    - Drill #1: At the top (P4) the starting move down is to push your butt back by 2-3 inches | Be patient | Then swing towards the target |
-     Perform the 2 pieces separately, then later blend together
+     Perform the 2 pieces separately, then later blend together | [A variation on this drill](https://www.youtube.com/watch?v=OgaPfvYNhHg&t=2m35s)
    - Drill #2: Feel the pelvis point towards the ground: As per drill 1 but setup with the trail leg behind the lead leg |
      Feel like the trail knee stays behind the lead knee forever
    - Drill #3a: As per drill 2, but hold the clubhead at your belly button with the shaft pointing away from your body |
      Ensure the shaft points towards the ground after the transition
    - Drill #3b: Extreme pelvis feel: Ensure that after the transition, you can hold a golf ball in your trail-side hip-crease
 
+1. [Golf Drill To Get Right Into The Slot | 2023](https://www.youtube.com/watch?v=-rnpn5p_B5U)
+   - Aim: To get a feel for the transition pause
+   - Loose grip pressure | Make a 3/4 backswing (to about P3/P5) | Briefly let go of the grip then re-grip | Then swing
+
 1. [Golf Transition Feel | 2023](https://www.youtube.com/watch?v=QCvq5PQ1EKQ)
    - Relax arms at the top | Pelvis folds and points towards the ground (lower body unwinds) | Club falls into a good plane
    - Only when you get into this position should you think about hitting the ball
 
+1. [[ GOLF LESSON ] 3 Drills To Immediately Shift Your Weight Forward | 2023](https://www.youtube.com/watch?v=e6ExlgOny0Y)
+
 
 ## Wrists
+
+1. [This secret move will take your ball striking to the next level! (Every tour pro does this!) | 2025](https://www.youtube.com/watch?v=Q8jM-6sC_AU)
 
 1. [How to create effortless power in the golf swing and gain distance along the way! (video) | 2024](https://www.youtube.com/watch?v=pJ6XV4Nbwkk)
    - [0m58s] Hit the ball with the weight of the club head:
@@ -77,4 +85,9 @@
 
 1. :thumbsup: [Stop Swaying In The Golf Swing With Proper Footwork | 2023](https://www.youtube.com/watch?v=xoHiv86uC6o)
    - During the backswing, keep the pressure on the inside of your trail foot (which can help you "push off" during the downswing)
+
+
+## Other
+
+1. [Fix All Your Downswing Faults w/ this One Simple Drill! | 2024](https://www.youtube.com/watch?v=W37H8T8TMcU)
 

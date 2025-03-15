@@ -1,5 +1,8 @@
 # Kevin Hwang Jr
 
+Many of his videos are short, 2 to 10 minutes
+
+
 ## Effortless swing speed
 
 1. [This downswing secret will help you gain effortless distance! (video) | 2024](https://www.youtube.com/watch?v=CRFPsAkFIF0)
@@ -65,20 +68,26 @@
    - Only when you get into this position should you think about hitting the ball
 
 1. [[ GOLF LESSON ] 3 Drills To Immediately Shift Your Weight Forward | 2023](https://www.youtube.com/watch?v=e6ExlgOny0Y)
+   - [1m00s] Drill #1a: L-to-L drill | Lift trail foot when the club moves to the lead side | Repeat continuously
+   - [2m32s] Drill #1b: Make a normal swing | Hit the ball | During the follow through, step towards target with your trail foot
+   - [3m06s] Drill #2: Re-center step-drill: Feet together | Towards the top of the backswing | Lead foot steps towards target | Complete the swing
+   - [3m50s] Drill #3: At the top | Side-bend while upper body fall towards the target
 
 
 ## Wrists
 
 1. [This secret move will take your ball striking to the next level! (Every tour pro does this!) | 2025](https://www.youtube.com/watch?v=Q8jM-6sC_AU)
+   - Aim: To get the left/lead knuckles to point more towards the ground without hooking the ball
+   - [1m07s] 1: Supinated release: Lead hand phone drill
+   - [2m23s] 2a: At about P8: Clubhead remains outside the hands | Clubhead and glove logo point towards the ground
+   - [3m19s] 2b: Lead elbow should point towards the target
+   - [4m11s] 3: Need the correct sequence, i.e. a delayed/late hit (avoid a "hit impulse" early in the downswing)
 
 1. [How to create effortless power in the golf swing and gain distance along the way! (video) | 2024](https://www.youtube.com/watch?v=pJ6XV4Nbwkk)
-   - [0m58s] Hit the ball with the weight of the club head:
-     | During the downswing, let go of the angles you created
+   - [0m58s] Hit the ball with the weight of the club head: | During the downswing, let go of the angles you created
      | Feel that the club head drops *underneath* the golf ball
-   - [4m24s] Supinated release:
-     | If the clubhead remains outside of the hands, the ball will not hook left
-     | Use the wrists to deloft the clubface
-     | Freezer drill
+   - [4m24s] Supinated release: | If the clubhead remains outside of the hands, the ball will not hook left
+     | Use the wrists to deloft the clubface | Freezer drill
 
 
 ## Feet
@@ -90,4 +99,7 @@
 ## Other
 
 1. [Fix All Your Downswing Faults w/ this One Simple Drill! | 2024](https://www.youtube.com/watch?v=W37H8T8TMcU)
+1. [How To Keep Your Left Arm Straight | 2023](https://www.youtube.com/watch?v=p6kev3UMTGg)
+1. [Perfect Golf Swing Exercise | 2023](https://www.youtube.com/watch?v=4MDxf24pRIg)
+   - Visualise the club position near the top and finish without any body rotation
 

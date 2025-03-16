@@ -73,6 +73,8 @@ Many of his videos are short, 2 to 10 minutes
    - [3m06s] Drill #2: Re-center step-drill: Feet together | Towards the top of the backswing | Lead foot steps towards target | Complete the swing
    - [3m50s] Drill #3: At the top | Side-bend while upper body falls towards the target
 
+1. [Create a powerful golf swing with a proper weight shift! | 2024](https://www.youtube.com/watch?v=aR-gdDW1l-s)
+
 
 ## Wrists
 
@@ -90,10 +92,12 @@ Many of his videos are short, 2 to 10 minutes
      | Use the wrists to deloft the clubface | Freezer drill
 
 
-## Feet
+## Footwork
 
 1. :thumbsup: [Stop Swaying In The Golf Swing With Proper Footwork | 2023](https://www.youtube.com/watch?v=xoHiv86uC6o)
    - During the backswing, keep the pressure on the inside of your trail foot (which can help you "push off" during the downswing)
+
+1. [Copy Tiger Wood’s footwork and take your golf game to the next level! | 2025](https://www.youtube.com/watch?v=rPxF3Fvc-j4)
 
 
 ## Other

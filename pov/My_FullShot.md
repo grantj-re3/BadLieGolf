@@ -14,7 +14,7 @@ Downswing          | KevinH
 Downswing footwork | BillyF
 Finish             | RichardR
 Finish footwork    | JonathanKM
-Kinematic Sequence | KevinH, JonathanKM
+Kinematic Sequence | KevinH, JonathanKM, MikeM
 
 
 ## Legend
@@ -26,6 +26,6 @@ BillyF       | [Billy Fitzgerald Golf](../people/Links_BillyFitzgerald.md)
 ErikaL       | [Erika Larkin](../people/Links_ErikaLarkin.md)
 JonathanKM   | [Jonathan Kim-Moss Golf](../people/Links_JonathanKimMoss.md)
 KevinH       | [Kevin Hwang Jr](../people/Links_KevinHwangJr.md)
-MikeM        | [Malaska Golf](https://www.youtube.com/@MalaskaGolf)
+MikeM        | Malaska Golf (see [here](../Links_KinematicSequence.md) & [here](../Links_GolfTips2025a.md))
 RichardR     | Richard Rice Golf (see [here](../Links_GolfTips2025a.md))
 

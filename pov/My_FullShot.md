@@ -1,20 +1,20 @@
 # My *aspirational* full shot
 
-Golf swing aspect  | People/coaches who teach this aspect
--------------------|-------------------------------------
-Grip               | All
-Setup              | All
+Golf swing aspect    | People/coaches who teach this aspect
+---------------------|-------------------------------------
+Grip                 | All
+Setup                | All
 Loose hands, arms & lateral tug | ErikaL
-Backswing          | -
-Backswing footwork | KevinH
-Straight left arm  | JonathanKM
-Recenter           | All
-Clear hips / sit / squat | JonathanKM, MikeM, BillyF, KevinH
-Downswing          | KevinH
-Downswing footwork | BillyF
-Finish             | RichardR
-Finish footwork    | JonathanKM
-Kinematic Sequence | KevinH, JonathanKM, MikeM
+Backswing            | -
+Backswing footwork   | KevinH
+Straight left arm    | JonathanKM
+Transition: Recenter | -
+Transition: Separation / clear hips / sit / squat | JonathanKM, MikeM, BillyF, KevinH
+Downswing            | KevinH
+Downswing footwork   | BillyF
+Finish               | RichardR
+Finish footwork      | JonathanKM
+Kinematic Sequence   | KevinH, JonathanKM, MikeM
 
 
 ## Legend

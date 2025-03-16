@@ -1,25 +1,26 @@
 # Golf grip and pressure
 
-1. [Rob Cheney Golf | The Golf Grip and Pressure Points - Unlock the Key to Better Golf | 2024](https://www.youtube.com/watch?v=C8JDlLaMpC4)
-1. [The Par Train | How to Grip the Golf Club Perfectly | The Best Grip Tutorial I've Ever Heard | 2024](https://www.youtube.com/watch?v=9Pu7ksj-rtM)
-1. [Scratch Golf Academy | Correct Understanding of Grip Pressure in Golf | 2023](https://www.youtube.com/watch?v=aSYxtVKCfQI)
-1. [Golf Coach: Dr. Noel | How to Form the Perfect Golf Grip | 2013](https://www.youtube.com/watch?v=LxN9sRQV-bM)
+1. [Erika Larkin](people/Links_ErikaLarkin.md)
+1. [Rob Cheney Golf | The Golf Grip and Pressure Points - Unlock the Key to Better Golf (video) | 2024](https://www.youtube.com/watch?v=C8JDlLaMpC4)
+1. [The Par Train | How to Grip the Golf Club Perfectly | The Best Grip Tutorial I've Ever Heard (video) | 2024](https://www.youtube.com/watch?v=9Pu7ksj-rtM)
+1. [Scratch Golf Academy | Correct Understanding of Grip Pressure in Golf (video) | 2023](https://www.youtube.com/watch?v=aSYxtVKCfQI)
+1. [Golf Coach: Dr. Noel | How to Form the Perfect Golf Grip (video) | 2013](https://www.youtube.com/watch?v=LxN9sRQV-bM)
 
-1. [Meandmygolf | How To Build The "PERFECT" Golf Grip...Avoid These KILLER Mistakes! | 2023](https://www.youtube.com/watch?v=vW6i3IUTcq4)
-1. [MAKE THE TURN | Golf Grip Pressure Secret! | 2016](https://www.youtube.com/watch?v=x6jNDGpZJmo)
+1. [Meandmygolf | How To Build The "PERFECT" Golf Grip...Avoid These KILLER Mistakes! (video) | 2023](https://www.youtube.com/watch?v=vW6i3IUTcq4)
+1. [MAKE THE TURN | Golf Grip Pressure Secret! (video) | 2016](https://www.youtube.com/watch?v=x6jNDGpZJmo)
 
 
 ## Too much thumb pressure
 
-1. [RotarySwing.com Golf Instruction | Golf Left Thumb: Fix Pain, Soreness, Casting | 2023](https://www.youtube.com/watch?v=maR95trjSuE)
-1. [Overhand Golf | THUMBS ARE BAD FOR GOLF!? [Golf Grip Secret] | 2020](https://www.youtube.com/watch?v=YxM8hd6Ojmo)
+1. [RotarySwing.com Golf Instruction | Golf Left Thumb: Fix Pain, Soreness, Casting (video) | 2023](https://www.youtube.com/watch?v=maR95trjSuE)
+1. [Overhand Golf | THUMBS ARE BAD FOR GOLF!? [Golf Grip Secret] (video) | 2020](https://www.youtube.com/watch?v=YxM8hd6Ojmo)
 
 
 ## Pros: Varying opinion about grip pressure
 
-1. [Golf Channel | Correct Grip Pressure Tips | Golf Channel | 2015](https://www.youtube.com/watch?v=q5r6J5DIEt4) - Ian Woosnam
-1. [Golf Secrets | The BEST Golf Grip Lesson on YouTube | The Legend Tom Watson | 2023](https://www.youtube.com/watch?v=LTHQtOX1fac)
-1. [Padraig Harrington | HOW TO GRIP YOUR GOLF CLUB CORRECTLY | Paddy's Golf Tip #33 | 2022](https://www.youtube.com/watch?v=JxHly2uvHQs)
+1. [Golf Channel | Correct Grip Pressure Tips | Golf Channel (video) | 2015](https://www.youtube.com/watch?v=q5r6J5DIEt4) - Ian Woosnam
+1. [Golf Secrets | The BEST Golf Grip Lesson on YouTube | The Legend Tom Watson (video) | 2023](https://www.youtube.com/watch?v=LTHQtOX1fac)
+1. [Padraig Harrington | HOW TO GRIP YOUR GOLF CLUB CORRECTLY | Paddy's Golf Tip #33 (video) | 2022](https://www.youtube.com/watch?v=JxHly2uvHQs)
 
 
 ## Common themes
@@ -39,6 +40,6 @@
 
 ## Less conventional grip pressure ideas
 
-1. [Golf with Aimee | A Secret to Perfect Grip | Golf with Aimee | 2015](https://www.youtube.com/watch?v=gQpiOl5jj88)
+1. [Golf with Aimee | A Secret to Perfect Grip | Golf with Aimee (video) | 2015](https://www.youtube.com/watch?v=gQpiOl5jj88)
    - Although the words are unconventional, the look appears fairly conventional to me
 

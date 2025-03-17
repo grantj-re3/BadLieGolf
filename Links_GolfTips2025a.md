@@ -86,3 +86,13 @@ If you don't understand any of the Golf Analysis terms, go to
 
 1. [PING: Chris Broadie | Unlocking Distance: Launch Conditions and Angle of Attack | c.2020](https://ping.com/en-us/blogs/proving-grounds/optimal-launch-and-spin)
 
+
+## Golf podcasts
+
+1. [Adam Young/Jon Sherman | The Sweet Spot (podcast)](https://podcasts.apple.com/us/podcast/the-sweet-spot-golf-podcast/id1552917994)
+1. [Mark Immelman | On the Mark (podcast)](https://podcasts.apple.com/us/podcast/on-the-mark-golf-podcast/id1096925460)
+1. [Cordie Walker | Golf Science Lab (podcast)](https://podcasts.apple.com/us/podcast/golf-science-lab/id1049039619) and via [SoundCloud](https://soundcloud.com/golf-science-lab)
+1. [GolfWRX Radio (podcast)](https://podcasts.apple.com/us/podcast/golfwrx-radio/id1302185956) and  via [SoundCloud](https://soundcloud.com/golfwrx)
+
+[MyGolfSpy: Sean Fairholm | Our Top 10 Golf Podcasts | 2024](https://mygolfspy.com/news-opinion/our-top-10-golf-podcasts/)
+

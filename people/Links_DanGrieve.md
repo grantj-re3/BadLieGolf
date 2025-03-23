@@ -9,7 +9,7 @@ Short game expert. Specialises in:
 
 ## Dan Grieve
 
-1. [The Three Releases: Simplicity when chipping! | 2023](https://www.youtube.com/watch?v=SfaxE8Ec-hk)
+1. [The Three Releases: Simplicity when chipping! (video) | 2023](https://www.youtube.com/watch?v=SfaxE8Ec-hk)
    - How to easily alter ball flight and spin
    - You need an ok lie for releases 2 and 3
    - Release 1 - Chip and run:
@@ -56,28 +56,28 @@ Short game expert. Specialises in:
      * Hands remain close to the body
      * At the finish, the club goes *in the holster*
    - Demos:
-     * Release 2: [Stopping the dig! | 2023](https://www.youtube.com/watch?v=BS6x0DWAvqg)
+     * Release 2: [Stopping the dig! (video) | 2023](https://www.youtube.com/watch?v=BS6x0DWAvqg)
 
-1. [The Dan Grieve Short Game Practice Routine! 2024](https://www.youtube.com/watch?v=6AyhWS_gSI4)
+1. [The Dan Grieve Short Game Practice Routine! (video) | 2024](https://www.youtube.com/watch?v=6AyhWS_gSI4)
    - Release 1, 2 & 3
 
-1. [The setup and swing you need to hit perfect pitch shots | 2024](https://www.youtube.com/watch?v=pkv5TS32G78)
+1. [The setup and swing you need to hit perfect pitch shots (video) | 2024](https://www.youtube.com/watch?v=pkv5TS32G78)
 
-1. [The Top-5 Short Game Mistakes! | 2023](https://www.youtube.com/watch?v=M4dgOS_YbtQ)
+1. [The Top-5 Short Game Mistakes! (video) | 2023](https://www.youtube.com/watch?v=M4dgOS_YbtQ)
 
-1. [Adapting your short game to summer conditions | 2024](https://www.youtube.com/watch?v=tGxUhDdphFc)
+1. [Adapting your short game to summer conditions (video) | 2024](https://www.youtube.com/watch?v=tGxUhDdphFc)
    - Short game IQ
    - Club Selection | Mini Release 2 Shots | Grip Pressure | Bunker Play |
      Severe Slopes | Pitching | Hard Pan | The Rough | Putting off the green
 
-1. [Adjusting your short game for winter golf | 2023](https://www.youtube.com/watch?v=0iffBfVRJos)
+1. [Adjusting your short game for winter golf (video) | 2023](https://www.youtube.com/watch?v=0iffBfVRJos)
 
-1. [Dan Grieve | Dan and Collin Morikawa talk short game | 2024](https://www.youtube.com/watch?v=onss4R-RWh8&t=4m40s)
+1. [Dan Grieve | Dan and Collin Morikawa talk short game (video) | 2024](https://www.youtube.com/watch?v=onss4R-RWh8&t=4m40s)
    - [4m40s] Bunker section
      * Wide stance
      * Brace with knees outwards to help prevent knees from buckling (and bringing your level lower)
 
-1. [Dan Grieve | Rachel Drummond learns The Three Releases | A lesson with Dan | Episode 1 | 2024](https://www.youtube.com/watch?v=CfSoslFUdU0)
+1. [Dan Grieve | Rachel Drummond learns The Three Releases | A lesson with Dan | Episode 1 (video) | 2024](https://www.youtube.com/watch?v=CfSoslFUdU0)
 
 
 1. [Instagram: dangrievegolf](https://www.instagram.com/dangrievegolf/)
@@ -99,10 +99,10 @@ Short game expert. Specialises in:
 
 ## Other channels featuring Dan Grieve
 
-1. [Inci Mehmet | DAN GRIEVES TIPS FIXED MY YIPS! | 2024](https://www.youtube.com/watch?v=xJyi3BgBiDs&t=5m1s)
+1. [Inci Mehmet | DAN GRIEVES TIPS FIXED MY YIPS! (video) | 2024](https://www.youtube.com/watch?v=xJyi3BgBiDs&t=5m1s)
    - This video appears to be teaching/recapping release 1
 
-1. [Rick Shiels Golf | This Golf Lesson Changed my LIFE! | 2023](https://www.youtube.com/watch?v=4yLYYz_5Z8c)
+1. [Rick Shiels Golf | This Golf Lesson Changed my LIFE! (video) | 2023](https://www.youtube.com/watch?v=4yLYYz_5Z8c)
    [3m43s]
    - [6m30s] Release 1 - Chip and run (low trajectory)
      * 3/10 grip pressure (very loose)
@@ -148,27 +148,27 @@ Short game expert. Specialises in:
      * Feel the right arm move across your stomach after impact
    - [1h01m52s] Release 3 - Lob shot
 
-1. [On the Road with Iona | My Lesson With The Best Short Game Coach In The World! | 2024](https://www.youtube.com/watch?v=uahu3OKYsxs)
+1. [On the Road with Iona | My Lesson With The Best Short Game Coach In The World! (video) | 2024](https://www.youtube.com/watch?v=uahu3OKYsxs)
    - Golf IQ: What shot to play? Consider the following factors in this order: Lie first, then Landing zone and finally Loft
 
-1. [Gaz's Golf | I Had A Lesson With Best Coach In The World | 2023](https://www.youtube.com/watch?v=eknWaPzaTjs)
+1. [Gaz's Golf | I Had A Lesson With Best Coach In The World (video) | 2023](https://www.youtube.com/watch?v=eknWaPzaTjs)
 
-1. [GOLF LIFE: Jimmy Bullard | Can Dan Grieve TRANSFORM Jimmy Bullard’s Short Game?! | Road To The Open EP2 | 2024](https://www.youtube.com/watch?v=krnVlrGhC4A)
+1. [GOLF LIFE: Jimmy Bullard | Can Dan Grieve TRANSFORM Jimmy Bullard’s Short Game?! | Road To The Open EP2 (video) | 2024](https://www.youtube.com/watch?v=krnVlrGhC4A)
 
 1. Golf Monthly
    - [Beginners Guide To Chipping: Dan Grieve shares some expert advice and drills on the chipping basics | 2022](https://www.golfmonthly.com/videos/short-game-tips/beginners-guide-to-chipping)
-   - [HOW TO SPIN YOUR CHIP SHOTS... DAN GRIEVE'S TOP TIPS! | 2024](https://www.youtube.com/watch?v=bS_JWkq6hlY)
+   - [HOW TO SPIN YOUR CHIP SHOTS... DAN GRIEVE'S TOP TIPS! (video) | 2024](https://www.youtube.com/watch?v=bS_JWkq6hlY)
      * Release 1 & 2
-   - [LIVE BUNKER LESSON WITH DAN GRIEVE! 25 Handicap Golfer Fixed | 2024](https://www.youtube.com/watch?v=ntQ-YnlmyC4)
-   - [DAN GRIEVE ON HOW TO ESCAPE BAD LIES! Lesson With 8-Handicap Jess Ratcliffe | 2024](https://www.youtube.com/watch?v=-9BFSfcwPMY)
+   - [LIVE BUNKER LESSON WITH DAN GRIEVE! 25 Handicap Golfer Fixed (video) | 2024](https://www.youtube.com/watch?v=ntQ-YnlmyC4)
+   - [DAN GRIEVE ON HOW TO ESCAPE BAD LIES! Lesson With 8-Handicap Jess Ratcliffe (video) | 2024](https://www.youtube.com/watch?v=-9BFSfcwPMY)
      * Jess Ratcliffe
      * Tricky Shot Out The Rough
      * [Excerpt from above](https://www.youtube.com/watch?v=-L7Rqq_heaI)
 
 1. Jess Ratcliffe Golf
-   - [How I'm Learning Dan Grieve's Release 1 & 2 (From Dan's Book) | 2024](https://www.youtube.com/watch?v=ePrSvB21wdU)
+   - [How I'm Learning Dan Grieve's Release 1 & 2 (From Dan's Book) (video) | 2024](https://www.youtube.com/watch?v=ePrSvB21wdU)
 
 1. Golf Pride Grips
-   - [Short Game Series with Dan Grieve – Using Hand Placement on Grip to Control Trajectory | 2023](https://www.youtube.com/watch?v=M-f8ulaQqB8)
-   - [Short Game Series with Dan Grieve – Mastering Bunker Play with ALIGN | 2023](https://www.youtube.com/watch?v=T3LaSEjh410)
+   - [Short Game Series with Dan Grieve – Using Hand Placement on Grip to Control Trajectory (video) | 2023](https://www.youtube.com/watch?v=M-f8ulaQqB8)
+   - [Short Game Series with Dan Grieve – Mastering Bunker Play with ALIGN (video) | 2023](https://www.youtube.com/watch?v=T3LaSEjh410)
 

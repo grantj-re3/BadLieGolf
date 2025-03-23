@@ -4,7 +4,7 @@ Using biomechanics to create a flowing swing.
 
 1. [Be Better Golf | DR. KWON on BBG (playlist) | 2021-2022](https://www.youtube.com/playlist?list=PLK1sbUjAAin6M-ZGiShgaQEMH9ROC7VhA)
 
-1. [Be Better Golf | THE "PERFECT" DRILL | WORLD'S #1 GOLF scientist shows PROTOCOL that will IMPROVE EVERY GOLF SWING | 2021](https://www.youtube.com/watch?v=GJ1CENV84Cg)
+1. [Be Better Golf | THE "PERFECT" DRILL | WORLD'S #1 GOLF scientist shows PROTOCOL that will IMPROVE EVERY GOLF SWING (video) | 2021](https://www.youtube.com/watch?v=GJ1CENV84Cg)
    - Discusses the background and reasons for the drills
      * In his research, he used club head speed to assess how good a swing is from a mechanical perspective:
        + as higher club head speeds are correlated with lower handicaps
@@ -116,6 +116,6 @@ Using biomechanics to create a flowing swing.
    - Build pattern first: Club stays out and away; body turns.
    - Then step drills
 
-1. [Athletic Motion Golf | The One Drill EVERY Golfer NEEDS To Do! | 2022](https://www.youtube.com/watch?v=47NZwk4z-hA)
+1. [Athletic Motion Golf | The One Drill EVERY Golfer NEEDS To Do! (video) | 2022](https://www.youtube.com/watch?v=47NZwk4z-hA)
    - Similar to Dr Kwon stage 2 drill (but without any step)
 

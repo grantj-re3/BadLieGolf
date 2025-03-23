@@ -153,8 +153,8 @@ Also see:
 
 These ideas are components of the Mike Austin Swing.
 
-1. [Eric Cogorno Golf | Right Arm Throw Explained - Incredible Clubhead Speed | 2021](https://www.youtube.com/watch?v=hJ5scchaRPQ)
-1. [Eric Cogorno Golf | GOLF: Right Arm Throw Explained - YOUR QUESTIONS ANSWERED! | 2021](https://www.youtube.com/watch?v=ZWOR8CiNWtw)
+1. [Eric Cogorno Golf | Right Arm Throw Explained - Incredible Clubhead Speed (video) | 2021](https://www.youtube.com/watch?v=hJ5scchaRPQ)
+1. [Eric Cogorno Golf | GOLF: Right Arm Throw Explained - YOUR QUESTIONS ANSWERED! (video) | 2021](https://www.youtube.com/watch?v=ZWOR8CiNWtw)
 
    - Interesting address right arm position
    - Throw so that arms & club form a line at 45 degrees past impact

@@ -5,10 +5,11 @@ Golf swing aspect    | People/coaches who teach this aspect
 Grip                 | All
 Setup                | All
 Loose hands, arms & lateral tug | ErikaL
-Backswing            | -
+Backswing            | KevinH, JonathanKM
 Backswing footwork   | KevinH
+Right wrist at the top, P4/P5   | CraigH, JonathanKM
 Straight left arm    | JonathanKM
-Transition: Recenter | -
+Transition: Recenter | All, e.g. BillyF, JonathanKM
 Transition: Separation / clear hips / sit / squat | JonathanKM, MikeM, BillyF, KevinH
 Downswing            | KevinH
 Downswing footwork   | BillyF
@@ -23,6 +24,7 @@ Abbreviation | Person/coach
 -------------|-------------
 All          | Pretty much all coaches teach this swing aspect
 BillyF       | [Billy Fitzgerald Golf](../people/Links_BillyFitzgerald.md)
+CraigH       | [WorldClassGolf - Craig Hanson & Dr. Rob Neal](../people/Links_WorldClassGolf.md)
 ErikaL       | [Erika Larkin](../people/Links_ErikaLarkin.md)
 JonathanKM   | [Jonathan Kim-Moss Golf](../people/Links_JonathanKimMoss.md)
 KevinH       | [Kevin Hwang Jr](../people/Links_KevinHwangJr.md)

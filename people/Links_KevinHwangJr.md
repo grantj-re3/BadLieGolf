@@ -46,6 +46,16 @@ Many of his videos are short, 2 to 10 minutes
      "Pump" [lower?] body to setup position (P6) 3 times | On the 3rd pump, "throw" the club and complete the swing
 
 
+## Backswing
+
+1. [How to create a tour like backswing to create effortless power coming down! | 2024](https://www.youtube.com/watch?v=wbPmY4yB4hg)
+   - High hands at the top of the backswing come from spine being on an incline plane + greater rotation |
+     Fold your right arm towards your right shoulder |
+     A drill while standing vertical only has your right hand slightly above your shoulder
+
+1. [Fastest Way To Improve Your Backswing! | 2023](https://www.youtube.com/watch?v=AvZkv_ofwLc) -- Drill
+
+
 ## Transition and shift
 
 1. :thumbsup: [[ GOLF LESSON ] 3 Drills To Immediately Fix Your Early Extension | 2023](https://www.youtube.com/watch?v=XXlUGy-nuUQ)

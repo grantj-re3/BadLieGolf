@@ -6,8 +6,10 @@
 1. [HOW TO STOP RUSHING YOUR DOWNSWING (video) | 2024](https://www.youtube.com/watch?v=4TZqQDkhEIs)
 
 
-## Downswing / sequence / lag
+## Transition / downswing / sequence / lag
 
+1. [TRANSITION IN THE DOWNSWING (video) | 2023](https://www.youtube.com/watch?v=QvN1AAu8EPI)
+   - Recenter and drill
 1. [SEQUENCE OF THE GOLF SWING (video) | 2024](https://www.youtube.com/watch?v=lXEmb8TRNgg)
 1. [HOW TO CREATE LAG IN THE GOLF SWING (video) | 2024](https://www.youtube.com/watch?v=-f_b1DJrG_A)
 1. [ARM SPEED GOLF SWING (video) | 2024](https://www.youtube.com/watch?v=FmCt2R8rxHw)

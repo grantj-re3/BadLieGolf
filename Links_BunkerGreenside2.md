@@ -79,7 +79,7 @@
 1. [Porzak Golf | Several videos are about bunker shots](people/Links_PorzakGolf.md)
 1. [Padraig Harrington | Several videos are about bunker shots](people/Links_PadraigHarrington.md)
 
-1. [Gaz's Golf | NEVER THIN A Bunker Shot Again | Full Bunker Lesson | 2022](https://www.youtube.com/watch?v=dz_ImzjwgQk)
+1. :thumbsup: [Gaz's Golf | NEVER THIN A Bunker Shot Again | Full Bunker Lesson | 2022](https://www.youtube.com/watch?v=dz_ImzjwgQk)
    - Weight forward means the following are in a vertical line: left shoulder | left hip | left knee | left foot
    - Keep your weight forward during the whole backswing, down swing and follow through
    - For Gaz, the ball is only slightly forward of center
@@ -87,6 +87,8 @@
    - Tiger Woods feel: release the wrists before impact (so the bounce is in play)
    - Slow swing: implies finesse e.g. more reliable low point
    - Long swing: implies more speed
+
+1. [AlexElliottGolf | Golfing LEGEND Reveals FORGOTTEN Bunker Concept That YOU'LL QUICKLY USE (I HAVE!!) | 2025](https://www.youtube.com/watch?v=J1b_oVpRbk4) -- with Costantino Rocca
 
 1. [TaylorMade Golf | Rory McIlroy Teaches You Two Different Bunker Shots | 2023](https://www.youtube.com/watch?v=Vb2UCnI2G8U)
    - High flighted shot

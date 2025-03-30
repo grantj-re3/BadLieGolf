@@ -40,12 +40,17 @@
    - Key #4: Ground work (from the start to the finish of the swing)
    - Although only about half of the video is about transition, it's worth watching it all
 
+1. [The Scratch Plan | Hogan Says You Will Break 80 in 6 Months by Following "Ben Hogan's Five Lessons." Let's Try It! | 2024](https://www.youtube.com/watch?v=xafcHR8Lym8&t=7m30s)
+   - **Start downswing [by rotating] hips** (which brings arms down to your waist) | Then swing as hard as you can with both right arm and left arm
+   - Practice initiating the downswing with the hips | Visualise an elastic band pulling your left hip back
+   - Hogan says it's impossible to turn your hips too fast 
+
 1. [MyGolfSpy: Brittany Olizarowicz | Best Golf Transition Drills (4 to try) | 2024](https://mygolfspy.com/news-opinion/best-golf-transition-drills-4-to-try/) -- watch videos 1 & 4
 
 1. [Eric Cogorno Golf | This ONE Hip Move Could Fix Your Entire Swing w/ Mike Malaska (Revisited) (video) | 2024](https://www.youtube.com/watch?v=gjKaUpz1dCA)
 
 
-## Downswing
+## Shallow downswing
 
 1. [Performance Golf: JT Thomas | How to shallow the golf club to hit longer, straighter drives (video) | 2023](https://www.youtube.com/watch?v=jC0hXILPQT8)
 
@@ -54,10 +59,6 @@
 1. [Meandmygolf: Piers Ward & Andy Proudman | How To SHALLOW The Golf Club In The Downswing (video) | 2020](https://www.youtube.com/watch?v=tN8AO9nKSAQ)
 
 1. [Danny Maude | HOW TO SHALLOW OUT GOLF CLUB AND HIT IT LONGER (video) | 2018](https://www.youtube.com/watch?v=DxMvIKhKWdM&t=3m13s)
-
-1. Performance Golf: Matt Walter
-   - [How To Start Your Downswing For Explosive Power (video) | 2017](https://www.youtube.com/watch?v=gHpwkrM7c9M)
-   - [Arm Trick To Increase Lag In The Downswing (video) | 2018](https://www.youtube.com/watch?v=GYHROYn4TVY)
 
 
 ## Driver & spin

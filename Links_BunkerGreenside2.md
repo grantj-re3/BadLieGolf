@@ -82,8 +82,9 @@
 1. :thumbsup: [Gaz's Golf | NEVER THIN A Bunker Shot Again | Full Bunker Lesson | 2022](https://www.youtube.com/watch?v=dz_ImzjwgQk)
    - Weight forward means the following are in a vertical line: left shoulder | left hip | left knee | left foot
    - Keep your weight forward during the whole backswing, down swing and follow through
+   - Allow the **right hand** to pass [the clubhead] underneath the ball **without forward shaft lean**
    - For Gaz, the ball is only slightly forward of center
-   - Sternum 2-3 inches in front of the ball
+   - **Sternum 2-3 inches in front of the ball**
    - Tiger Woods feel: release the wrists before impact (so the bounce is in play)
    - Slow swing: implies finesse e.g. more reliable low point
    - Long swing: implies more speed

@@ -15,7 +15,7 @@
      * [Lose your fear]
      * Get down to a green side bunker facility and **draw a line behind the ball where you want to enter the sand**.
      * Remember to hinge your wrists on the way back and again on the way down after follow through.
-     * Slap that sand with the sole of the club using your right hand and finish your swing.
+     * **Slap that sand with the sole of the club using your right hand** and finish your swing.
    - Avoid:
      * Stiff wrists
      * Using a chipping technique
@@ -538,8 +538,8 @@ For a flat lie in soft sand...
      * Hit as close as I can to the ball
      * Accelerate
    - Tiger Woods:
-     * Hands "down and back"
-     * Release / throw with right hand
+     * Hands low / Hands back
+     * Release / **throw with right hand**
 
 
 ## The Rules of Golf: Bunkers

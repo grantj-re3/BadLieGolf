@@ -1,52 +1,65 @@
 # Greenside bunker shots - more links
 
 
-1. [The Art of Simple Golf | Every Golfer Gets Out of Any Bunker Every Time Doing This Simple Technique (video) | 2023](https://www.youtube.com/watch?v=k4AsDHJpzu4)
-   - He suggests a closed stance to get consistent entry point!!!
-   - Accelerate without losing your posture
-   - Sternum, top of the grip and club head in a straight line
-   - Do not sway
-   - 70% of weight on the front side
+1. The Art of Simple Golf
+   - [Every Golfer Gets Out of Any Bunker Every Time Doing This Simple Technique (video) | 2023](https://www.youtube.com/watch?v=k4AsDHJpzu4)
+     * He suggests a closed stance to get consistent entry point!!!
+     * Accelerate without losing your posture
+     * Sternum, top of the grip and club head in a straight line
+     * Do not sway
+     * 70% of weight on the front side
 
-1. [The Art of Simple Golf | This Bunker Shot Technique is SO EASY You’ll be Shocked (video) | 2022](https://www.youtube.com/watch?v=S9zJWFUnxVA)
-   - Drill: Without a ball, practice hitting the sand various distances
+   - [This Bunker Shot Technique is SO EASY You’ll be Shocked (video) | 2022](https://www.youtube.com/watch?v=S9zJWFUnxVA)
+     * Drill: Without a ball, practice hitting the sand various distances
 
-1. [The Art of Simple Golf | Divot Magic For Green Side Bunkers OUT Every Time (video) | 2024](https://www.youtube.com/watch?v=NJiiFZQLQaI)
-   - Swing thought: Take a divot in the bunker
-   - Swing thought: Let the club head throw the divot-sand onto the green
+   - [Divot Magic For Green Side Bunkers OUT Every Time (video) | 2024](https://www.youtube.com/watch?v=NJiiFZQLQaI)
+     * Swing thought: Take a divot in the bunker
+     * Swing thought: Let the club head throw the divot-sand onto the green
 
-1. [ChrisRyanGolf | AVOID THESE 3 KILLER MISTAKES IN THE BUNKER (video) | 2019](https://www.youtube.com/watch?v=U_kfhg4mBZM)
-   - Too much weight on the trail side
-   - Cutting across the golf ball
-   - The amount of sand taken [take a shallower parcel of sand]
+1. ChrisRyanGolf
+   - [AVOID THESE 3 KILLER MISTAKES IN THE BUNKER (video) | 2019](https://www.youtube.com/watch?v=U_kfhg4mBZM)
+     * Too much weight on the trail side
+     * Cutting across the golf ball
+     * The amount of sand taken [take a shallower parcel of sand]
 
-1. [ChrisRyanGolf | Bunker Play : The 5 Worst Mistakes And How To Easily Fix Them (video) | 2021](https://www.youtube.com/watch?v=VDZapXxnnlo)
-   - Setting the club face open
-   - Aligning too far open
-   - Ball position and weight [IMPORTANT]
-   - Length of backswing [check point: shaft points behind the back foot at the top of the backswing]
-   - Poor concept of impact [concept: club head travels *forwards* through the sand to carry the parcel
-     of sand onto the green; not the concept of hitting down into the sand]
+   - [Bunker Play : The 5 Worst Mistakes And How To Easily Fix Them (video) | 2021](https://www.youtube.com/watch?v=VDZapXxnnlo)
+     * Setting the club face open
+     * Aligning too far open
+     * Ball position and weight [IMPORTANT]
+     * Length of backswing [check point: shaft points behind the back foot at the top of the backswing]
+     * Poor concept of impact [concept: club head travels *forwards* through the sand to carry the parcel
+       of sand onto the green; not the concept of hitting down into the sand]
 
-1. [Golf Tips | Golf Pro Nick Faldo helps you get out of sand bunkers (video) | 2010](https://www.youtube.com/watch?v=fiFDnHmCG2Y)
-   - How to find your point of contact with the sand (i.e. impact point)
-   - On a flat portion of a practice bunker, draw a line in the sand
-   - Put your left heel on the line
-   - Stand slightly open
-   - Club head ahead of the line
-   - Address with the butt of the club pointing at your stomach
-   - At the top of the backswing (with arms nearly horizontal) shaft points towards the sky
-   - Synchronise the chest and arms to land the clubhead exactly on the line
-     * If the arms are too fast you will hit the sand before the line
-     * If the chest is too fast you will hit the sand after the line
-   - It may help if you pause at the top (during the drill)
-   - Repeat for uphill/downhill bunker lie
+1. Nick Faldo
+   - [Golf Tips | Golf Pro Nick Faldo helps you get out of sand bunkers (video) | 2010](https://www.youtube.com/watch?v=fiFDnHmCG2Y)
+     * How to find your point of contact with the sand (i.e. impact point)
+     * On a flat portion of a practice bunker, draw a line in the sand
+     * Put your left heel on the line
+     * Stand slightly open
+     * Club head ahead of the line
+     * Address with the butt of the club pointing at your stomach
+     * At the top of the backswing (with arms nearly horizontal) shaft points towards the sky
+     * Synchronise the chest and arms to land the clubhead exactly on the line
+       + If the arms are too fast you will hit the sand before the line
+       + If the chest is too fast you will hit the sand after the line
+     * It may help if you pause at the top (during the drill)
+     * Repeat for uphill/downhill bunker lie
 
-1. [Golfing World | Bunker Shots Made Easy! | Nick Faldo Bunker Tips | 2016](https://www.youtube.com/watch?v=u54LaR2lpeY)
-   - Mimic the pros... pick the one which works for you
-   - Gary Player: Weight on the left side of each foot | Strike a match (for speed on the downswing [with shallow divot])
-   - Seve Ballesteros: Steep backswing and follow through
-   - Ernie Els: Feel right heel off the ground (for a higher right shoulder) | Use the least power to get the job done
+   - [Golfing World | Bunker Shots Made Easy! | Nick Faldo Bunker Tips (video) | 2016](https://www.youtube.com/watch?v=u54LaR2lpeY)
+     * Mimic the pros... pick the one which works for you
+     * Gary Player: Weight on the left side of each foot | Strike a match (for speed on the downswing [with shallow divot])
+     * Seve Ballesteros: Steep backswing and follow through
+     * Ernie Els: Feel right heel off the ground (for a higher right shoulder) | Use the least power to get the job done
+
+   - [Learn to love the sand: Bunker shots with Sir Nick Faldo | 2020](https://golftoday.co.uk/learn-to-love-the-sand-bunker-shots-nick-faldo/)
+     * Drill: Swing your sand wedge with your right hand only: Open the clubface |
+       Stand slightly open to the direction of your swing | Focus on swinging the club freely |
+       Feel the acceleration as you release the right hand | Listen to the sound you make
+     * **When you release your right hand correctly, the clubhead accelerates** and that open clubface skims through the sand
+     * Aim the butt-end of the club toward your belly button
+     * Good bunker play is all about the arms and upper body; there is no weight shift to speak of and no need for any fancy footwork
+     * Your [upper] body must gently unwind and get through to **face the target**
+     * You’ll get the best results with the ball just forward of centre
 
 1. [Steve Johnston Golf | This Bunker Shot Technique is SO EASY You'll be Shocked (video) | 2024](https://www.youtube.com/watch?v=Vw7kMe9Cu3Y)
    - Hard sand [I like this technique]
@@ -79,7 +92,7 @@
 1. [Porzak Golf | Several videos are about bunker shots](people/Links_PorzakGolf.md)
 1. [Padraig Harrington | Several videos are about bunker shots](people/Links_PadraigHarrington.md)
 
-1. :thumbsup: [Gaz's Golf | NEVER THIN A Bunker Shot Again | Full Bunker Lesson | 2022](https://www.youtube.com/watch?v=dz_ImzjwgQk)
+1. :thumbsup: [Gaz's Golf | NEVER THIN A Bunker Shot Again | Full Bunker Lesson (video) | 2022](https://www.youtube.com/watch?v=dz_ImzjwgQk)
    - Weight forward means the following are in a vertical line: left shoulder | left hip | left knee | left foot
    - Keep your weight forward during the whole backswing, down swing and follow through
    - Allow the **right hand** to pass [the clubhead] underneath the ball **without forward shaft lean**
@@ -89,9 +102,9 @@
    - Slow swing: implies finesse e.g. more reliable low point
    - Long swing: implies more speed
 
-1. [AlexElliottGolf | Golfing LEGEND Reveals FORGOTTEN Bunker Concept That YOU'LL QUICKLY USE (I HAVE!!) | 2025](https://www.youtube.com/watch?v=J1b_oVpRbk4) -- with Costantino Rocca
+1. [AlexElliottGolf | Golfing LEGEND Reveals FORGOTTEN Bunker Concept That YOU'LL QUICKLY USE (I HAVE!!) (video) | 2025](https://www.youtube.com/watch?v=J1b_oVpRbk4) -- with Costantino Rocca
 
-1. [TaylorMade Golf | Rory McIlroy Teaches You Two Different Bunker Shots | 2023](https://www.youtube.com/watch?v=Vb2UCnI2G8U)
+1. [TaylorMade Golf | Rory McIlroy Teaches You Two Different Bunker Shots (video) | 2023](https://www.youtube.com/watch?v=Vb2UCnI2G8U)
    - High flighted shot
    - Lower shot which will run more [and easier in my view]
 
@@ -112,14 +125,20 @@
    - Know the slopes of the green and pick your landing spot
    - Have enough speed
 
-1. [MrShortGame Golf | 95% of Golfers Do This Wrong when in the Bunkers! (video) | 2023](https://www.youtube.com/watch?v=ivle23paCQk)
-   - Problem: Weight too far back.
-     * Fix: Put weight on the left heel (instead of left toes) to encourage left hip to open during the follow through.
-   - Problem: Too much forward shaft lean at impact.
-     * Fix: Take a longer backswing, then wait so that the club head starts the downswing.
-     * Fix: Let the club head pass your hands at impact.
-   - Problem: Ball too far back.
-     * Fix: Place the ball just inside the left heel which will be the center/bottom of the swing arc (when most of your weight is over the left leg).
+1. MrShortGame Golf
+   - [2 Bunker Tips that Make Playing from the Sand like Cheating! (video) | 2025](https://www.youtube.com/watch?v=xsWpz7AQlFA)
+     * Setup and hit like a driver (almost)
+     * Draw a square box (with sides the length of your shoe) | Place ball in the center |
+       Enter the sand between the edge of the box and the ball | Remove all sand from the box beyond the entry point
+
+   - [95% of Golfers Do This Wrong when in the Bunkers! (video) | 2023](https://www.youtube.com/watch?v=ivle23paCQk)
+     * Problem: Weight too far back.
+       + Fix: Put weight on the left heel (instead of left toes) to encourage left hip to open during the follow through.
+     * Problem: Too much forward shaft lean at impact.
+       + Fix: Take a longer backswing, then wait so that the club head starts the downswing.
+       + Fix: Let the club head pass your hands at impact.
+     * Problem: Ball too far back.
+       + Fix: Place the ball just inside the left heel which will be the center/bottom of the swing arc (when most of your weight is over the left leg).
 
 1. [The Golf Sensei | This Will Cure Your Fear of Bunker Shots Instantly (video) | 2024](https://www.youtube.com/watch?v=e_n5JsNeokA)
    - 3m50s In a "properly maintained bunker", for a 10 yard bunker shot you need to swing like a 30 yard shot from the turf (i.e. ratio of 1:3).

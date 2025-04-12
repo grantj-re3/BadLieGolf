@@ -3,7 +3,7 @@
 Many of his videos are short, 2 to 10 minutes
 
 
-## Effortless swing speed
+## Downswing: Effortless swing speed
 
 1. [This downswing secret will help you gain effortless distance! (video) | 2024](https://www.youtube.com/watch?v=CRFPsAkFIF0)
    - Focus on lower body and arms, the upper body will open up (rotate) naturally during the downswing
@@ -40,10 +40,13 @@ Many of his videos are short, 2 to 10 minutes
      Push butt back | Rotate back to setup position (about P6) with thumb still pointed to the sky |
      Release: swing arms towards the target
 
-1. [Dr Kwon Downswing Sequence Drill (video) | 2023](https://www.youtube.com/watch?v=9Xx0388lpks)
+1. :thumbsup: [Dr Kwon Downswing Sequence Drill (video) | 2023](https://www.youtube.com/watch?v=9Xx0388lpks)
    - Aims: Assists sequence feel | Reduces trail side dominant, over the top and pull-down (steep) feels
    - Drill: Rest iron on trail shoulder | Hold iron with lead hand | Move body to the top, P4 |
      "Pump" [lower?] body to setup position (P6) 3 times | On the 3rd pump, "throw" the club and complete the swing
+   - Similar video [here](https://www.youtube.com/watch?v=TzEVDwE24HI) with extra detail about:
+     Fold elbow and cock wrist at backswing / follow through |
+     lead arm does not have to be completely straight at the top
 
 
 ## Backswing
@@ -85,6 +88,11 @@ Many of his videos are short, 2 to 10 minutes
 
 1. [Create a powerful golf swing with a proper weight shift! (video) | 2024](https://www.youtube.com/watch?v=aR-gdDW1l-s)
 
+
+## Release
+
+1. [Please learn this simple release and gain effortless speed & distance! | 2025](https://www.youtube.com/watch?v=k1cpPJpPBYc)
+1. [The #1 reason why golfers lose distance w/ their driver & HOW TO FIX IT! | 2025](https://www.youtube.com/watch?v=ATlMIgaP9PM)
 
 ## Wrists
 

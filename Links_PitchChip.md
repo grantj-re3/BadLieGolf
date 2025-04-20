@@ -318,6 +318,22 @@
        + Don't always chip with your sand wedge or lob wedge; consider a 9 iron
 
 
+### Do not move down while chipping
+
+1. [Malaska Golf | Ask Mike // Shoulders Stay Level In Pitching and Chipping (video) | 2022](https://www.youtube.com/watch?v=KQMlHGtZPsA)
+   - Change your spine angle at setup so that shoulders are roughly level
+   - During the backswing and downswing, feel like your right shoulder stays up
+   - At impact, the right shoulder should be at the same height it was at address
+1. [MyTPI | Jeremy Paul's TPI Assessment: Identifying a Common Misconception in Short Game Technique (video) | 2025](https://www.youtube.com/watch?v=JSBS3vJEaD8&t=14m24s
+   - Chipping movement should be: left (towards target) | back (away from golf ball) | up (upward center of mass)
+   - [14m24s-17m49s] Chipping
+   - [17m49s-23m30s] Bunker
+1. [SwingStation | Chipping Impact - Short Game Lesson on Chipping (video) | 2013](https://www.youtube.com/watch?v=L9ZWsyg7fH4)
+   - Keep your right shoulder high and turning through impact
+1. [Andrew Rice Golf | Elevate Your Shortgame | 2022](https://www.andrewricegolf.com/andrew-rice-golf/2022/6/elevate-your-shortgame
+   - Move the upper body up through impact
+
+
 ## Flop shots
 
 1. [MrShortGame - Matt Fisher | How to Hit the Simple Golf Flop Shot! (video) | 2018](https://www.youtube.com/watch?v=VR-nMi4e9ko)

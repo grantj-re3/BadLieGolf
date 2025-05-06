@@ -2,6 +2,13 @@
 
 ## Chip shots
 
+1. :thumbsup: [Fore Play Golf | Kevin Kisner Fixes Weekend Golfer's Chipping Game (video) | 2019](https://www.youtube.com/watch?v=9E-gdx-o1sg)
+   - *The butt of your grip and the center of your chest have to move at the same rate all the time.*
+   - *Keep your elbow tucked into your side to help with the movement of your chest and pelvis through the ball.*
+   - For longer chips: It's not how much faster you can swing, it's how much bigger you can turn it all together at the same rate.
+   - Hit the ground under the ball. The wedge is designed to hit the ground.
+   - *Practice with the right arm only.* I feel it improves: Swing tempo | Body rotation | Ball/hand/shaft position | Ground interaction
+
 1. Giles Gill Golf
    - :thumbsup: [Why Your Chipping SUCKS & How To Fix It (video) | 2024](https://www.youtube.com/watch?v=hrAV6bq6ZxU)
      * Do not be afraid of making contact with the ground
@@ -21,13 +28,6 @@
        + [His finish position looks like T-Rex!]
      * Keep arms relaxed; at address, move the hands up to the belt buckle a couple of times
      * [He has a slow smooth transition where the downswing appears to start due to gravity]
-
-1. :thumbsup: [Fore Play Golf | Kevin Kisner Fixes Weekend Golfer's Chipping Game (video) | 2019](https://www.youtube.com/watch?v=9E-gdx-o1sg)
-   - The butt of your grip and the center of your chest have to move at the same rate all the time.
-   - Keep your elbow tucked into your side to help with the movement of your chest and pelvis through the ball.
-   - For longer chips: It's not how much faster you can swing, it's how much bigger you can turn it all together at the same rate.
-   - Hit the ground under the ball. The wedge is designed to hit the ground.
-   - Practice with one arm. It will help with body movement to get through the ball and make solid contact.
 
 1. :thumbsup: [James Ridyard | Fix your Chipping YIPS by using your KNEES! (video) | 2024](https://www.youtube.com/watch?v=TCoeM2HLVHw)
    - Consider setting the rhythm with a left foot "toe tap" during the take away
@@ -61,6 +61,7 @@
 
 1. :thumbsup: [Andy Carter Golf | CHIPPING SWING PATH EXPLAINED | No more FAT or THIN Shots (video) | 2021](https://www.youtube.com/watch?v=p6PpQqylC6I)
 1. [US GOLF TV: Todd Kolb | 30 Years of My Best Chipping Advice in Just 5 Minutes (video) | 2025](https://www.youtube.com/watch?v=bSBd3R3Ce8g)
+1. [Matthew Masters | The Importance of the “BRUSH & LOOK” When Playing Chip Shots | 2011](https://golfstateofmind.com/the-importance-of-the-brush-look-when-playing-chip-shots/)
 1. [Kellie Stenzel | 10 basic tips that can help golfers chip better than ever | 2021](https://golf.com/instruction/short-game/10-tips-golfer-chipping-better-than-ever/)
 
 

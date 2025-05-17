@@ -9,6 +9,8 @@ Short game expert. Specialises in:
 
 ## Dan Grieve
 
+1. :thumbsup: [From fear to finesse! How to regain confidence in your short game (video) | 2025](https://www.youtube.com/watch?v=xIZeoNyEYAc)
+
 1. [The Three Releases: Simplicity when chipping! (video) | 2023](https://www.youtube.com/watch?v=SfaxE8Ec-hk)
    - How to easily alter ball flight and spin
    - You need an ok lie for releases 2 and 3
@@ -164,6 +166,9 @@ Short game expert. Specialises in:
      * Jess Ratcliffe
      * Tricky Shot Out The Rough
      * [Excerpt from above](https://www.youtube.com/watch?v=-L7Rqq_heaI)
+   - [Dailymotion | Beginners Guide To Chipping | 2023](https://www.dailymotion.com/video/x8mr2oo)
+   - [Dailymotion | How To Chip And Pitch From Muddy Lies | 2022](https://www.dailymotion.com/video/x8ftm97)
+   - [Dailymotion | How To Play Bunker Shots | 2022](https://www.dailymotion.com/video/x8dnkil)
 
 1. Jess Ratcliffe Golf
    - [How I'm Learning Dan Grieve's Release 1 & 2 (From Dan's Book) (video) | 2024](https://www.youtube.com/watch?v=ePrSvB21wdU)

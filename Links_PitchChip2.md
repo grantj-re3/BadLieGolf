@@ -63,6 +63,7 @@
 1. [US GOLF TV: Todd Kolb | 30 Years of My Best Chipping Advice in Just 5 Minutes (video) | 2025](https://www.youtube.com/watch?v=bSBd3R3Ce8g)
 1. [Matthew Masters | The Importance of the “BRUSH & LOOK” When Playing Chip Shots | 2011](https://golfstateofmind.com/the-importance-of-the-brush-look-when-playing-chip-shots/)
 1. [Kellie Stenzel | 10 basic tips that can help golfers chip better than ever | 2021](https://golf.com/instruction/short-game/10-tips-golfer-chipping-better-than-ever/)
+1. [Gaz's Golf | THIS CHIPPING TIP CHANGED EVERYTHING! | 2023](https://www.youtube.com/watch?v=O6BUgaI_6tM)
 
 
 ## Chip shots: New points

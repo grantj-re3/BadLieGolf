@@ -10,6 +10,19 @@ Short game expert. Specialises in:
 ## Dan Grieve
 
 1. :thumbsup: [From fear to finesse! How to regain confidence in your short game (video) | 2025](https://www.youtube.com/watch?v=xIZeoNyEYAc)
+   - [4m27s] Elbows connected drill
+     * During practice consider: Holding a towel under the armpits | Pulling sleeves under the armpits | Tee up the ball for 10 reps
+   - [5m50s] Move club head away drill: Clubhead outside the hands
+   - Setup: Release 1 | Use less lofted club (e.g. 50°, PW or less) | Left shoulder over left foot | Level shoulders | More vertical shaft |
+     Flat left wrist | Elbows connected to the ribcage | Feet together with flared left foot | Push feet down
+   - Pre-shot routine: Slow tempo 1-2 | *Brush the turf 3 times* | Focus on landing spot (not outcome)
+   - *Start backswing with the back of the left shoulder*
+   - Swing motion: The chest is the engine | Move club head away (clubhead outside the hands) | Open up chest on the way through
+   - To overcome yips/fear:
+     * Focus on the process, not the outcome
+     * Don't initially practice to a pin, just land the ball on the green
+     * The goal is to achieve the nice sound of the clubhead brushing the turf during the shot
+     * *Don't remain looking down for too long before the shot: Glare at the landing spot | Settle | Breathe | Hit*
 
 1. [The Three Releases: Simplicity when chipping! (video) | 2023](https://www.youtube.com/watch?v=SfaxE8Ec-hk)
    - How to easily alter ball flight and spin

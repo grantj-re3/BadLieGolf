@@ -223,6 +223,12 @@
    - Best known for the *Three Releases* system
    - Book/ebook: *3 Releases: The Short Game System: Transform Your Technique & Thinking, 2022*
 
+1. [James Sieckmann | Various chipping, pitching, bunker shot & putting videos](people/Links_JamesSieckmann.md)
+   - Excellent explanations and demos
+   - Book/ebook: *Your Short Game Solution: Mastering the Finesse Game from 120 Yards and In*
+   - Book/ebook: *Your Putting Solution: A Tour-Proven Approach to Mastering the Greens*
+   - Book/ebook: *Cool Under Pressure - How The World’s Best Golfers Win The Game Within*
+
 1. [Wedge Matrix; James Ridyard | The EASIEST Chipping Technique you have EVER seen!! Forget (mostly) EVERYTHING you've been told (video) | 2022](https://www.youtube.com/watch?v=H-LVtlxpb0o)
 
 1. [Wedge Matrix; James Ridyard | My 5 Best Chipping Drills - These REALLY WORK! Guaranteed to Improve Your Chipping (video) | 2023](https://www.youtube.com/watch?v=00jr5llAoCw)

@@ -8,6 +8,7 @@ Specialises in putting, chipping, greenside bunkers and wedges.
      * Bunker: Technique | Training: Different clubs, game to win your way out of the bunker
    - [I FLEW ACROSS the COUNTRY to Become a Master Putter (Ultimate Practice Plan Included) (video) | 2023](https://www.youtube.com/watch?v=4yl2AMVbP9k) -- 39m
    - [I FLEW ACROSS the COUNTRY to Perfect Shots under 100 yards (Stock Yardages Included) (video) | 2023](https://www.youtube.com/watch?v=b7FS0lx_EIw) -- 21m
+     * [7m52] Shift weight to the left leg *before you rotate* to avoid out to in path
 
 1. RollYourRock
    - :thumbsup: [James Sieckman - Chipping & Pitching Instruction (video) | 2015](https://www.youtube.com/watch?v=0ikSZqh0s5c)

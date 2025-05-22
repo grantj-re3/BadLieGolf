@@ -59,6 +59,7 @@
      * Fix: When chipping, land the bounce of the clubhead 1 to 1.5 inches behind the ball 
      * He used the Acu-Strike Golf Mat
 
+1. [Golf Digest: Luke Kerr-Dineen | The Simple Short Game Move Pros Use | Film Study | 2025](https://www.youtube.com/watch?v=FR7StwjY4Cw)
 1. :thumbsup: [Andy Carter Golf | CHIPPING SWING PATH EXPLAINED | No more FAT or THIN Shots (video) | 2021](https://www.youtube.com/watch?v=p6PpQqylC6I)
 1. [US GOLF TV: Todd Kolb | 30 Years of My Best Chipping Advice in Just 5 Minutes (video) | 2025](https://www.youtube.com/watch?v=bSBd3R3Ce8g)
 1. [Matthew Masters | The Importance of the “BRUSH & LOOK” When Playing Chip Shots | 2011](https://golfstateofmind.com/the-importance-of-the-brush-look-when-playing-chip-shots/)

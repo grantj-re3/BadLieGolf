@@ -40,7 +40,7 @@
    - Practice sequence to increase swing speed: Rip the club back | Lift your lead foot heel | Plant your lead foot heel as you push into the ground
    - Deeper/bigger backswing while maintaining the weight on the inside of your trail foot
    - Focus on speed and mechanics, not on direction and contact
-   - Fredrik and Hannah: Speed Sessions With Mike Adams & Terry Rowles: [#1 Fredrik](https://www.youtube.com/watch?v=W_1XPDy6GhA} |
+   - Fredrik and Hannah: Speed Sessions With Mike Adams & Terry Rowles: [#1 Fredrik](https://www.youtube.com/watch?v=W_1XPDy6GhA) |
      [#2 Hannah](https://www.youtube.com/watch?v=1g8yzJNiNTw) | [#3 Fredrik](https://www.youtube.com/watch?v=I7Ea8okvISE)
 
 1. [AliTaylorGolf | SIMPLE DRILL FOR MORE CLUB HEAD SPEED (video) | 2020](https://www.youtube.com/watch?v=2TdmfWEX1o0&t=3m37s)

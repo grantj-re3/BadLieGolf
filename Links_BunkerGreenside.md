@@ -538,7 +538,7 @@ For a flat lie in soft sand...
      * Hit as close as I can to the ball
      * Accelerate
    - Tiger Woods:
-     * Hands low / Hands back
+     * Hands low / **Hands back** (see Tiger's famous drill [here](https://www.youtube.com/watch?v=l6M2rqR3iPc))
      * Release / **throw with right hand**
 
 

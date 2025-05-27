@@ -1,6 +1,16 @@
 # Greenside bunker shots - more links
 
 
+1. :thumbsup: [Gaz's Golf | NEVER THIN A Bunker Shot Again | Full Bunker Lesson (video) | 2022](https://www.youtube.com/watch?v=dz_ImzjwgQk) -- with Chris Forsyth
+   - Weight forward means the following are in a vertical line: left shoulder | left hip | left knee | left foot
+   - Keep your weight forward during the whole backswing, down swing and follow through
+   - Allow the **right hand** to pass [the clubhead] underneath the ball **without forward shaft lean**
+   - For Gaz, the ball is only slightly forward of center
+   - **Sternum 2-3 inches in front of the ball**
+   - Tiger Woods feel: release the wrists before impact (so the bounce is in play); see drill [here](https://www.youtube.com/watch?v=l6M2rqR3iPc)
+   - Slow swing: implies finesse e.g. more reliable low point
+   - Long swing: implies more speed
+
 1. The Art of Simple Golf
    - [Every Golfer Gets Out of Any Bunker Every Time Doing This Simple Technique (video) | 2023](https://www.youtube.com/watch?v=k4AsDHJpzu4)
      * He suggests a closed stance to get consistent entry point!!!
@@ -91,16 +101,6 @@
 1. [Dan Grieve | Many of his videos include bunker shots](people/Links_DanGrieve.md)
 1. [Porzak Golf | Several videos are about bunker shots](people/Links_PorzakGolf.md)
 1. [Padraig Harrington | Several videos are about bunker shots](people/Links_PadraigHarrington.md)
-
-1. :thumbsup: [Gaz's Golf | NEVER THIN A Bunker Shot Again | Full Bunker Lesson (video) | 2022](https://www.youtube.com/watch?v=dz_ImzjwgQk)
-   - Weight forward means the following are in a vertical line: left shoulder | left hip | left knee | left foot
-   - Keep your weight forward during the whole backswing, down swing and follow through
-   - Allow the **right hand** to pass [the clubhead] underneath the ball **without forward shaft lean**
-   - For Gaz, the ball is only slightly forward of center
-   - **Sternum 2-3 inches in front of the ball**
-   - Tiger Woods feel: release the wrists before impact (so the bounce is in play)
-   - Slow swing: implies finesse e.g. more reliable low point
-   - Long swing: implies more speed
 
 1. [AlexElliottGolf | Golfing LEGEND Reveals FORGOTTEN Bunker Concept That YOU'LL QUICKLY USE (I HAVE!!) (video) | 2025](https://www.youtube.com/watch?v=J1b_oVpRbk4) -- with Costantino Rocca
 

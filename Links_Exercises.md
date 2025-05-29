@@ -32,9 +32,14 @@
    - :thumbsup: [Ages 50 & Up (playlist) | 2020-2021](https://www.youtube.com/playlist?list=PLUjG1E3n8R1KGx_m0Buc8hPJjbezYxz92)
 
 1. [18STRONG: Jeff Pelizzaro | The Simplest SWING SPEED Training Drill for Golf... Ever! (video) | 2022](https://www.youtube.com/watch?v=FIShQNV2kFA)
-   - Training: 3 sets | 10 swings (max speed) | 2-3 minute rest between sets
+   - Training: 3 sets | 10 swings (max speed) | 2-3 minute rest between sets | Podcast below says: 2-3 times per week
    - Caution: Warm up first | Take the rest breaks | Combine with strength training
-   - [337: Swing Speed Training Q&#038;A with Chris Finn (podcast) | 2022](https://18strong.com/337-swing-speed-training-chris-finn/) -- [37m10s] 2-3 times per week
+   - [337: Swing Speed Training Q&A with Chris Finn (podcast) | 2022](https://18strong.com/337-swing-speed-training-chris-finn/)
+     * [37m10s] Above training (3x 10 swings) 2-3 times per week
+     * [47m38s] The only things that matter golf-mobility wise are: Hip internal rotation (i.e. rotating into your trail leg and
+       rotating into your lead side) | Shoulder external rotation | Thoracic [spine] rotation | Neck rotation
+     * [1h01m32s] Strength training for speed and power: Can rotate into your hip, shoulders, spine and neck | Can produce lower body
+       vertical-power (e.g. squatting, lunging) | Can produce upper body push-power (e.g. chest pressing, bench pressing, cable pressing, med ball)
 
 1. [GOLFTEC: Hannah Gregg & Fredrik Lindblom | Offseason Swing Speed Training for Golf (video) | 2022](https://www.youtube.com/watch?v=PgrkRrvGf7g)
    - Practice sequence to increase swing speed: Rip the club back | Lift your lead foot heel | Plant your lead foot heel as you push into the ground

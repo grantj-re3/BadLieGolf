@@ -84,12 +84,15 @@
    - [*Golf IQ (playlist)*](https://www.youtube.com/playlist?list=PLw_ncqmg1TdHSb0084w2SPSLP1ouP7tAG)
    - [*The Game Plan (playlist)*](https://www.youtube.com/playlist?list=PLw_ncqmg1TdFKGdb5iI13ITAEaUdoQCjV)
    - [The Strategy Mistake Amateur Golfers Always Make | Golf IQ Podcast (video) | 2023](https://www.youtube.com/watch?v=LVbuRWCu1Hc)
-   - [The Clever Aiming Strategy Tour Pros Actually Use | The Game Plan (video) | 2024](https://www.youtube.com/watch?v=6HUyoAvHL88)
+   - :thumbsup: [The Clever Aiming Strategy Tour Pros Actually Use | The Game Plan (video) | 2024](https://www.youtube.com/watch?v=6HUyoAvHL88)
      * Ben Hogan: *Golf is a game of misses*
+     * Think about your *dispersion cone* (i.e. range of possible shot outcomes or "cone of misses") on **every shot**
+     * The dispersion cone includes long and short shots in addition to left and right
+     * [HackMotion: Britt Olizarowicz | Strategic Aiming Tips for Better Course Management Revealed | 2024](https://hackmotion.com/aiming-tips-for-better-course-management/)
    - [The Putting Strategy Pros Use on Pinehurst’s Terrifying Greens | The Game Plan (video) | 2024](https://www.youtube.com/watch?v=O374OhzZAu0)
    - [How Pros Pick Where To Tee Up Their Ball | The Game Plan (video) | 2024](https://www.youtube.com/watch?v=evkAYO59eD4)
-   - [The 3 Driver Strategies Pros Use To Avoid Stupid Mistakes l The Game Plan (video) | 2025](https://www.youtube.com/watch?v=HJiyaAa5qXI)
-     * Driver Strategies: The "Swing hard / swing soft" mistake | The bullet & the bomb (tee height) | The 65-Yard Rule
+   - :thumbsup: [The 3 Driver Strategies Pros Use To Avoid Stupid Mistakes l The Game Plan (video) | 2025](https://www.youtube.com/watch?v=HJiyaAa5qXI)
+     * Driver Strategies: *The "Swing hard / swing soft" mistake* | *The bullet & the bomb* (tee height) | The 65-Yard Rule
    - [The Critical Number Pros Use That Amateurs Don't | The Game Plan (video) | 2024](https://www.youtube.com/watch?v=Ud1CnMED-mM) -- Cover number
    - [The Clever Strategy Pros Actually Use To Calculate Yardages l The Game Plan (video) | 2025](https://www.youtube.com/watch?v=NK5wY-EnVww)
      * Temperature | Altitude | Lie & spin | Runout | Wind

@@ -1,4 +1,4 @@
-# Lily golf
+# Lily golf 김효은프로
 
 [YouTube channel](https://www.youtube.com/@hyoeun5/videos)
 
@@ -29,7 +29,7 @@
 
 ## Wrist movement
 
-1. :thumbsup: [Fix Your Wrist Rotation—Once And For All! (video) | 2025](https://www.youtube.com/watch?v=365H3y3KLnM
+1. :thumbsup: [Fix Your Wrist Rotation—Once And For All! (video) | 2025](https://www.youtube.com/watch?v=365H3y3KLnM)
    - Left wrist: Pen drill
 1. [These Tips Will Change Your Iron Shot (video) | 2024](https://www.youtube.com/watch?v=mVyfE-uaOiE)
    - Iron shots: Right elbow connects to the torso during the downswing | Curl left wrist inwards

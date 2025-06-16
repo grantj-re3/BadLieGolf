@@ -37,6 +37,7 @@
    - Iron shots: At impact, the left wrist must not face forward, it must face the ground from about P6 to impact (P7) |
      Practice the movement quickly | This should make it easier to hit the center of the clubface and hit down on the ball
 1. [Release Drill!! Now You Can Do This!!! (video) | 2024](https://www.youtube.com/watch?v=GHmJPW2sjFk)
+1. [Rotation Drill ! Use Your Wrists Like This! (video) | 2024](https://www.youtube.com/watch?v=526C0jGFez4)
 
 
 ## Follow through
@@ -51,7 +52,28 @@
 
 Note: Vertical drop = Drop into the slot = Shallow downswing
 
-1. :thumbsup: [Vertical Drop And Staying Loose: Both at Once! (video) | 2024](https://www.youtube.com/watch?v=LPSoXu1_YZU)
 1. [How To Relax The Swing? It Takes Only 5 Minutes!!! (video) | 2024](https://www.youtube.com/watch?v=vbCtdj3snFQ)
+1. :thumbsup: :thumbsup: [Vertical Drop And Staying Loose: Both at Once! (video) | 2024](https://www.youtube.com/watch?v=LPSoXu1_YZU)
+   - For driver, woods & irons: At the start of the downswing, bring the club down with your arms while
+     keeping your right shoulder back (i.e. minimal shoulder turn)
+   - Drill/feel: Take your backswing | Remove your left hand from the club and place it on your right shoulder |
+     Use only your right arm to swing (into an impact bag) while keeping your right shoulder back |
+     Do this without any tension in your shoulders
 1. [Master The Vertical Drop With Just This One Drill !!! (video) | 2024](https://www.youtube.com/watch?v=NmBYRjPw9S8)
+
+
+## Impact
+
+1. [This Drill Will Completely Change Your Swing! (video) | 2024](https://www.youtube.com/watch?v=ZJXyWLhfvm4)
+   - Iron shots: Hit shot downwards | At impact, [you should have forward shaft lean and] hands should be slightly below
+     the address position | Shoulders and wrists must be relaxed | Transfer your weight during the downswing
+   - Drill: Practice with small swings (about P5 to P8) | With 3 balls in a group
+
+
+## Putting
+
+1. :thumbsup: [You Can Get The Best Score Only By Putting Drill !!! (video) | 2024](https://www.youtube.com/watch?v=tANjFESPzy0)
+   - Controlling the putting distance: Find your swing size | Find your tempo
+   - Find your swing size: Method 1 - See how far the ball goes with *1 or 3 clubhead backswing* |
+     Method 2 - See how far the ball goes with a backswing to the *inside of your right foot*
 

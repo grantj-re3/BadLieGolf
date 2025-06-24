@@ -3,7 +3,7 @@
 1. [The Left Rough | Golf Strategy: Tips to Improve your Mental Game | c.2021](https://theleftrough.com/golf-strategy/)
    - Links to articles and tips about course management, strategy, mental game, etc. How to break 100, 90 and 80.
 
-1. [Golf Sidekick - Matt Greene | YouTube channel](https://www.youtube.com/channel/UCaeGjmOiTxekbGUDPKhoU-A)
+1. [Golf Sidekick - Matt Greene | YouTube channel](https://www.youtube.com/@GolfSidekick)
    - [Golf Sidekick - Matt Greene | Website](https://www.golfsidekick.com/)
    - Links to articles and tips about course management, strategy, mental game, etc. How to break 100, 90 and 80.
    - Favourite sayings:
@@ -99,7 +99,29 @@
      * [12m35s] [Golf News Central | Phil Mickelson On Feherty (2018) Classic Interview (video) | 2020](https://www.youtube.com/watch?v=E34OEt2mE8U&t=12m35s)
    - [The Clever Formula Tour Pros Use to Out-Smart Golf Courses | The Game Plan (video) | 2023](https://www.youtube.com/watch?v=uWQpHrd7it8) -- Short-side miss
 
-1. [Dan Grieve | Short Game shot selection options around the green | 2024](https://www.youtube.com/watch?v=Jo69FOclmz0)
+1. [Jon Sherman Golf | YouTube channel](https://www.youtube.com/@jonshermangolf)
+   - :thumbsup: [The Secret to Golf Explained in 15 Minutes (video) | 2025](https://www.youtube.com/watch?v=U0Y0iVVe0X0)
+     * It's Not About Birdies (but less blow up holes)
+     * Scoring In a Nutshell: Primarily determined by approach shots then tee shots
+     * Becoming a Better Ballstriker: Where are you striking the clubface? How is your ground contact? Where is the clubface pointing?
+     * Putting Basics: Make more 10 footers. Less 3 putts by better distance control.
+     * Building Around GIR | Tee Shot Success | Pin Hunting | Driver Dispersion | Take More Club | Laying Up |
+       You Don't Need 300+ Yards | Stop Jamming Putts | Aiming Away From Trouble | Greenside Hero |
+       Safety Clubs: 3-wood is not as safe as you think | Wind Strategy | Short Game Strategy
+   - [These 5 Mistakes Are Why You Keep Making Double Bogeys (video) | 2025](https://www.youtube.com/watch?v=IY_Dvh26-SA)
+     * Causes of Doubles: Errant tee shots, 3 putting, double chips, approach shot penalties
+     * Tee Shot Strategy | Stop Chasing Pins: Increase GIR | Don't Be An Idiot! Hit a more realistic shot when in a recovery situation |
+       Not Getting Cute: Play shots you are capable of executing | Don't Give Up
+   - [These Stats Prove Scratch Golfers Aren’t What You Think (video) | 2025](https://www.youtube.com/watch?v=bN6brXMp5X0)
+   - [These 10 Habits Were Killing My Golf Game (video) | 2025](https://www.youtube.com/watch?v=T6MwBP_R2qY)
+   - [How to Finally Increase Your Swing Speed (Without Wrecking Your Swing) (video) | 2025](https://www.youtube.com/watch?v=_86z9EXmgVs)
+   - [The TRUTH About Golf Equipment (What Big Brands Won’t Tell You) (video) | 2025](https://www.youtube.com/watch?v=TPIaaQnQ93A&t=20m18s)
+     * Club fitting: Marketing Tricks | Why Get Fit? | Driver Fitting | Shaft Fitting | Iron Fitting | Wedge Fitting | FAQ
+     * [20m18s] When to get fitted for golf clubs
+   - [These 4 PGA Tour Stats Prove You’re Playing Golf All Wrong (video) | 2025](https://www.youtube.com/watch?v=BBG61DmM28E)
+     * Stats: Wedge Proximity | Recovery Situations | Putting Make Rates | Birdies!
+
+1. [Dan Grieve | Short Game shot selection options around the green (video) | 2024](https://www.youtube.com/watch?v=Jo69FOclmz0)
    - 10 short game scenarios
    - Safer vs high risk / high reward options
 
@@ -148,7 +170,7 @@
    - The Danger Zone
    - Visualize Your Shots
 
-1. [Golf Therapy | You Only Need 3 Shots to Be Good at Golf | 2024](https://www.youtube.com/watch?v=9cSC8MRENDs)
+1. [Golf Therapy | You Only Need 3 Shots to Be Good at Golf (video) | 2024](https://www.youtube.com/watch?v=9cSC8MRENDs)
 
 
 ## How to enjoy your golf
@@ -224,7 +246,7 @@
 
 *Golf Sidekick* and *The Left Rough* web sites (mentioned on this page) have articles and videos discussing how to break 90.
 
-1. [Jon Perkins Golf | 7 RULES to BREAK 90 Every Time (No Swing Changes) | 2024](https://www.youtube.com/watch?v=W22nKRKK_3U)
+1. [Jon Perkins Golf | 7 RULES to BREAK 90 Every Time (No Swing Changes) (video) | 2024](https://www.youtube.com/watch?v=W22nKRKK_3U)
    * He is talking to players who:
      + play on a reasonably regular basis
      + have a semi-consistent shot pattern

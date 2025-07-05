@@ -11,6 +11,12 @@
    - [How to Take Proper Divots (video) | 2017](https://www.youtube.com/watch?v=waXyhvi9ZqY)
    - [How to Stabilize Your Legs in the Golf Swing (video) | 2017](https://www.youtube.com/watch?v=-GQEq4mo9_k)
 
+1. [Mark Crossfield | GOLF SWING BASICS - HIT BETTER IRON SHOTS (video) | 2019](https://www.youtube.com/watch?v=se3iNaJzquU)
+   - [With Coach Lockey | GOLF SWING BASICS COMMON FAULTS AND FIXES (video) | 2019](https://www.youtube.com/watch?v=9nBxMlj0b1M)
+     * Only analyse your results if you strike the ball properly (near the middle) | You can have a functional swing if you strike the ball properly | Experiment
+1. [USGolfTV: Todd Kolb | How to Hit Iron Shots in Golf | 2021](https://usgolftv.com/instruction/how-to-hit-irons/) -- includes 4 videos
+1. [Golf Monthly: Michael Weston | How To Hit An Iron Shot: Essential Techniques For Consistent Results | 2025](https://www.golfmonthly.com/tips/long-game-tips/how-to-hit-an-iron)
+
 
 ## How to play irons in wet/soft conditions
 

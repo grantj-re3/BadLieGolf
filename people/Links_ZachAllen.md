@@ -16,9 +16,15 @@
 
 ## Less body turn
 
-1. :thumbsup: [Slow Down to Speed Up (video) | 2014](https://www.youtube.com/watch?v=5f_3QzQphFo) -- The right shoulder turns very little during the *vertical drop*
-   (similar to [this Lily Golf video](https://www.youtube.com/watch?v=LPSoXu1_YZU))
+1. [Slow Down to Speed Up (video) | 2014](https://www.youtube.com/watch?v=5f_3QzQphFo) -- The right shoulder turns very little during the *vertical drop*
+   (similar to [this Lily Golf video](https://www.youtube.com/watch?v=LPSoXu1_YZU) :thumbsup:)
 1. [SHIFT, Don't Turn to Start the Golf Swing (video) | 2024](https://www.youtube.com/watch?v=iwZ2C34NS1E)
 1. [Don't Turn Your Shoulders... Do THIS Instead (video) | 2024](https://www.youtube.com/watch?v=txNaJOqwmPw)
 1. [Don't Turn Your Shoulders for a Driver Golf Swing (video) | 2024](https://www.youtube.com/watch?v=4uSPLw_dhX4)
+
+
+## Kinematic sequence
+
+1. :thumbsup: [Shift, Turn, Extend - How to Get More Power in Golf (video) | 2020](https://www.youtube.com/watch?v=VQDUZT-50CQ)
+1. :thumbsup: [Hogan's "Multiplying" Effect - How to Get EFFORTLESS Power (video) | 2024](https://www.youtube.com/watch?v=g9riaHgz5dI)
 

@@ -28,3 +28,10 @@
 1. :thumbsup: [Shift, Turn, Extend - How to Get More Power in Golf (video) | 2020](https://www.youtube.com/watch?v=VQDUZT-50CQ)
 1. :thumbsup: [Hogan's "Multiplying" Effect - How to Get EFFORTLESS Power (video) | 2024](https://www.youtube.com/watch?v=g9riaHgz5dI)
 
+
+## General
+
+1. [Get EFFORTLESS Power like Fred Couples, Ernie Els... and Jake Knapp (video) | 2024](https://www.youtube.com/watch?v=ISdQKSgLxNY) -- Extend the lead shoulder/lat
+1. [The Golf Swing is So Much Easier When You Know This - Do THIS Before Every Swing (video) | 2023](https://www.youtube.com/watch?v=eIIJficydfE) -- Arms roped together
+1. [This Simple Drill Speeds Up Your Hands (video) | 2023](https://www.youtube.com/watch?v=IAFLDlAhM5w) -- Rory McIlroy's split-handed drill
+

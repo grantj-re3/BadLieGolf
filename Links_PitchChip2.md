@@ -29,6 +29,11 @@
      * Keep arms relaxed; at address, move the hands up to the belt buckle a couple of times
      * [He has a slow smooth transition where the downswing appears to start due to gravity]
 
+1. [Phil Mickelson and the HyFlyers | The Art of Chipping with Phil Mickelson | EP. 1 | 2025](https://www.youtube.com/watch?v=FFX8aS-JACU)
+   - Secrets of the Short Game with Phil Mickelson:
+     [Part 1](https://www.youtube.com/watch?v=x12dd7aqMHU) and
+     [Part 2](https://www.youtube.com/watch?v=fTFoThi8Snk)
+
 1. :thumbsup: [James Ridyard | Fix your Chipping YIPS by using your KNEES! (video) | 2024](https://www.youtube.com/watch?v=TCoeM2HLVHw)
    - Consider setting the rhythm with a left foot "toe tap" during the take away
    - The knees drive the chipping motion

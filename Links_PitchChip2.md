@@ -30,9 +30,21 @@
      * [He has a slow smooth transition where the downswing appears to start due to gravity]
 
 1. [Phil Mickelson and the HyFlyers | The Art of Chipping with Phil Mickelson | EP. 1 | 2025](https://www.youtube.com/watch?v=FFX8aS-JACU)
-   - Secrets of the Short Game with Phil Mickelson:
-     [Part 1](https://www.youtube.com/watch?v=x12dd7aqMHU) and
-     [Part 2](https://www.youtube.com/watch?v=fTFoThi8Snk)
+   - 00:00 Intro | 01:40 Chipping 101: <30 yards: Weight on front foot; Hands start ahead/straight line; Low or high? |
+     06:35 Ask yourself: Can I hit this off my backfoot? | 09:05 Lob shot: To go vertical when the ground is firm, drive club behind ball |
+     10:25 Turn feet slightly towards target to create momentum; Adjust alignment when opening clubface; Adjust shoulder level |
+     16:47 Hinge and hold; Accelerate hands past the hip; Hands feel as if they hit front pocket; Keep your hands low |
+     18:44 Weight forward; Let face open in the backswing; Come down steep | 22:16 Feet close together |
+     24:51 More bounce, more weight forward; Firmer ground, more weight forward; Back-bounce, heel-bounce and toe bounce important when you open the clubface |
+     31:08 Make adjustments with upper body, not feet | 32:21 Swing one handed | ...
+
+1. Secrets of the Short Game with Phil Mickelson | 2009
+   - DVD 1: Phil's Introduction | General Principles of Putting | The Stroke | To Forward Press or Not | Aiming the Putter |
+     Phil's Basic Putting Concept | 3-Foot Circle Drill | 6-Foot Circle Drill | Reading the Putt | Long Putts | Phil's Basic Chip Shot |
+     "Hinge and Hold" Method - To bring the ball in softly | "Hinge and Hold" and Lob Shots - Faults and cures | Low Running Shots |
+     Consider Your Options - When to Chip/Putt | Playing From the Rough | Longer Chip Shots | 30-Yard Shot / 50 Yard Shot
+   - DVD 2: Phil's Flop Shot | General Bunker Play | Uphill/Downhill Lies - Bunker Play | Buried Lies - Bunker Play |
+     Long Bunker Shots | "Two Balls in Bunker" Shot - Specialty Shot | "Backwards Over-The-Head" Specialty Shot
 
 1. :thumbsup: [James Ridyard | Fix your Chipping YIPS by using your KNEES! (video) | 2024](https://www.youtube.com/watch?v=TCoeM2HLVHw)
    - Consider setting the rhythm with a left foot "toe tap" during the take away

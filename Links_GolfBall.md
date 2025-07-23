@@ -176,6 +176,13 @@ For discussions about compression, please note that as per the Golftripz referen
    - [Q & A with Dean](https://www.snellgolf.com/pages/q-a-with-dean)
 
 
+## Consider
+
+- Wilson: Triad, Staff Model, [and now, Staff Model X]
+- Bridgestone TOUR B: RX/RXS, X/XS, X/XS Tiger Woods Edition
+- TaylorMade: TP5/TP5x (but not if you want distance)
+
+
 ## Availability in Australia
 
 Most of the big-brand golf balls are available at any Australian golf store. However, some of the

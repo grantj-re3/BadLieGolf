@@ -11,7 +11,7 @@ For discussions about compression, please note that as per the Golftripz referen
 - *Medium/mid* compression is 66 to 89
 - *High* compression is 90+ (i.e. *hard*)
 
-1. [MyGolfSpy | 2023 Golf Ball Test | 2023](https://mygolfspy.com/buyers-guides/golf-balls/2023-golf-ball-test/)
+1. [MyGolfSpy: Tony Covey | 2023 Golf Ball Test | 2023](https://mygolfspy.com/buyers-guides/golf-balls/2023-golf-ball-test/)
    - This test appears to contain excellent data, but does not seem to include any *dispersion* metric!
    - 46 golf ball models tested
    - The balls tested include retail urethane offerings from major manufacturers and a mix of smaller direct-to-consumer (DTC)
@@ -24,6 +24,7 @@ For discussions about compression, please note that as per the Golftripz referen
      5. There’s No Such Thing as a Bad Golf Ball
      6. The Need for Speed
      7. It’s Not Launch Angle, It’s Trajectory
+   - It is worth reading Tony Covey's two excellent responses to CryptoDog's questions about "ROBOT GOLF BALLS TEST | Find the best 2023 model for your game!"
    - [Best Golf Balls of 2023: Expert Tested & Data-Backed](https://mygolfspy.com/buyers-guides/golf-balls/best-golf-balls/)
 
 1. [MyGolfSpy | 2021 Golf Ball Test Results | 2021](https://mygolfspy.com/buyers-guides/golf-balls/best-golf-balls-2021/)
@@ -87,7 +88,7 @@ For discussions about compression, please note that as per the Golftripz referen
      * How do I find the right golf ball for my game?
      * Do the pros play the same golf ball I buy off the shelf?
 
-1. [MyGolfSpy - Tony Covey | Golf Ball Compression Guide | 2022](https://mygolfspy.com/news-opinion/golf-ball-compression-guide/)
+1. [MyGolfSpy: Tony Covey | Golf Ball Compression Guide | 2022](https://mygolfspy.com/news-opinion/golf-ball-compression-guide/)
    - The goal is to tackle your compression questions while hopefully clearing up what really is an abundance
      of *golf ball compression misinformation*
    - Golf Ball Compression Chart
@@ -117,12 +118,12 @@ For discussions about compression, please note that as per the Golftripz referen
        [Titleist Pro V1x] ball
      * a significant number of average golfers would benefit from the higher spin properties of the [high compression 95-96] Chrome Soft X
 
-1. [golf.com - Jonathan Wall | Considering a new golf ball? Always start with these clubs when testing | 2020](https://golf.com/gear/golf-balls/golf-ball-testing-wedges-putter-ping-fully-equipped/)
+1. [golf.com: Jonathan Wall | Considering a new golf ball? Always start with these clubs when testing | 2020](https://golf.com/gear/golf-balls/golf-ball-testing-wedges-putter-ping-fully-equipped/)
    - pros do a really good job of making sure their ball matches their putter and wedges
    - If it’s 2 or 3 yards difference [with the driver], it really doesn’t matter
    - You hit your wedges and putters to make the Tour
 
-1. hititlonger.com - Steve Pratt
+1. hititlonger.com: Steve Pratt
    - [Golf Ball Myths BUSTED! (video) | 2020](https://www.youtube.com/watch?v=uLVE2UEEfFU)
      1. *Myth: Modern golf balls are faster/hotter than older golf balls.* No, many modern golf balls have less spin off
         the driver than older golf balls, hence more distance
@@ -139,7 +140,7 @@ For discussions about compression, please note that as per the Golftripz referen
    - [The Top 5 Golf Balls You Should AVOID AT ALL COSTS! (video) | 2020](https://www.youtube.com/watch?v=0YK5r13diiU)
    - [The BEST Golf Balls for Your Game and Budget! (video) | 2023](https://www.youtube.com/watch?v=xofvtD9ZhOs)
 
-1. [Today's Golfer; Simon Daddow | ROBOT TESTED: Which golf ball suits me? | 2019](https://www.youtube.com/watch?v=6CchRvPRfiQ)
+1. [Today's Golfer: Simon Daddow | ROBOT TESTED: Which golf ball suits me? | 2019](https://www.youtube.com/watch?v=6CchRvPRfiQ)
    - 23m36s: Conclusions
      * Top performer, £50/dozen budget: TaylorMade TP5x
      * Club golfer: Callaway ERC Soft
@@ -154,12 +155,12 @@ For discussions about compression, please note that as per the Golftripz referen
      * How much [money] is too much [to pay]
      * More [driver swing] speed equals bigger misses; if your swing speed is 115mph and you pick the wrong golf ball, you will see some big misses
 
-1. [Today's Golfer; Simon Daddow | ROBOT GOLF BALLS TEST | Find the best 2023 model for your game! | 2023](https://www.youtube.com/watch?v=dWCEJr0tKQ4)
+1. [Today's Golfer: Simon Daddow | ROBOT GOLF BALLS TEST | Find the best 2023 model for your game! | 2023](https://www.youtube.com/watch?v=dWCEJr0tKQ4)
    - 28 golf ball models
    - Use the timestamps to pick which parts of this 54 minute video you want to watch
    - [ROBOT TEST 2023: Which Golf Ball Is Best For My Game?](https://www.todays-golfer.com/equipment/best/golf-ball-robot-test-2023/)
 
-1. [Golftripz; Tamos Shanter | Golf Ball Compression Chart That Tells a Lot about Your Skills | 2021](https://www.golftripz.com/blog/golf-ball-compression-chart-that-tells-a-lot-about-your-skills/)
+1. [Golftripz: Tamos Shanter | Golf Ball Compression Chart That Tells a Lot about Your Skills | 2021](https://www.golftripz.com/blog/golf-ball-compression-chart-that-tells-a-lot-about-your-skills/)
    - Low compression: 65 and less
    - Medium-compression: 66 to 89
    - High compression: 90+

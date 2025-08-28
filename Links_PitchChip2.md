@@ -84,6 +84,13 @@
 1. [Gaz's Golf | THIS CHIPPING TIP CHANGED EVERYTHING! | 2023](https://www.youtube.com/watch?v=O6BUgaI_6tM)
 
 
+## Chip shots: Posture and setup
+
+1. [Huxley Golf: Jonathan Yarwood | Chipping Posture - Golf Tips & Drills | 2013](https://www.youtube.com/watch?v=71L19GOcvs8)
+1. [England Golf: Adam Keogh | Improve your chipping technique | Golf tips | 2022](https://www.youtube.com/watch?v=qbAdNj7K__E)
+1. [BirdieBall | 5 Golf Chipping Tips To Save Strokes Around Greens | 2025](https://www.birdieball.com/blogs/news/golf-chipping-tips)
+
+
 ## Chip shots: New points
 
 - The butt of your grip and the center of your chest have to move at the same rate all the time

@@ -131,6 +131,12 @@
 1. [Padraig Harrington | HITTING DRAWS AND FADES | Paddy's Golf Tip #11 (video) | 2021](https://www.youtube.com/watch?v=IEcJIrVtiM0)
 
 
+## Padraig with Martin Hall
+
+1. :thumbsup: [Sonic Titan Golf | 20 Minutes of the GREATEST SHORT GAME WISDOM You Will Ever Hear from Padraig Harrington | 2025](https://www.youtube.com/watch?v=Bbo4tksX3sg)
+1. [Sonic Titan Golf | 18 Minutes of the GREATEST DRIVER SWING WISDOM You Will Ever Hear From Padraig Harrington | 2025](https://www.youtube.com/watch?v=z59RBIHWrxQ)
+
+
 ## About Padraig Harrington
 
 1. [PGA Tour | Padraig Harrington ACHIEVEMENTS, PROFILE, etc.](https://www.pgatour.com/players/player.20766.padraig-harrington.html)

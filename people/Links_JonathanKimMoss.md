@@ -52,7 +52,7 @@
 
 ## Follow through / finish
 
-1. [How to Finish Your Golf Swing | Perfect Your Follow-Through for Better Shots (video) | 2025](https://www.youtube.com/watch?v=PgIETq-SEHk)
+1. :thumbsup: :thumbsup: [How to Finish Your Golf Swing | Perfect Your Follow-Through for Better Shots (video) | 2025](https://www.youtube.com/watch?v=PgIETq-SEHk)
    - Rotation
    - Extension
    - Weight finishes on the outside heal of the left foot

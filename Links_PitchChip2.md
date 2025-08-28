@@ -89,6 +89,8 @@
 1. [Huxley Golf: Jonathan Yarwood | Chipping Posture - Golf Tips & Drills | 2013](https://www.youtube.com/watch?v=71L19GOcvs8)
 1. [England Golf: Adam Keogh | Improve your chipping technique | Golf tips | 2022](https://www.youtube.com/watch?v=qbAdNj7K__E)
 1. [BirdieBall | 5 Golf Chipping Tips To Save Strokes Around Greens | 2025](https://www.birdieball.com/blogs/news/golf-chipping-tips)
+1. [Alamo City Golf Trail: Kellie Stenzel | 10 basic tips that can help golfers chip better than ever | 2021](https://alamocitygolftrail.com/10-basic-tips-that-can-help-golfers-chip-better-than-ever/)
+1. [Danny Maude | What Nobody Tells You About Chipping Onto The Green | 2023](https://www.youtube.com/watch?v=E5BQeqZm3wo)
 
 
 ## Chip shots: New points

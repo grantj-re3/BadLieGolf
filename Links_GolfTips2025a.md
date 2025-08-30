@@ -45,6 +45,9 @@
    - Practice initiating the downswing with the hips | Visualise an elastic band pulling your left hip back
    - Hogan says it's impossible to turn your hips too fast 
 
+1. [Classic Golf Swing | BEN HOGAN 5 LESSONS (playlist) | 2019-2025](https://www.youtube.com/playlist?list=PLT-4_1sTQZZX7oiPaMkHQ_asMCyiPLqWs)
+   - Especially the first 5 videos
+
 1. [MyGolfSpy: Brittany Olizarowicz | Best Golf Transition Drills (4 to try) | 2024](https://mygolfspy.com/news-opinion/best-golf-transition-drills-4-to-try/) -- watch videos 1 & 4
 
 1. [Eric Cogorno Golf | This ONE Hip Move Could Fix Your Entire Swing w/ Mike Malaska (Revisited) (video) | 2024](https://www.youtube.com/watch?v=gjKaUpz1dCA)

@@ -125,6 +125,16 @@
    - 10 short game scenarios
    - Safer vs high risk / high reward options
 
+1. The Scoring Method: Will Robins
+   - [Golfer's Odyssey: Nick Johnson | The Scoring Method - Course Strategy Initial Review | 2020](https://sites.google.com/view/golfersodyssey/home/golf-improvement/the-scoring-method-course-strategy-initial-review-05-12-2020)
+   - [Cordie Walker GolfWell and The Scoring Method | This Simple Strategy LOWERS SCORES (even when you hit it bad) (video) | 2025](https://www.youtube.com/watch?v=XdU-nWPznbs) -- 55m
+     * 1m18s: The Scoring Method: Goal 1 = get inside 100 yards in regulation; Goal 2 = get down in three.
+     * Be a 3-handicap long lag-putter
+       + 36m28s: Lag Putting Drill: Heads-up pace drill—eyes on hole, then react.
+   - [The Scoring Method | Strategies to Try While Golfing This Week | 2021](https://thescoringmethod.com/strategies-to-try-while-golfing-this-week/)
+     * Includes 3 Golf Science Lab podcasts (plus homework) with Cordie Walker
+     * Minimize the Blow Up Holes | Track This One Stat – Proximity | Mindset for Scoring
+
 1. [Golf University | Playlist: Inner Golf Lessons | Golf University c.2016-2018](https://www.youtube.com/playlist?list=PLk5pOCqyfd71uq48KYfzR_pBBUDf1V2AA)
    - [Golf University - Lawrie Montague | How to Play the Best Course Management Strategy in Golf | Inner Golf Mastery Series (video) | 2018](https://www.youtube.com/watch?v=Hvi7SPt4Rhw)
      * The 70% rule: Play a club/shot where you can get the result you want 7 times out of 10

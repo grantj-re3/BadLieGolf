@@ -4,7 +4,6 @@
 
 1. [United States Golf Association | World Handicap System FAQs](https://www.usga.org/content/usga/home-page/handicapping/world-handicap-system/world-handicap-system-usga-golf-faqs.html#!9)
    - In particular, read the section *Handicap Index® Calculation 101*
-1. [Blue Sky Golf Club | Understanding How to Calculate Your Golf Handicap | c.2022](https://golfbluesky.com/blog/54-understanding-how-to-calculate-your-golf-handicap)
 1. [Drew Fortson Golf | How To CALCULATE Your Golf HANDICAP - Made Easy! (video) | 2022](https://m.youtube.com/watch?v=Tv0XNPFw7g0&pp=0gcJCR4Bo7VqN5tD)
 
 
@@ -23,6 +22,6 @@
 1. [Handicapping Home](https://www.usga.org/content/usga/home-page/handicapping.html)
 1. [Handicap Explainer Series](https://www.usga.org/content/usga/home-page/handicapping/2024-handicap-explainer-series.html) -- 15 short videos
 1. [Player Reference Guide on the Rules of Handicapping](https://www.usga.org/content/usga/home-page/handicapping/world-handicap-system/2024-revision/PlayerReferenceGuide-2024.html)
-1. [https://www.usga.org/content/usga/home-page/articles/2024/10/course-rating-vs-slope-rating.html](https://www.usga.org/content/usga/home-page/articles/2024/10/course-rating-vs-slope-rating.html)
+1. [Terry Benjamin | Course Rating vs. Slope Rating | 2024](https://www.usga.org/content/usga/home-page/articles/2024/10/course-rating-vs-slope-rating.html)
 1. [World Handicap System FAQs](https://www.usga.org/content/usga/home-page/handicapping/world-handicap-system/world-handicap-system-usga-golf-faqs.html)
 

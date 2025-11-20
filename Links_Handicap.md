@@ -19,6 +19,7 @@
 
 ## United States Golf Association
 
+1. [Handicapping definitions & rules](https://www.usga.org/handicapping/roh/Content/rules/Definitions.htm)
 1. [Handicapping Home](https://www.usga.org/content/usga/home-page/handicapping.html)
 1. [Handicap Explainer Series](https://www.usga.org/content/usga/home-page/handicapping/2024-handicap-explainer-series.html) -- 15 short videos
 1. [Player Reference Guide on the Rules of Handicapping](https://www.usga.org/content/usga/home-page/handicapping/world-handicap-system/2024-revision/PlayerReferenceGuide-2024.html)

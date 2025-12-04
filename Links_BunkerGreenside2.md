@@ -71,6 +71,11 @@
      * Your [upper] body must gently unwind and get through to **face the target**
      * You’ll get the best results with the ball just forward of centre
 
+1. [SwingU: Stan Utley | The Key To Tour-Quality Bunker Shots | 2025](https://clubhouse.swingu.com/instruction/the-key-to-tour-quality-bunker-shots/)
+   - Drill: Draw line in sand (mid-way between your feet) | Practice landing your club on the line, short of it, and beyond it |
+     This will help you find the ideal entry point
+   - Notice that for a proper bunker shot, the *center of the divot* is well in front of the line
+
 1. [Steve Johnston Golf | This Bunker Shot Technique is SO EASY You'll be Shocked (video) | 2024](https://www.youtube.com/watch?v=Vw7kMe9Cu3Y)
    - Hard sand [I like this technique]
      * Strike the sand with the tow of the club face (hence less resistance by the sand)

@@ -17,6 +17,11 @@
    - [Golf Digest | Stan Utley's Bunker Do's & Don'ts-Bunker Play-Golf Digest (video) | 2012](https://www.youtube.com/watch?v=jX6y6Wlrbhw)
      * Pivot [rotate] through the shot
      * Hinge your wrists in the backswing / re-hinge your wrists in the follow through
+   - [TurtleGolfTips | My clinic with Stan Utley (video) | 2025](https://www.youtube.com/watch?v=QdlKFFeieYE&t=11m21s)
+     * Sternum in front of the "forward line"
+     * Make a big swing in slow motion
+     * People swing way too hard in the bunker / You don't have to swing very fast if you hit close to the ball
+     * Add pressure to the ball... by standing up tall and finishing forward with a pivot at the end
    - [Facebook: Stan's student | This is an example of a perfect finish with your body on a bunker shot. Bonus-It went in! | 2020](https://www.facebook.com/StanUtley/videos/this-is-and-example-of-a-perfect-finish-with-your-body-on-a-bunker-shot-bonus-it/2789905711296454/)
    - Short game:
      * [Rudy Sains | StanUtley (playlist) | 2008-2021](https://www.youtube.com/playlist?list=PLm45uRcDnr9QKwwqummsLMhjeg8qsytEg)

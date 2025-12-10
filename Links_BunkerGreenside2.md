@@ -1,6 +1,27 @@
 # Greenside bunker shots - more links
 
 
+1. :thumbsup: Stan Utley
+   - :thumbsup: [SwingU | The Key To Tour-Quality Bunker Shots (video) | 2025](https://clubhouse.swingu.com/instruction/the-key-to-tour-quality-bunker-shots/)
+     * Drill: Draw line in sand (mid-way between your feet) | Practice landing your club on the line, short of it, and beyond it |
+       This will help you find the ideal entry point
+     * Notice that for a proper bunker shot, the *center of the divot* is well in front (i.e. target side) of the line
+   - [SwingU | Simplify Your Setup For Better Bunker Shots (video) | 2023](https://clubhouse.swingu.com/instruction/simplify-your-setup-for-better-bunker-shots/)
+     * Maintain your weight on your left side during the swing. Your nose should be on the target side of the ball.
+   - [SwingU | A Bunker Lesson From Seve (video) | 2024](https://clubhouse.swingu.com/instruction/a-bunker-lesson-from-seve/)
+     * Keep your weight on your left side the whole time (while rotating around your left side)
+     * Head is just left (i.e. target side) of the ball
+     * Narrow swing: pick the club up with the wrists (during the backswing) then drop it (on the downswing)
+     * Rotate knees, hips and shoulders
+     * Finish tall, facing the target
+   - [Golf Digest | Stan Utley's Bunker Do's & Don'ts-Bunker Play-Golf Digest (video) | 2012](https://www.youtube.com/watch?v=jX6y6Wlrbhw)
+     * Pivot [rotate] through the shot
+     * Hinge your wrists in the backswing / re-hinge your wrists in the follow through
+   - [Facebook: Stan's student | This is an example of a perfect finish with your body on a bunker shot. Bonus-It went in! | 2020](https://www.facebook.com/StanUtley/videos/this-is-and-example-of-a-perfect-finish-with-your-body-on-a-bunker-shot-bonus-it/2789905711296454/)
+   - Short game:
+     * [Rudy Sains | StanUtley (playlist) | 2008-2021](https://www.youtube.com/playlist?list=PLm45uRcDnr9QKwwqummsLMhjeg8qsytEg)
+     * [Orange Whip Golf & Fitness | Stan Utley Wedge Game (playlist) | 2017-2025](https://www.youtube.com/playlist?list=PLoHoKKj9gYYt697KRw8fnX58rugrDSfbD)
+
 1. :thumbsup: [Gaz's Golf | NEVER THIN A Bunker Shot Again | Full Bunker Lesson (video) | 2022](https://www.youtube.com/watch?v=dz_ImzjwgQk) -- with Chris Forsyth
    - Weight forward means the following are in a vertical line: left shoulder | left hip | left knee | left foot
    - Keep your weight forward during the whole backswing, down swing and follow through
@@ -70,11 +91,6 @@
      * Good bunker play is all about the arms and upper body; there is no weight shift to speak of and no need for any fancy footwork
      * Your [upper] body must gently unwind and get through to **face the target**
      * You’ll get the best results with the ball just forward of centre
-
-1. [SwingU: Stan Utley | The Key To Tour-Quality Bunker Shots | 2025](https://clubhouse.swingu.com/instruction/the-key-to-tour-quality-bunker-shots/)
-   - Drill: Draw line in sand (mid-way between your feet) | Practice landing your club on the line, short of it, and beyond it |
-     This will help you find the ideal entry point
-   - Notice that for a proper bunker shot, the *center of the divot* is well in front of the line
 
 1. [Steve Johnston Golf | This Bunker Shot Technique is SO EASY You'll be Shocked (video) | 2024](https://www.youtube.com/watch?v=Vw7kMe9Cu3Y)
    - Hard sand [I like this technique]

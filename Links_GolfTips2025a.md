@@ -1,5 +1,35 @@
 # Golf tips - 2025
 
+## Driver & Ball Position
+
+1. :thumbsup: [Rob Cheney Golf | Driver Ball Position Mistake That Everyone Gets Wrong! (video) | 2025](https://www.youtube.com/watch?v=zT2ilWa9WcU)
+
+## Finish First 🏆 with Coach Greg Jones
+
+1. [The ONE Move That Stops You Rushing The Downswing Forever (video) | 2025](https://www.youtube.com/watch?v=2lQ0vSHUBhw)
+   - Finish your backswing: The three-beat swing tempo | Right shoulder turn
+   - Let your arms fall down: Club-dropping drill | Hit "baby 8-iron" by letting arms fall
+   - Change gears properly: Hit top speed at the ball, not at the top
+   - Drill: bounce/pause at the top
+
+1. [3 Ridiculously Simple Moves for an Automatic Release – No Thinking Needed (video) | 2025](https://www.youtube.com/watch?v=I-NVdnkwgl8)
+   - Note: His 3 o'clock looks more like 4 o'clock to me. Best to pay attention to the yellow ball's position at 1m24s. It seems to be on the target line.
+   - YMCA drill for irons: "Y" Must Come After (impact with the ball) - draws and fades
+   - YMCA drill for driver: "Y" Must Come At (impact with the ball)
+   - Crossover drill with left leg only setup (no lower body movement, only arms and hands)
+   - Hitchhiker thumb position drill: Natural release swing with left arm only (usually with no ball)
+
+1. [The Eureka Left Turn Secret… This Changes Everything! (video) | 2025](https://www.youtube.com/watch?v=vxvu3rVoxCg) -- 20m
+   - Finish the swing
+   - Left foot flare for better rotation
+   - Finish with:
+     * all your weight on the left foot
+     * right toe touching the ground (wearing shoes with a leather-like upper, not a soft mesh upper)
+     * knees together
+   - Ernie Els wedge swing technique: Continue to turn after impact
+   - Heel-line drill: Swing a 7-iron and finish at P8. Club shaft should finish above the heel line.
+   - The Punisher drill: As per the heel-line drill, but with an extended club handle
+
 
 ## Follow through
 
@@ -10,6 +40,8 @@
 1. [Michael Breed | Fix Your Follow Through! An Easy Guide to a Smooth Finish with Michael Breed (video) | 2024](https://www.youtube.com/watch?v=KwsUFMzjKF4)
 
 1. [Backswing.com | What are some ways to work on follow through for your golf swing? | 2022](https://backswing.com/roundup/golf-swing-follow-through/)
+
+1. [MakeTheTurn: Jeff Ritter | Give Me 30 Minutes And I'll Unlock Your Best Ball Striking (video) | 2025](https://www.youtube.com/watch?v=k0q0VgZhKd8)
 
 
 ## Transition & shift

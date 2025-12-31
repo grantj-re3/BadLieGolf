@@ -26,6 +26,13 @@ are a few glossaries to help navigate golfing terminology.
 1. [Performance Golf | 50 Terms Every Beginner Golfer Should Know | 2023](https://www.performancegolf.com/blog/50-terms-every-beginner-golfer-should-know)
 
 
+## Golf Swing Positions: P Classification System, P1-P10
+
+1. [Golf Insider: Jacob Watson | Golf Swing Positions Explained (P1 To P10) | 2024](https://golfinsideruk.com/golf-swing-positions/)
+1. [DIY Golfer: Zach Gollwitzer | Golf Swing Positions: P Classification System](https://www.thediygolfer.com/swing-positions)
+1. [HackMotion | Golf Swing Positions Simplified: The P Classification System Explained | 2025](https://hackmotion.com/golf-swing-positions/)
+
+
 ## Miscellaneous
 
 1. [Terry Mordue & www.MadamEulalie.org | A Glossary of Golf Terminology | 2012-2022](https://www.madameulalie.org/annots/pgwgolf.html)

@@ -1,8 +1,5 @@
 # World Class Golf - Craig Hanson & Dr. Rob Neal
 
-Aside: [DIY Golfer | Golf Swing Positions: P Classification System](https://www.thediygolfer.com/swing-positions)
-
-
 ## Shift and lift
 
 1. :thumbsup: [This Move Simplifies Your Entire Golf Swing!! (video) | 2024](https://www.youtube.com/watch?v=D5lxLPrpN4k)

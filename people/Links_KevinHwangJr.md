@@ -22,7 +22,7 @@ Many of his videos are short, 2 to 10 minutes
    - Pull the club down with the lower body **while arms and upper body stay in place** |
      **When the lower body reaches the setup position** then throw the arms towards the 1 o'clock position
 
-1. [Golf Lesson: 2 Tips To Increase Clubhead Speed Immediately (video) | 2023](https://www.youtube.com/watch?v=EewEbXAtPPg)
+1. :thumbsup: [Golf Lesson: 2 Tips To Increase Clubhead Speed Immediately (video) | 2023](https://www.youtube.com/watch?v=EewEbXAtPPg)
    - Tip 1: From half way down (about P6): Stop/minimise rotation | Throw the arms towards the target
    - Tip 2: From about P6 to P8: Visualise hands moving a short distance while clubhead moves a great distance [L-to-L movement]
    - Grip pressure 1/10 or 2/10 | Relax arms | Arms feel like rope or noodles

@@ -59,6 +59,7 @@ Note: Vertical drop = Drop into the slot = Shallow downswing
    - Drill/feel: Take your backswing | Remove your left hand from the club and place it on your right shoulder |
      Use only your right arm to swing (into an impact bag) while keeping your right shoulder back |
      Do this without any tension in your shoulders
+1. :thumbsup: [Hit First, Then Rotate — The Secret Pros Actually Use (video) | 2025](https://www.youtube.com/watch?v=Tc5w3DAFjyc)
 1. [Master The Vertical Drop With Just This One Drill !!! (video) | 2024](https://www.youtube.com/watch?v=NmBYRjPw9S8)
 
 

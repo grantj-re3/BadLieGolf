@@ -20,8 +20,23 @@
    - Synchronise your hip turn with your swing speed
 
 1. :thumbsup: [The Truth About Left Arm Straight (It's Not What You Think!) (video) | 2026](https://www.youtube.com/watch?v=FbvH5Z-0hPc)
+   - Trail elbow must not over flex | Trail shoulder should retract (don't just rotate the torso)
+     Trail hand position (on the grip) should push down towards the ground at address
+
+1. :thumbsup: [Control The Forces - The Real Secret To Ball Striking Mastery! (video) | 2025](https://www.youtube.com/watch?v=NS4ZMQ_xk4U)
+   - Do not move to the next drill until you have mastered the previous drill.
+   - *Drill 1: Swing hard, stop quick*: Very short, deliberate, controlled follow through (to P7.5; ~75cm past impact).
+     At finish: Belt buckle is over lead foot | Spine tilt | Both arms straight | Club shaft trails the lead arm
+   - *Drill 2: Faster, not longer*: A faster version of drill 1. Try to stop at the same place as drill 1 (but in practice it
+     is likely to be about P8). Looks like a punch shot.
+   - *Drill 3*: as per drill 2, but finish at P9 with: Arms straight | Hips forward | Chest up
+   - Experiment: How far can you hit the ball with the shortest follow through?
+
 1. [The Downswing Power Secret That Nobody’s Talking About! (video) | 2025](https://www.youtube.com/watch?v=FxN-4DBLjWM)
-1. [Control The Forces - The Real Secret To Ball Striking Mastery! (video) | 2025](https://www.youtube.com/watch?v=NS4ZMQ_xk4U)
+   - On the downswing, you must get your elbows and hands back to your mid-line quickly |
+     Do this while the body is still closed | Strike the ground after impact | Rehearse with the *Hit hard, stop quick* drill
+   - If you practice on a mat, do the *towel behind the ball* drill
+
 1. [Hip Turn HACK For Incredible Ball Striking! (video) | 2024](https://www.youtube.com/watch?v=gh_DGfEhPNo)
 1. [Rob and Eric Cogorno | Why Weight Shift Is Overrated for Hitting It Far (video) | 2026](https://www.youtube.com/watch?v=k4kKgbs0w-w)
 

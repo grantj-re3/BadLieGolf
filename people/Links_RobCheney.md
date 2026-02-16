@@ -20,7 +20,7 @@
    - Synchronise your hip turn with your swing speed
 
 1. :thumbsup: [The Truth About Left Arm Straight (It's Not What You Think!) (video) | 2026](https://www.youtube.com/watch?v=FbvH5Z-0hPc)
-   - Trail elbow must not over flex | Trail shoulder should retract (don't just rotate the torso)
+   - Trail elbow must not over flex | Trail shoulder should retract (don't just rotate the torso) |
      Trail hand position (on the grip) should push down towards the ground at address
 
 1. :thumbsup: [Control The Forces - The Real Secret To Ball Striking Mastery! (video) | 2025](https://www.youtube.com/watch?v=NS4ZMQ_xk4U)

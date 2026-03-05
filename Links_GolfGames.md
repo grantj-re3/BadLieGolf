@@ -11,6 +11,13 @@ Read handicap info [here](Links_Handicap.md).
 1. [Out Of Bounds Golf: Jon Webber | 25+ Fun Golf Games For The Course (Formats For 1-12 Players) | 2023](https://outofboundsgolf.com/golf-games-for-the-course/)
 
 
+## Scorecard rules
+
+1. [Golf Monthly: Jeremy Ellwood | 16 Important Golf Scorecard Rules To Remember | 2022](https://www.golfmonthly.com/features/golf-rules/important-golf-scorecard-rules-67737)
+1. See Tracy Tresidder video below
+1. [R&A | The Rules of Golf: Rule 3 The Competition | c.2019](https://www.randa.org/en/rog/the-rules-of-golf/rule-3)
+
+
 ## Stableford scoring
 
 ### Detail
@@ -33,7 +40,11 @@ Read handicap info [here](Links_Handicap.md).
 
 
 ### Videos
-
+1. :thumbsup: [Tracy Tresidder | Stableford Scoring (video) | 2013](https://www.youtube.com/watch?v=pVDHc5MD1RA)
+   - [7m39s] A valid card must include:
+     * Before the round: Player's name and handicap | Date | Type of competition | Swap cards with your marker
+     * During the round: Stroke score for each hole (or "-")
+     * After the round:  Player and Marker must both sign | Return card to the player
 1. :thumbsup: [Jude Read - PGA Golf Professional | Stableford Scoring System (video) | 2020](https://www.youtube.com/watch?v=OwEs5Bfgnrg)
    - Excellent detail about how to complete your scorecard
    - ...but assumes you already know how to apply a handicap to each hole

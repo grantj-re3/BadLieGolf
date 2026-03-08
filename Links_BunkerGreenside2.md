@@ -127,6 +127,7 @@
 1. [Dan Grieve | Many of his videos include bunker shots](people/Links_DanGrieve.md)
 1. [Porzak Golf | Several videos are about bunker shots](people/Links_PorzakGolf.md)
 1. [Padraig Harrington | Several videos are about bunker shots](people/Links_PadraigHarrington.md)
+1. [Warren Bennett | Includes bunker shots](people/Links_WarrenBennett.md)
 
 1. [AlexElliottGolf | Golfing LEGEND Reveals FORGOTTEN Bunker Concept That YOU'LL QUICKLY USE (I HAVE!!) (video) | 2025](https://www.youtube.com/watch?v=J1b_oVpRbk4) -- with Costantino Rocca
 

@@ -1,18 +1,6 @@
 # Golf tips - 2026
 
-1. Warren Bennett Golf Academy
-   - [The Biggest Swing Myth in Golf Explained - Swing Faster with Less Effort (video) | 2026](https://www.youtube.com/watch?v=uIOl6xFdFck)
-     * Use your hands to create a *snap* at the bottom of the swing
-     * [2m00s] Sam Snead video
-     * [3m42s] Phase 1: L-to-L drill: Narrow stance (feet ~3 club heads apart) | About P5 to P9 | Still upper body (head and trunk) |
-       Keep the body closed for as long as possible on the downswing | Hit the ball | Kick the trail knee towards the target
-     * [8m52s] Phase 2: As above, but let the follow through *go* to P10. | Allow the trail elbow to be wide (away from your body) at P5. |
-       Wait for the trail shoulder to push your chin up, then look at the ball (40 yards away).
-     * [12m17s] Phase 3: As for phase 2 but widen stance and do a bigger backswing. | Trail elbow moves in front of the trail hip in the downswing.
-     * Feet together drill [here](https://www.youtube.com/watch?v=NRlBAJw3BlE)
-
-   - [15/24 - Learn the ‘Structure of the Right Arm’ (video) | 2025](https://www.youtube.com/watch?v=kvQiWgcBJIQ)
-     * [3m53-5m56] Right arm: Wide-narrow-wide | Straightish-bent-straight | Bent action has the right elbow in front of your right pocket
+1. [Warren Bennett](people/Links_WarrenBennett.md)
 
 1. [Top Speed Golf - Clay Ballard | Simple Golf Swing (video) | 2019](https://www.youtube.com/watch?v=UCLq3Ev76TQ)
    - Golf Swing: Drills for rotation, weight shift & vertical body movement
@@ -32,4 +20,12 @@
      you start your downswing: **Clear the lead hip** by rotating | Move the **trail shoulder down** | **Drive the trail elbow forward**
 
 1. [SMASH FACTOR GOLF COACHING | BEST (& easiest) DRILL for CORRECT GOLF DOWNSWING movement sequence (video) | 2017](https://www.youtube.com/watch?v=_oYW54yKlJk)
+
+
+## RC Golf Performance, Shawn Light
+
+1. [Most Golfers Shift Too Late… Here’s When It Should Actually Happen (video) | 2026](https://www.youtube.com/watch?v=DjFwQPyDfqU)
+   - Kettlebell conditioning drill | Rope Flow drill to train dynamic recenter + sequencing | Swing drills to apply it immediately
+
+1. [You’re Rotating Wrong in the Backswing (Trail Foot Pressure & Ground Force Explained) (video) | 2026](https://www.youtube.com/watch?v=7Vy5voCALRc)
 

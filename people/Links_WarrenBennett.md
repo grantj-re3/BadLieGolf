@@ -13,8 +13,17 @@
 1. [15/24 - Learn the ‘Structure of the Right Arm’ (video) | 2025](https://www.youtube.com/watch?v=kvQiWgcBJIQ)
    - [3m53-5m56] Right arm: Wide-narrow-wide | Straightish-bent-straight | Bent action has the right elbow in front of your right pocket
 
-1. [The TEN BALL TEMPO DRILL - GLUE YOUR SWING TOGETHER (video) | 2025](https://www.youtube.com/watch?v=GEYJSJxhxYM)
+1. :thumbsup: [The TEN BALL TEMPO DRILL - GLUE YOUR SWING TOGETHER (video) | 2025](https://www.youtube.com/watch?v=GEYJSJxhxYM)
    - Exercise: With 8 iron, take a full swing, but slow your tempo so the ball only goes a third of your normal distance
+
+1. :thumbsup: [Why is this So Overlooked? The KEY INGREDIENT for a PERFECT BACKSWING (video) | 2025](https://www.youtube.com/watch?v=xa4csEWosM8)
+   - How to get the clubhead behind your head at the top? Have a 90° angle between trail arm and club shaft.
+   - Better to hinge the club early on the backswing than drag the club *inside* then hinge late.
+   - Aim for the correct (*half way back*) P3 position: hands slightly behind toe line | wide (i.e. trail arm straight) |
+     shaft *goes through* trail shoulder (looking from behind) | 90° hinge | body coiled
+   - You cannot hinge correctly unless you grip the handle in your fingers (not palms)
+   - Exercise 1: Move from P1 to P3 then pause and check. Then move to P4 (by coiling only) and continue with the rest of the swing.
+   - Exercise 2: As above, but instead of pausing, move slowly from P1 to P3, then continue at normal speed.
 
 1. [Why you can do these drills anywhere - NO RANGE NEEDED (video) | 2026](https://www.youtube.com/watch?v=OnBYz-pmX4U)
    - Hit into a net so you only concentrate on swing mechanics. Minimise playing full shots.

@@ -8,6 +8,12 @@
      Step drill with load (bend knees) and extend (legs push up) | Blended step drill swing with arms |
      Blended step drill swing with arms and club | Real swing with same sensations
 
+1. [Golf with Coach Carolin | 3 Golf Drills That Will Make You a Scratch Golfer (video) | 2025](https://www.youtube.com/watch?v=wvvG1x0OQ4o)
+   - [1m18s] Split-hand drill: Brings the trail side of the body through | No ball
+   - [3m04s] Short swing drill: 1/2 or 3/4 swing | Match the finish length to the backswing length | Finish with straight arms |
+     Rotate with your core to finish facing your target | Without then with a ball
+   - [5m26s] Lawn mower drill: Lead shoulder and hip move diagonally back and up | Can add resistance | Add a club and get the same feeling
+
 
 ## Downswing sequence
 

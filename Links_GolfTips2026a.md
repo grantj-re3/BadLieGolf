@@ -2,13 +2,23 @@
 
 1. [Warren Bennett](people/Links_WarrenBennett.md)
 
+1. Golf Life Crisis - Joel Gregory
+   - [Golf Lessons (playlist) | 2025-2026](https://www.youtube.com/playlist?list=PL07KsiGcNJRUSV7MewOTBgZWCunlmYPeS)
+   - [Can the UK’s Best Golf Coach Get Me to Scratch in a Year? (video) | 2025](https://www.youtube.com/watch?v=Sp4bdYZZ2Ok)
+   - :thumbsup: [I Finally Learned Weight Shift With This Simple Drill (video) | 2025](https://www.youtube.com/watch?v=LXX5BzwkwU4)
+     * [1m42s] Footwork drill with 2 half tennis balls | slow swing
+     * [6m31s] Drill: Ball in driver position, but hit 9 iron
+     * [11m05s - 12m50s] Reverse hand positions on the club to feel the correct trail elbow position
+     * [14m19s] Path drill: 3 balls parallel to your target line but outside-right of your real ball | 3 balls parallel to your
+       target line but inside-left of your real ball | Ensures your path is square or inside-out
+
 1. [Top Speed Golf - Clay Ballard | Simple Golf Swing (video) | 2019](https://www.youtube.com/watch?v=UCLq3Ev76TQ)
    - Golf Swing: Drills for rotation, weight shift & vertical body movement
    - 20 reps of each drill: Rotation | Rotation + tilt | Step drill with correct sequence and finish on toes of right foot |
      Step drill with load (bend knees) and extend (legs push up) | Blended step drill swing with arms |
      Blended step drill swing with arms and club | Real swing with same sensations
 
-1. [Golf with Coach Carolin | 3 Golf Drills That Will Make You a Scratch Golfer (video) | 2025](https://www.youtube.com/watch?v=wvvG1x0OQ4o)
+1. [Golf with Coach Carolin: Carolin Pinegger | 3 Golf Drills That Will Make You a Scratch Golfer (video) | 2025](https://www.youtube.com/watch?v=wvvG1x0OQ4o)
    - [1m18s] Split-hand drill: Brings the trail side of the body through | No ball
    - [3m04s] Short swing drill: 1/2 or 3/4 swing | Match the finish length to the backswing length | Finish with straight arms |
      Rotate with your core to finish facing your target | Without then with a ball

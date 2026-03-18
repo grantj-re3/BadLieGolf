@@ -1,4 +1,4 @@
-# Golf swing: balance
+# Golf swing: Balance
 
 1. [Jonathan Kim-Moss Golf | HOW TO HOLD YOUR BALANCE (THIS IS WHY YOU DONT FEEL STABLE) (video) | 2021](https://www.youtube.com/watch?v=lRJifHATB8c)
    - Why improve your [post-impact] balance?
@@ -183,4 +183,21 @@
      * Make controlled swings barefoot with a mid iron
      * As you work your way to swinging to full speed, you should feel your feet grip the ground
      * After you find your ideal pace, put your shoes back on and replicate that same feeling
+
+
+## Balance - falling onto your toes
+
+1. [Caddie: Spencer Lanoue | How to Keep Weight Off the Toes in a Golf Swing | 2025](https://www.caddiehq.com/resources/how-to-keep-weight-off-toes-in-golf-swing#final-thoughts)
+   - Why Is All My Weight On My Toes? Understanding the Root Cause | The Fix Starts Before You Swing: Nailing Your Address Position |
+     The Biggest Culprit: How to Stop Early Extension | Using the Ground for Power (The Right Way)
+   - Drills: The Chair Touch | The Hovering Toes
+
+1. [Physical Solutions: Bob Wood | Weight Too Far Forward (PDF) | 2014](https://www.physical-solutions.co.uk/wp-content/uploads/2014/10/Weight-Too-Far-Forward_doc.pdf)
+   - A drill to resist the force pushing you onto your toes
+
+1. [My Golf Instructor: Maria Palozola | Toes Up Drill (video) | 2020](https://www.mygolfinstructor.com/instruction/diagnosing-problems/drills/toes-up-drill/245/)
+   - Drill: Swing with a 2x4 under your toes
+
+1. [Brian Manzella Golf Academy: Forum | Falling forward... | 2007](https://forum.brianmanzellagolf.com/threads/falling-forward.7636/)
+   - See the first comments by *Brian Manzella* and by *Jim Kobylinski*
 

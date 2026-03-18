@@ -38,6 +38,29 @@
 1. [SMASH FACTOR GOLF COACHING | BEST (& easiest) DRILL for CORRECT GOLF DOWNSWING movement sequence (video) | 2017](https://www.youtube.com/watch?v=_oYW54yKlJk)
 
 
+## Playing from the rough
+
+1. [Golf Care: Tom Green | How to hit a golf ball out of thick rough | 2020](https://www.golfcare.co.uk/blog/how-to-hit-a-golf-ball-out-of-thick-rough/)
+   - Club selection – take more loft | Get the ball back in your stance | Weight forward, neutral stance |
+     Set the wrists earlier in the backswing | Grip the club firmer | Hit it hard | Take some practice swings
+
+1. [Padraig Harrington | PLAYING FROM THE ROUGH | Paddy's Golf Tip #20 (video) | 2021](https://www.youtube.com/watch?v=3mkvN2SbPGo)
+   - Long shot or a chip shot: try to hit the ball as clean as possible
+   - The lie: straight down in the grass | grass running towards the target | grass running away from the target |
+     grass running towards you | grass running away from you | dark green implies thick/strong grass | under a tree implies weaker/thinner grass
+   - Loft is your friend
+
+1. [HackMotion: Britt Olizarowicz | How to Hit Out of the Thick Rough (Steps, Tips, and Troubleshooting) | 2025](https://hackmotion.com/hitting-out-of-rough/)
+   - 9 Simple Tips: Pick the Right Club | Check Your Ball Position | Slightly Open Stance | Work on Clubface Control | Accelerate Through Impact |
+     Plan for the Result | Visualize the Shot You Will Hit | Pick Your Next Position to Play From | Spend Time Practicing
+   - Drills to Help You Hit Out of Deep Rough: Steep Swing Wrist Set Drill | Faldo Drill
+   - FAQs: How do you hit through thick rough? | Why can’t I hit out of the rough? | Should you hit woods out of the rough? |
+     Is it better to be on the fairway or in the rough?
+
+1. [Practical Golf | The Definitive Guide to Playing from the Rough | 2022-2024](https://practical-golf.com/the-definitive-guide-to-playing-from-the-rough)
+   - The Buried Lie | The In-Between Lie | The Fluffy Lie
+
+
 ## RC Golf Performance, Shawn Light
 
 1. [Most Golfers Shift Too Late… Here’s When It Should Actually Happen (video) | 2026](https://www.youtube.com/watch?v=DjFwQPyDfqU)

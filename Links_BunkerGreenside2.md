@@ -37,6 +37,15 @@
    - Slow swing: implies finesse e.g. more reliable low point
    - Long swing: implies more speed
 
+1. :thumbsup: [TruGolf Academy: Jon Watts | CORRECT WRIST ACTION FOR BETER BUNKER PLAY : SIMPLE GOLF TIPS (video) | 2021](https://www.youtube.com/watch?v=DVUC3g7P-4s)
+   - Cock wrists early during the backswing | Uncock [early] during the downswing to activate the bounce |
+     Cupped left/trail wrist (knuckles forward) | More weight on the lead foot | Soft grip |
+     Lack of spin means you've taken too much sand | Use a more square club face for more distance |
+     He finishes facing the target
+   - [Here](https://www.youtube.com/watch?v=1rQ6qHHJGd0): Flare the lead foot (so it's easier to turn and finish facing the target)
+   - [Here](https://www.youtube.com/watch?v=tZ9cT8bwfNU): Low hands | Handle back (pointing to belly button) |
+     Open club face (but I don't like this much because I feel I need extra speed to compensate and then my body moves too much]
+
 1. The Art of Simple Golf
    - [Every Golfer Gets Out of Any Bunker Every Time Doing This Simple Technique (video) | 2023](https://www.youtube.com/watch?v=k4AsDHJpzu4)
      * He suggests a closed stance to get consistent entry point!!!

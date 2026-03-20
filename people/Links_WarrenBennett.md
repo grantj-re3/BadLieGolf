@@ -41,13 +41,13 @@
    - Phase 3b: Add some hinge
    - Phase 4: Add more body turn - almost a full shot
 
-1. [Bunkers - Get your ball out FIRST TIME. EVERY TIME (video) | 2023](https://www.youtube.com/watch?v=9QfsOClctoc)
+1. :thumbsup: [Bunkers - Get your ball out FIRST TIME. EVERY TIME (video) | 2023](https://www.youtube.com/watch?v=9QfsOClctoc)
    - The four S's:
      * Stance: a little open | wide, hence hands low
      * Steep: wrist hinge | backswing must not be short
      * Speed
      * Straight: clubhead goes virtually up and down | swing must be straight or out-to-in (it must not be in-to out)
-   - Tip: To engage the bounce, allow the clubhead to pass the hands near impact
+   - Tip: To engage the bounce, allow the clubhead to pass the hands near impact [@MegaNidhi says *The fifth S is Scoop*]
 
 1. [The Do’s and Dont’s of FILMING YOUR GOLF SWING (video) | 2025](https://www.youtube.com/watch?v=MnZvKSJ-EZQ) -- camera position
 

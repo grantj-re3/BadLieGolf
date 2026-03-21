@@ -426,6 +426,10 @@ For a flat lie in soft sand...
    - [fitzygolfpro - Brian Fitzgerald | How To Practice Bunker Shots Without Any Sand Using A Towel (video) | 2018](https://www.youtube.com/watch?v=VZ8N_WCpIyY)
    - [Erika Larkin | HOW TO HIT A BUNKER SHOT AT HOME: Golf Hack! (video) | 2020](https://www.youtube.com/watch?v=WMu6dOw0bS0)
 
+1. Long pile artificial grass
+   - I use an offcut of artificial grass which has about 35-37mm (1.5 inch) pile. It's fairly good.
+   - I imagine it is quite similar to a golf practice mat with a first-cut rough (i.e. semi-rough) section
+
 1. [Golf.com - Kevin Sprecher | Home Practice: Bunker Splash (video) | 2020](https://golf.com/instruction/bunker-shots/home-practice-bunker-splash/)
    - Drill 1 (sand required, but no bunker needed):
      * Use a plastic, wooden or similar board

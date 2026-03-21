@@ -1,61 +1,56 @@
 # My greenside bunker shots
 
-What works for me (in Aug 2024)...
+What works for me in March 2026...
 
-## Soft-to-firm sand
+Most ideas are consistent with the those of Stan Utley, Chris Forsyth, Warren Bennett and several others [here](../Links_BunkerGreenside2.md).
 
-E.g. Soft sand which is slighly damp or slightly compacted
+
+## Key points
+
+For:
+
+- Sand of medium/average firmness
+- Good lie
+
 
 Main setup:
 
-- I prefer my weight towards my heels (and keep it there) <sup>[1]</sup>
-- Weight over my lead/left leg (and keep it there)
-- Lock my lead/left elbow (and keep it locked until after impact)
-- I prefer to address the ball so the centre of the ball is closer to
-  the toe of the club head (as I have a tendency to catch too much
-  sand and I *feel* I catch less sand this way) <sup>[2]</sup>
+- A common problem for me is my bunker shots don't go far enough, so usually I don't choke down on the grip.
+- Flare the lead foot 30-45° so it is easier to finish facing the target.
+- Feet parallel with the ball-to-target line.
+- Medium width stance. If it is too wide, it's difficult to finish facing the target.
+- Ball slightly closer to my lead/left foot.
+- Typically, I like the club face to be square to the target line.
+- I want the lowest point in my swing about 2" on the target side of the ball. Align sternum with that low point.
+- Hands fairly low for a shallower swing plane, so I need to stand slightly further from the ball. I'm happy for
+  the heel of the club face to catch a little more sand than the toe (provided it doesn't close the club face).
+- I prefer to address the ball so the toe of the club head is near the centre of the ball (as I have a tendency
+  to catch too much sand and I *feel* I catch less sand this way) <sup>[1]</sup>
+
 
 Other setup (which I tend to do without thinking):
 
-- Flare the feet
+- Lock my lead/left elbow (and keep it locked until after impact)
 - Dig the feet into the sand
-- Slightly open the club face (to about 1 o'clock). You may need
-  to open it further to avoid a steep bunker wall and lip.
-- Open the stance so that the opened club face points towards
-  the target
-- Ball in line with my sternum (after I have moved my weight over
-  my lead/left leg) ... which implies the ball is closer to the
-  left foot than the right
-- No forward shaft lean (i.e. sternum, top of handle and bottom
-  of shaft are all in a line)
+- Perhaps 70% of my weight over my lead/left leg
+- No forward shaft lean
 - Right hand grip is very weak (to ensure I do not close the
   club face during the swing)
-- I intend to:
-  * make first contact with the sand about 2" behind the ball
-  * take a dollar-bill length divot which is fairly shallow
-  * have the lowest point of my swing under the ball
-  * hit forward through the sand 
-  * not make contact with the ball at all (unless hitting a
-    longer shot)
-- Address the ball with the club head hovering above the sand and
-  a few inches behind the intended entry point into the sand <sup>[2]</sup>
+
 
 Motion:
 
+- Do a controlled 3/4 length, narrow backswing (e.g. to P2.5). Club shaft points to the sky at the completion of the backswing. ***About 90° wrist hinge.***
 - Almost pause at the top
-- **Do not allow the hips to move down as the club head moves down.**
-  Instead, rotate the hips while keeping them level during the
-  backswing and downswing. <sup>[1]</sup>
-- Hit/splash/throw a shallow rectangle-shaped divot of sand several
-  metres towards or onto the green
-- I try to keep my legs and head very quiet/still during the backswing
-  and downswing
-- Finish facing the target
+- ***You must uncock the wrists in the downswing*** so the club shaft has no forward shaft lean at impact.
+  * I feel that the body remains closed during the downswing
+  * After impact, I feel the momentum of the club pull my body around to face the target
+- Don't swing too hard as you need to control your divot position and depth. Perhaps 3/4 speed.
+  In other words, try to keep legs and head very quiet/still during the backswing and downswing.
+- ***You must rotate*** during your follow through so you finish by facing the target.
 
 
 Notes:
 
-1. I suspect this is natural for most golfers so is not worthy of a
-   special mention for them.
-2. I suspect most golfers don't do this.
+1. I suspect noone teaches this, so you shouldn't copy it!
 

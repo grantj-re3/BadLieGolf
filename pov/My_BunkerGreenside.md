@@ -15,15 +15,15 @@ For:
 
 Main setup:
 
-- A common problem for me is my bunker shots don't go far enough, so usually I don't choke down on the grip.
+- I don't usually choke down on the grip because a common problem for me is my bunker shots don't go far enough.
 - Flare the lead foot 30-45° so it is easier to finish facing the target.
 - Feet parallel with the ball-to-target line.
 - Medium width stance. If it is too wide, it's difficult to finish facing the target.
-- Ball slightly closer to my lead/left foot.
+- Ball slightly closer to my lead/left foot than by trail/right foot.
 - Typically, I like the club face to be square to the target line.
 - I want the lowest point in my swing about 2" on the target side of the ball. Align sternum with that low point.
 - Hands fairly low for a shallower swing plane, so I need to stand slightly further from the ball. I'm happy for
-  the heel of the club face to catch a little more sand than the toe (provided it doesn't close the club face).
+  the heel of the club face to catch a little more sand than the toe (and I've never noticed this close the club face).
 - I prefer to address the ball so the toe of the club head is near the centre of the ball (as I have a tendency
   to catch too much sand and I *feel* I catch less sand this way) <sup>[1]</sup>
 

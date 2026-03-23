@@ -2,6 +2,8 @@
 
 1. [ChrisRyanGolf | USE YOUR FEET CORRECTLY TO PLAY BETTER GOLF (video) | 2019](https://www.youtube.com/watch?v=TqYdaLARK2I)
 
+1. [Jonathan Kim-Moss Golf | FOOT WORK IN THE GOLF SWING (How the Weight Moves in Your Feet) (video) | 2021](https://www.youtube.com/watch?v=U9Cf1r_bRNY)
+
 1. Mel Sole
    - [Pay Attention to Good Footwork in the Golf Swing (video) | 2018](https://www.youtube.com/watch?v=HoyLFoPy4I8)
      * [Article](https://www.ritson-sole.com/blog/blog/pay-attention-to-good-footwork-in-the-golf-swing-technical-thursday-94)

@@ -49,7 +49,7 @@
 1. Lee Kopanski
    - :thumbsup: [Low Hands and use the Heel for great Bunker Shots! (video) | 2024](https://www.youtube.com/watch?v=Zlr4aOgYTbQ)
      * [2m48s - 3m28s] ***I feel as though the sharp point of the heel is digging into the sand.
-       That's how low the hand should be... and works well on both dry and hard and wet sand.***
+       That's how low the hands should be... and works well on both dry and hard and wet sand.***
    - [Lose the FEAR ! (video) | 2023](https://www.youtube.com/watch?v=CCihXsCtP24&t=4m59s)
      * Active wrists: hinge, unhinge through impact then rehinge
      * With relaxed arms and wrists and extra soft hands, swing the clubhead

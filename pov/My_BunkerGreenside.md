@@ -19,7 +19,7 @@ Main setup:
 - Flare the lead foot 30-45° so it is easier to finish facing the target.
 - Feet parallel with the ball-to-target line.
 - Medium width stance. If it is too wide, it's difficult to finish facing the target.
-- Ball slightly closer to my lead/left foot than by trail/right foot.
+- Ball slightly closer to my lead/left foot than my trail/right foot.
 - Typically, I like the club face to be square to the target line.
 - I want the lowest point in my swing about 2" on the target side of the ball. Align sternum with that low point.
 - Hands fairly low for a shallower swing plane, so I need to stand slightly further from the ball. I'm happy for

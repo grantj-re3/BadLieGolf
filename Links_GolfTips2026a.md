@@ -12,17 +12,25 @@
      * [14m19s] Path drill: 3 balls parallel to your target line but outside-right of your real ball | 3 balls parallel to your
        target line but inside-left of your real ball | Ensures your path is square or inside-out
 
-1. [Top Speed Golf - Clay Ballard | Simple Golf Swing (video) | 2019](https://www.youtube.com/watch?v=UCLq3Ev76TQ)
-   - Golf Swing: Drills for rotation, weight shift & vertical body movement
-   - 20 reps of each drill: Rotation | Rotation + tilt | Step drill with correct sequence and finish on toes of right foot |
-     Step drill with load (bend knees) and extend (legs push up) | Blended step drill swing with arms |
-     Blended step drill swing with arms and club | Real swing with same sensations
+1. Lee Kopanski
+   - [Hands First - Body Follows! (video) | 2023](https://www.youtube.com/watch?v=4OuajLQRgBg)
+     * The body reacts to the clubface and follows the hand, arm and wrist movement, and not the other way around
+   - [L to L Power! (video) | 2023](https://www.youtube.com/watch?v=A2nHKIZvpw8)
+     * the feet together drill and the L-to-L drill work perfectly together allowing the body to be pulled
+       into position by the swinging motion of the hands and arms
+   - [More LAG for MASSIVE GAINS in SPEED & POWER! (video) | 2024](https://www.youtube.com/watch?v=G4SusaIu4Bs)
 
 1. [Golf with Coach Carolin: Carolin Pinegger | 3 Golf Drills That Will Make You a Scratch Golfer (video) | 2025](https://www.youtube.com/watch?v=wvvG1x0OQ4o)
    - [1m18s] Split-hand drill: Brings the trail side of the body through | No ball
    - [3m04s] Short swing drill: 1/2 or 3/4 swing | Match the finish length to the backswing length | Finish with straight arms |
      Rotate with your core to finish facing your target | Without then with a ball
    - [5m26s] Lawn mower drill: Lead shoulder and hip move diagonally back and up | Can add resistance | Add a club and get the same feeling
+
+1. [Top Speed Golf - Clay Ballard | Simple Golf Swing (video) | 2019](https://www.youtube.com/watch?v=UCLq3Ev76TQ)
+   - Golf Swing: Drills for rotation, weight shift & vertical body movement
+   - 20 reps of each drill: Rotation | Rotation + tilt | Step drill with correct sequence and finish on toes of right foot |
+     Step drill with load (bend knees) and extend (legs push up) | Blended step drill swing with arms |
+     Blended step drill swing with arms and club | Real swing with same sensations
 
 
 ## Downswing sequence

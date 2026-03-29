@@ -46,17 +46,6 @@
    - [Here](https://www.youtube.com/watch?v=tZ9cT8bwfNU): Low hands | Handle back (pointing to belly button) |
      Open club face (but I don't like this much because I feel I need extra speed to compensate and then my body moves too much]
 
-1. Lee Kopanski
-   - :thumbsup: [Low Hands and use the Heel for great Bunker Shots! (video) | 2024](https://www.youtube.com/watch?v=Zlr4aOgYTbQ)
-     * [2m48s - 3m28s] ***I feel as though the sharp point of the heel is digging into the sand.
-       That's how low the hands should be... and works well on both dry and hard and wet sand.***
-   - [Lose the FEAR ! (video) | 2023](https://www.youtube.com/watch?v=CCihXsCtP24&t=4m59s)
-     * Active wrists: hinge, unhinge through impact then rehinge
-     * With relaxed arms and wrists and extra soft hands, swing the clubhead
-       and allow the swinging motion to gently pull the body with it
-     * [15m13s - 15m58s] Tiger's drill
-     * Get your hands your arms and your wrists to work independently from your shoulders and your upper body
-
 1. The Art of Simple Golf
    - [Every Golfer Gets Out of Any Bunker Every Time Doing This Simple Technique (video) | 2023](https://www.youtube.com/watch?v=k4AsDHJpzu4)
      * He suggests a closed stance to get consistent entry point!!!
@@ -147,6 +136,7 @@
 1. [Dan Grieve | Many of his videos include bunker shots](people/Links_DanGrieve.md)
 1. [Porzak Golf | Several videos are about bunker shots](people/Links_PorzakGolf.md)
 1. [Padraig Harrington | Several videos are about bunker shots](people/Links_PadraigHarrington.md)
+1. [Lee Kopanski](people/Links_LeeKopanski.md)
 1. [Warren Bennett | Includes bunker shots](people/Links_WarrenBennett.md)
 
 1. [AlexElliottGolf | Golfing LEGEND Reveals FORGOTTEN Bunker Concept That YOU'LL QUICKLY USE (I HAVE!!) (video) | 2025](https://www.youtube.com/watch?v=J1b_oVpRbk4) -- with Costantino Rocca

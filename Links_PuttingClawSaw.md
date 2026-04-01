@@ -2,49 +2,48 @@
 
 ## Coaching
 
-1. [Julian Mellor | The SAW GRIP stopped my YIPS after 30 years (video) | 2021](https://m.youtube.com/watch?v=3fHpaPm8P9M)
+1. Julian Mellor
+   - [The SAW GRIP stopped my YIPS after 30 years (video) | 2021](https://m.youtube.com/watch?v=3fHpaPm8P9M)
+     * Excellent description detail and demo.
+     * No closeups. Mostly swing and grip is viewed same camera angle.
+     * Detail at 2m44s - 8m33s
+     * He has only been cured of the yips for "not much more than a
+       couple of weeks" (however he is still using the saw grip 6
+       weeks after this video [here](https://www.youtube.com/watch?v=ztBQlwhfKZs)
+       so a couple of months after changing his grip)
+     * Saw grip:
+       + Right hand placed on the grip "sideways"
+       + Club rests between thumb and index finger.
+       + Right forearm movement is towards the target (gives stability).
+     * I think the last 2 putts (starting at 9m08s) were also holed-out
+       (but don't look like it because the hole is full of balls).
+     * Variations:
+       + [DIFFERENT variations of the SAW GRIP for PUTTING (video) | 2021](https://www.youtube.com/watch?v=mR00v10EoDk)
+     * Same story, different golfer:
+       + [Rob McGarr | I had putting yips for a year. This cured them instantly (video) | 2024](https://www.youtube.com/watch?v=bMWlx7wOSLk)
 
-   - Excellent description detail and demo.
-   - No closeups. Mostly swing and grip is viewed same camera angle.
-   - Detail at 2m44s - 8m33s
-   - He has only been cured of the yips for "not much more than a
-     couple of weeks" (however he is still using the saw grip 6
-     weeks after this video [here](https://www.youtube.com/watch?v=ztBQlwhfKZs)
-     so a couple of months after changing his grip)
-   - Saw grip:
-     * Right hand placed on the grip "sideways"
-     * Club rests between thumb and index finger.
-     * Right forearm movement is towards the target (gives stability).
-   - I think the last 2 putts (starting at 9m08s) were also holed-out
-     (but don't look like it because the hole is full of balls).
-   - Variations:
-     * [DIFFERENT variations of the SAW GRIP for PUTTING (video) | 2021](https://www.youtube.com/watch?v=mR00v10EoDk)
-   - Same story, different golfer:
-     * [Rob McGarr | I had putting yips for a year. This cured them instantly (video) | 2024](https://www.youtube.com/watch?v=bMWlx7wOSLk)
-
-1. [Julian Mellor | GOLF TIPS: Part 5 of 5 (video) | 2022](https://www.youtube.com/watch?v=RANxKFq6e8M)
-   - Grip pressure | More upright shaft | Smooth stroke | Hold your clubface after you've hit the putt
+   - [GOLF TIPS: Part 5 of 5 (video) | 2022](https://www.youtube.com/watch?v=RANxKFq6e8M)
+     * Grip pressure | More upright shaft | Smooth stroke | Hold your clubface after you've hit the putt
 
 1. [Jude Hobbs Golf | Should You Use THE CLAW GRIP When PUTTING (video) | 2023](https://www.youtube.com/watch?v=19DPDk9ii0Q)
    - Advantages: Takes right hand/wrist dominance out of the stroke | Allows tempo to be smooth
    - Disadvantage: Many people find it more difficult to stroke at the correct speed for 20, 30, 40, 50 feet
    - Don't allow the right arm to "flare out"; keep it connected
 
-1. [Glen Haynes | How To Putt With The Claw Grip (video) | 2021](https://www.youtube.com/watch?v=It1yp5cEoK8)
+1. Glen Haynes
+   - [How To Putt With The Claw Grip (video) | 2021](https://www.youtube.com/watch?v=It1yp5cEoK8)
+     * Excellent description detail and demo.
+     * No closeups. Mostly swing and grip is viewed same camera angle.
+     * Detail at 1m35s - 7m14
+     * Includes a few grip variations.
+     * Likens backswing to drawing back a pinball lever.
 
-   - Excellent description detail and demo.
-   - No closeups. Mostly swing and grip is viewed same camera angle.
-   - Detail at 1m35s - 7m14
-   - Includes a few grip variations.
-   - Likens backswing to drawing back a pinball lever.
-
-1. [Glen Haynes | Myth No.4 - Accelerate Through Putts (video) | 2021](https://www.youtube.com/watch?v=wSWC3_xv8Vc)
-
-   - **How to do long or uphill putts (with claw grip)**
-   - Read the text accompanying this video
-   - Don't accelerate (or decelerate) through the hitting zone
-   - Don't do a short backswing and long followthrough
-   - Equal backswing and followthrough
+   - [Myth No.4 - Accelerate Through Putts (video) | 2021](https://www.youtube.com/watch?v=wSWC3_xv8Vc)
+     * **How to do long or uphill putts (with claw grip)**
+     * Read the text accompanying this video
+     * Don't accelerate (or decelerate) through the hitting zone
+     * Don't do a short backswing and long followthrough
+     * Equal backswing and followthrough
 
 1. [Neal Freeman | HOW TO PUTT WITH THE CLAW GRIP (video) | 2016](https://www.youtube.com/watch?v=6JiQAIiOP2Y)
 
@@ -74,7 +73,9 @@
 
 1. [Mike & Marko, Golfholics | USING THE SAME GRIP AS PHIL MICKELSON - CLAW/PENCIL GRIP (video) | 2017](https://www.youtube.com/watch?app=desktop&v=QKS64Ykm7Ks)
 
-1. [LUKE KERR-DINEEN | Can ‘The Claw’ save your putting stroke? Here are examples you can copy |2019](https://golf.com/instruction/putting/can-claw-grip-save-putting-stroke-examples-copy/?amp=1)
+1. Luke Kerr-Dineen
+   - [Golf | Can ‘The Claw’ save your putting stroke? Here are examples you can copy |2019](https://golf.com/instruction/putting/can-claw-grip-save-putting-stroke-examples-copy/)
+   - [Golf Digest | Why Pros Love This Weird Grip? (video) | 2026](https://www.youtube.com/watch?v=2c2mdznZMBI)
 
 1. [Charlie Parsons, The Left Rough | Claw Putting Grip Primer: Can this method fix your stroke?](https://theleftrough.com/claw-putting-grip/)
 

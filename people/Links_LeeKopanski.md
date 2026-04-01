@@ -5,7 +5,7 @@
 He advocates:
 
 - Good alignment
-- Aim left, swing right (and his simply made practice-jig to encourage this)
+- Aim left, swing right (and his simply-made practice-jig encourages this)
 - Swing fast, softly
 - Short game
 - Drills

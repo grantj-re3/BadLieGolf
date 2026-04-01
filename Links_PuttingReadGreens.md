@@ -26,7 +26,7 @@
 1. [Meandmygolf: Piers Ward with Derek Uyeda | This Tip Was EYE OPENING...Wish I Knew This Sooner! (video) | 2022](https://www.youtube.com/watch?v=EmKK4gTo62I)
    - Derek Uyeda is Xander Schauffele's putting coach
    - Green reading and aiming
-   - They are using [Putting Plates](https://puttingplates.com/process/)
+   - They are using [Putting Plates](https://puttingplates.com/the-process/)
 
 1. [US GOLF TV: Todd Kolb | How to Read Greens Like a Pro (GREEN READING TIPS) (video) | 2022](https://www.youtube.com/watch?v=b3SzDo5mYeo)
    - For putts inside 20 feet AND which only break in one direction
@@ -39,4 +39,21 @@
    - More info: [Mind Caddie: Karl Morris | Mastering the Art of Putting: Insights from PGA Tour Coach Ralph Bauer (video) | 2024](https://www.youtube.com/watch?v=Lp2LAdwQ9i8&t=30m28s)
 
 1. [Dan Hendriksen Golf | PUTTING - AIMPOINT v PLUMB BOB (video) | 2020](https://www.youtube.com/watch?v=1o3UFLvdWyA)
+
+1. [Skip Kendall | How To Read Greens Like A Pro Fast! (Forget Aimpoint) (video) | 2025](https://www.youtube.com/watch?v=TGlF1RY3BbQ)
+   - Start reading greens 30-40 yards away - find the high point first | Identify slope direction and putt break before reaching your ball |
+     Always walk the low side - never the high side (25% less break visibility) | Step off distance and adjust for green speed |
+     Engagement process and target selection behind the hole | Complete putting execution with proper alignment
+
+1. [PAUL WILLIAMSON GOLF | How to judge the speed of the greens...fast! (video) | 2021](https://www.youtube.com/watch?v=KhCIDHp-qCo)
+   - How to calibrate the pace of golf greens on any given day | Assumes the practice green is a similar speed to those on the course
+   - Do 5 putts with a toe-to-toe swing [with a fixed tempo] and see [or measure] how many paces they roll | Repeat in the opposite direction
+
+1. [Steve Johnston Golf | EASIEST way to read ANY Green - SIMPLIFIED GREEN READING (video) | 2022](https://www.youtube.com/watch?v=195bnu-9OdE)
+   - How to estimate the shape of your putt if you know the *fall line* | How to find the fall line with your feet
+
+1. [Golf Xplained | Reading Greens Explained Like You're 10 (video) | 2025](https://www.youtube.com/watch?v=bRN8be8Yf1g)
+   - The words give a good overview with good coverage (but the images frequently don't reinforce the words).
+   - At 8m27s the video says *The most common mistake is not reading enough break*. Perhaps that is true, but I feel
+     *The most common mistake is not adequately reading the speed*.
 

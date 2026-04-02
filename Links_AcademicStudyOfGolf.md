@@ -73,3 +73,26 @@
    - The onset of the quiet eye occurred before the backswing, and it was
      located on either the back of the ball or the top
 
+
+## Putting: Reading greens using the plumb-bob method
+
+1. [Sasho James Mackenzie, Eric Sprigings | Evaluation of the plumb-bob method for reading greens in putting](https://www.researchgate.net/publication/7895116_Evaluation_of_the_plumb-bob_method_for_reading_greens_in_putting)
+   - [Taylor & Francis | Journal of Sports Sciences | February 2005 23(1):81-7 | DOI:10.1080/02640410410001730232](https://doi.org/10.1080/02640410410001730232)
+   - **Prerequisite**: Before using this method, the golfer needs to calibrate the putter so one side of the shaft appears vertical.
+     (See [video excerpt 1m55s to 4m35s](https://www.youtube.com/watch?v=BAnhSbIjAiI&t=115s) but ignore the rest since he is discussing a different method.)
+   - **Method**:  The golfer stands behind the ball *straddling an imaginary line* that bisects the hole, golf ball and stance of the golfer. |
+     The golfer then suspends the putter at arm’s length in front of the face allowing gravity to pull the shaft into a true vertical alignment. |
+     The golfer should be positioned far enough behind the ball so that both the ball and hole can be sighted within the length of the putter shaft. |
+     While sighting only out of the dominant eye, the golfer aligns the bottom of the shaft with the centre of the golf ball. |
+   - **Assumption**: The golfer stands perpendicular to the slope of the green beneath the feet.
+   - **Claimed result**: If there is any slope in the green, then the top of the shaft will be observed to be on the high side of the hole.
+   - **Main findings of the article**: It can only be used to determine the direction of break in a putt when there
+     is a constant slope between the golfer and hole [because it is measuring the slope beneath the feet]. |
+     It will only work if the golfer can stand exactly perpendicular to the slope of the green [but most are unable to consistently do this]. |
+     Even if this ideal situation arose, it would be undetectable by the golfer. Hence, a golfer
+     would not know when the plumb-bob method could be effectively employed. |
+     If the golfer does not stand perpendicular to the slope but rather parallel to gravity, then
+     plumb-bob separation [i.e. the visual gap between shaft and hole] will always be zero [if properly aligned]. |
+     If the slope of the green beneath the golfer is opposite in direction to the slope between
+     the ball and the hole, the plumb-bob method will actually suggest that the ball will break up the slope of the hill.
+

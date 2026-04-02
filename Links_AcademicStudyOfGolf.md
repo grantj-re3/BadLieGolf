@@ -82,8 +82,8 @@
      (See [video excerpt 1m55s to 4m35s](https://www.youtube.com/watch?v=BAnhSbIjAiI&t=115s) but ignore the rest since he is discussing a different method.)
    - **Method**:  The golfer stands behind the ball *straddling an imaginary line* that bisects the hole, golf ball and stance of the golfer. |
      The golfer then suspends the putter at arm’s length in front of the face allowing gravity to pull the shaft into a true vertical alignment. |
-     The golfer should be positioned far enough behind the ball so that both the ball and hole can be sighted within the length of the putter shaft.
-     While sighting only out of the dominant eye, the golfer aligns the bottom of the shaft with the centre of the golf ball. |
+     The golfer should be positioned far enough behind the ball so that both the ball and hole can be sighted within the length of the putter shaft. |
+     While sighting only out of the dominant eye, the golfer aligns the bottom of the shaft with the centre of the golf ball.
    - **Assumption**: The golfer stands perpendicular to the slope of the green beneath the feet.
    - **Claimed result**: If there is any slope in the green, then the top of the shaft will be observed to be on the high side of the hole.
    - **Main findings of the article**: It can only be used to determine the direction of break in a putt when there

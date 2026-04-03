@@ -307,6 +307,10 @@ Other putting pages:
 
 1. [Skip Kendall | PGA PRO's Putting Process That NEVER FAILS (video) | 2025](https://www.youtube.com/watch?v=-66FYVhDGKQ)
 
+1. [The Lads: Jason Day | Giving Grant Horvat a Putting Lesson (video) | 2025](https://www.youtube.com/watch?v=0DsErZEF0A8)
+
+1. [PuttView | Justin Rose's Putting Secrets | PuttView Masterclass (video) | 2022](https://www.youtube.com/watch?v=5iM5Z8-a0kw)
+
 
 ## :thumbsup: Quiet Eye putting
 

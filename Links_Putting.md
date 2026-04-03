@@ -294,9 +294,9 @@ Other putting pages:
 
 ## Other
 
-1. [Titleist: Joe Hallett | Never Miss A 3-Foot Putt Again! (video) | 2025](https://www.youtube.com/watch?v=FfVcPvdrfco)
+1. [Titleist: Joe Hallett | Never Miss A 3-Foot Putt Again! (video) | 2025](https://www.youtube.com/watch?v=eEfSKcvi4e4)
    - How much slope do you see or feel? Something: Aim at the high edge | Nothing: Aim within the cup | A lot: Aim just outside the cup [perhaps half a ball based on the maths]
-   - Similar video [here](https://www.youtube.com/watch?v=eEfSKcvi4e4) by Bryce Mooney
+   - Similar video [here](https://www.youtube.com/watch?v=FfVcPvdrfco) by Bryce Mooney
 
 
 ## Master classes

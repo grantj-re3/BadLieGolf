@@ -292,6 +292,22 @@ Other putting pages:
 1. [Top Putting Drill to Make More Putts From 3 to 9 Feet (video) | 2023](https://www.youtube.com/watch?v=wv7M9pGaZBg)
 
 
+## Other
+
+1. [Titleist: Joe Hallett | Never Miss A 3-Foot Putt Again! (video) | 2025](https://www.youtube.com/watch?v=FfVcPvdrfco)
+   - How much slope do you see or feel? Something: Aim at the high edge | Nothing: Aim within the cup | A lot: Aim just outside the cup [perhaps half a ball based on the maths]
+   - Similar video [here](https://www.youtube.com/watch?v=eEfSKcvi4e4) by Bryce Mooney
+
+
+## Master classes
+
+1. [Sonic Titan Golf | 18 Minutes of Unexpected Putting Wisdom from Paul Azinger Everyone Needs to Hear (video) | 2025](https://www.youtube.com/watch?v=oiXtryAaPhQ)
+
+1. [Callaway Golf Europe and Inci Mehmet | World’s Best Putter Shares His Secrets | Sam Burns Putting Masterclass (video) | 2026](https://www.youtube.com/watch?v=e2m1170kpNE)
+
+1. [Skip Kendall | PGA PRO's Putting Process That NEVER FAILS (video) | 2025](https://www.youtube.com/watch?v=-66FYVhDGKQ)
+
+
 ## :thumbsup: Quiet Eye putting
 
 1. [Academic links](Links_AcademicStudyOfGolf.md)

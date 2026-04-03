@@ -38,8 +38,6 @@
    - They are using the [Tour Read Golf](https://tourreadgolf.com/) app [currently only available for iPhone]
    - More info: [Mind Caddie: Karl Morris | Mastering the Art of Putting: Insights from PGA Tour Coach Ralph Bauer (video) | 2024](https://www.youtube.com/watch?v=Lp2LAdwQ9i8&t=30m28s)
 
-1. [Dan Hendriksen Golf | PUTTING - AIMPOINT v PLUMB BOB (video) | 2020](https://www.youtube.com/watch?v=1o3UFLvdWyA)
-
 1. [Skip Kendall | How To Read Greens Like A Pro Fast! (Forget Aimpoint) (video) | 2025](https://www.youtube.com/watch?v=TGlF1RY3BbQ)
    - Start reading greens 30-40 yards away - find the high point first | Identify slope direction and putt break before reaching your ball |
      Always walk the low side - never the high side (25% less break visibility) | Step off distance and adjust for green speed |
@@ -56,4 +54,13 @@
    - The words give a good overview with good coverage (but the images frequently don't reinforce the words).
    - At 8m27s the video says *The most common mistake is not reading enough break*. Perhaps that is true, but I feel
      *The most common mistake is not adequately reading the speed*.
+
+
+## Green reading systems
+
+1. [chonger | learn to read greens like a pga pro (aim point vs tour read) (video) | 2025](https://www.youtube.com/watch?v=r0jeIAk-mdY) -- 44m
+
+1. [Dan Hendriksen Golf | PUTTING - AIMPOINT v PLUMB BOB (video) | 2020](https://www.youtube.com/watch?v=1o3UFLvdWyA)
+
+1. [Academic article re the plumb bob method](Links_AcademicStudyOfGolf.md)
 

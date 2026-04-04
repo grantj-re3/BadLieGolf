@@ -58,9 +58,29 @@
 
 ## Green reading systems
 
-1. [chonger | learn to read greens like a pga pro (aim point vs tour read) (video) | 2025](https://www.youtube.com/watch?v=r0jeIAk-mdY) -- 44m
+1. [Cordie Walker GolfWell | Ultimate Green Reading Process (stop guessing) (video) | 2024](https://www.youtube.com/watch?v=ASw_iNo2xKw)
+   - The Tour Read Golf Green Reading System with creator and putting coach Ralph Bauer
+   - How to use the app | How to use the system/formula on the course | How to adjust for uphill/downhill |
+     How to take 2 reads and average them | How to calculate the speed of the green
+   - They are reading the green visually (from the low side)
 
-1. [Dan Hendriksen Golf | PUTTING - AIMPOINT v PLUMB BOB (video) | 2020](https://www.youtube.com/watch?v=1o3UFLvdWyA)
+1. [chonger | learn to read greens like a PGA Pro (AimPoint vs Tour Read) (video) | 2025](https://www.youtube.com/watch?v=r0jeIAk-mdY) -- 44m
+   - They are reading the green with their feet
+
+1. Tour Read® Golf
+   - [Tour Read® Golf Coaching Webinar with Ralph Bauer | Connecting Slope, Speed, and Start Line (video) | 2025](https://www.youtube.com/watch?v=WnRMWgavmdU) -- 39m
+     * Get to know what 2% slope looks like, then use the guideline: less is 1% and more is 3%
+     * Pace off the length of your putt | View line from the low side | Estimate the slope | Do the maths on the way back to the ball |
+       Now you have a point to aim for, switch into speed [of putt] mode
+   - [Q & A with Ralph Bauer](https://tourreadgolf.com/qanda-ralph-bauer/)
+     * "Base" formula: *Inches of break [from center of cup] = 2 x Putt length (in yards) – 1*
+     * Formula assumes: *1% slope with a green speed of 10*
+     * For 2% slope (or 3%, 4%, slope etc.) multiply the "base" result by 2 (or 3, 4, etc.)
+     * Where to measure the slope? 2/3 of the way to the hole
+   - [Home page](https://tourreadgolf.com/)
+     * The download page indicates the app is available for iPhone and Android phones
+
+1. [Club Champion | THE TOUR READ GOLF APP // The App Mac's Been Using to Improve His Putting (video) | 2022](https://www.youtube.com/watch?v=oVFE7oXRDTk)
 
 1. [Academic article re the plumb bob method](Links_AcademicStudyOfGolf.md)
 

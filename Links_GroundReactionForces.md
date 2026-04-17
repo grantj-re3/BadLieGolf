@@ -13,7 +13,7 @@ The GRF downswing sequence is *lateral*, then *rotational* and finally *vertical
    - Pulse drill 1: Combines the *sequence of forces on the lead leg* | Hold iron upside down | During the downswing, fall onto the
      ball of your lead foot and brake | Push back towards the heel of the lead foot by stepping back | Stop the downswing at P6
    - Pulse drill 2: The same as pulse drill 1 but: Hold the club the right way around | Make a full swing | Step back as before
-1. :thumbsup: [Generate Power in the Golf Swing with Your Lead Leg | Titleist Tips (video) | 2025](https://www.youtube.com/watch?v=5FTMchSLlfM)
+1. :thumbsup: :thumbsup: [Generate Power in the Golf Swing with Your Lead Leg | Titleist Tips (video) | 2025](https://www.youtube.com/watch?v=5FTMchSLlfM)
    - Drill 1: During the downswing, lift your lead foot and land (to get the feeling of braking the lateral shift)
    - Lead foot also pushes back away from the ball (rotating the body) and up (vertical force)
    - Then Pulse drills described above
@@ -25,11 +25,23 @@ The GRF downswing sequence is *lateral*, then *rotational* and finally *vertical
 1. [Down for Power (video) | 2014](https://www.youtube.com/watch?v=V7ghQwRtVkY)
 
 
-## Dr. Tyler Standifird with Jason Zuback
+## Smart2move
 
 1. [Analyzing GRF's in S2M App (playlist) | 2024-2025](https://www.youtube.com/playlist?list=PLAab4NHvVM-1NkMObTeqiME2sO38QhUFV)
-   - The first several (and maybe all) videos contain *drills*
-   - Trailside Load | Vertical Torque | Getting out of your trail side | Maximize Rotational Force | Lead Leg Lateral Force | etc.
+   - The first several videos are *drills*: **Dr. Tyler Standifird with Jason Zuback**
+     * Trailside Load | Vertical Torque | Getting out of your trail side | Maximize Rotational Force | Lead Leg Lateral Force | etc.
+
+   - [Dr. Tyler Standifird with Jason Zuback | Maximize Rotational Force (Around vertical axis) | 2024](https://www.youtube.com/watch?v=8LgZDVHtR6w&list=PLAab4NHvVM-1NkMObTeqiME2sO38QhUFV&index=5)
+
+   - :thumbsup: [Dr. Tyler Standifird with Jason Zuback | Unlock Your Golf Swing Power: Mastering Lead Leg Lateral Force | 2024](https://www.youtube.com/watch?v=tmKnrHjjEUs&list=PLAab4NHvVM-1NkMObTeqiME2sO38QhUFV&index=7)
+     * Braking
+
+   - [Steve Furlonger | Ground Reaction Forces: The Secret to a Stronger Golf Swing | 2025](https://www.youtube.com/watch?v=4-OUc9bby-o&list=PLAab4NHvVM-1NkMObTeqiME2sO38QhUFV&index=15) -- 14m
+
+   - [Christophe Bausek with Gregory Lebrart | "Ringing the Bell' vs. Ground Reaction Forces: A Biomechanical Breakdown | 2025](https://www.youtube.com/watch?v=wDzF-j4eEas&list=PLAab4NHvVM-1NkMObTeqiME2sO38QhUFV&index=17)
+     * Lateral
+
+   - [Steve Furlonger guided by Gregory Lebrat and Jean-Paul Fernandez | How to Improve Clubhead Speed Using Smart2move 3D Dual Force plates | 2025](https://www.youtube.com/watch?v=8cHQhjXytuc&list=PLAab4NHvVM-1NkMObTeqiME2sO38QhUFV&index=18) -- 20m
 
 
 ## Dr Greg Rose with Jason Zuback

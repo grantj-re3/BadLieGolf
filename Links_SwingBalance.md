@@ -201,3 +201,16 @@
 1. [Brian Manzella Golf Academy: Forum | Falling forward... | 2007](https://forum.brianmanzellagolf.com/threads/falling-forward.7636/)
    - See the first comments by *Brian Manzella* and by *Jim Kobylinski*
 
+
+## How far to stand from the ball
+
+This has the potential to affect your balance.
+
+1. [Athletic Motion Golf | How Far Should You Stand Away From The Ball? Golf Stance Set Up Like a Tour Pro! (video) | 2023](https://www.youtube.com/watch?v=yoFCLW2mSRU)
+   - Excellent detail
+   - Proper distance from the ball depends on: Stance width | Hip depth | Forward bend | Arm position
+1. [Eric Cogorno Golf | GOLF: How Close Should You Stand To The Golf Ball (video) | 2019](https://www.youtube.com/watch?v=c5FJRwZ_GnI&t=1m29s)
+1. [The Golf Sensei: Ed Schwent | Stop Ignoring the #1 Fundamental in Golf | 2025](https://www.golfsenseitraining.com/blog/most-important-golf-fundamental-distance-from-ball)
+   - The Simple "Knee Test" for Perfect Distance | No need to watch the long video
+1. [Meandmygolf: Piers Ward & Andy Proudman | How Far Should You Stand From The Golf Ball (video) | 2025](https://www.youtube.com/watch?v=bey_D-M4qIc&t=2m14s)
+

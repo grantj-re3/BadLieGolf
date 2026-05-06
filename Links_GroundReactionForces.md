@@ -60,6 +60,9 @@ The GRF downswing sequence is *lateral*, then *rotational* and finally *vertical
 
 ## Other
 
+1. [Timmy Jordan Golf | This Lesson BLEW My Mind! (I was Rotating All Wrong) | 2026](https://www.youtube.com/watch?v=P-Upy3cWfW8&t=31m42s)
+   - [12m25s] Slider and pedal drills
+   - Drills: [31m42s] Double step drill | [35m01s] Ball throw down | [37m48s] Downswing: Push left foot back | [43m09s] Stand closer to ball drill
 1. [Tour Development Academy: Nathan Leonhardt | Ground Reaction Forces in the Golf Swing - PART 2 (video) | 2022](https://www.youtube.com/watch?v=MWoCw3jhApQ)
    - [Previous GRF video](https://www.youtube.com/watch?v=rzvBUAJDE8I)
 1. [Adam Young Golf | Golf, Ground Force, COP and COM | 2016-2024](https://www.adamyounggolf.com/golf-and-cop-what-is-it/)

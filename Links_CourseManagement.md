@@ -1,5 +1,7 @@
 # Course management and strategy
 
+1. [The Upbeat Golfer: Manu | If I Wanted to Become a Scratch Golfer in 2026, I Would Do This (video) | 2026](https://www.youtube.com/watch?v=TOAIqDYZZAc) -- 48m
+
 1. [The Left Rough | Golf Strategy: Tips to Improve your Mental Game | c.2021](https://theleftrough.com/golf-strategy/)
    - Links to articles and tips about course management, strategy, mental game, etc. How to break 100, 90 and 80.
 
@@ -83,6 +85,7 @@
 1. Golf Digest: Luke Kerr-Dineen
    - [*Golf IQ (playlist)*](https://www.youtube.com/playlist?list=PLw_ncqmg1TdHSb0084w2SPSLP1ouP7tAG)
    - [*The Game Plan (playlist)*](https://www.youtube.com/playlist?list=PLw_ncqmg1TdFKGdb5iI13ITAEaUdoQCjV)
+     * [Why Amateurs Can't Get Up and Down (6 Rules Pros Actually Use) l The Game Plan l Golf Digest (video) | 2026](https://www.youtube.com/watch?v=tYuO6PBAP7c)
    - [The Strategy Mistake Amateur Golfers Always Make | Golf IQ Podcast (video) | 2023](https://www.youtube.com/watch?v=LVbuRWCu1Hc)
    - :thumbsup: [The Clever Aiming Strategy Tour Pros Actually Use | The Game Plan (video) | 2024](https://www.youtube.com/watch?v=6HUyoAvHL88)
      * Ben Hogan: *Golf is a game of misses*

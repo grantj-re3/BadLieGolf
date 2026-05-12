@@ -27,6 +27,26 @@
      Blended step drill swing with arms and club | Real swing with same sensations
 
 
+## Swing
+
+1. [The Upbeat Golfer: Manu | The 3 Undeniable Keys to a Great Swing (video) | 2025](https://www.youtube.com/watch?v=wtxZPu1bSng) -- 26m
+   - Book: How I Play Golf, Tiger Woods, 2011
+   - Setup GSABB: Grip | Stance | Alignment | Ball position | Balance
+   - [1m58s] Takeaway
+     * :thumbsup: [Eric Cogorno Golf | GOLF: Two Moves For The Perfect Takeaway And Backswing (video) | 2020](https://www.youtube.com/watch?v=pRt-IfPIFkI)
+   - [9m31s] Space in downswing
+   - [16m32s] Head back
+
+
+## Effortless swing
+
+1. :thumbsup: [Eric Cogorno Golf with JT Thomas | 30+ Yards MORE! The SLING SHOT Golf Swing (video) | 2023](https://www.youtube.com/watch?v=zWSK631-r-A)
+   - Backswing: Learn to turn the ribcage | Learn to get lead arm above pec | Learn to pull trail arm from the chest
+   - Includes drills and checkpoints
+1. [Coach Lockey | Create Effortless Power By Slowing Down Your Golf Swing (Golf Drill) (video) | 2024](https://www.youtube.com/watch?v=ssn59xGBhSs)
+1. [Mac McLeod | Decelerate to Accelerate (video) | 2014](https://www.youtube.com/watch?v=nWQMNft_Moo)
+
+
 ## Downswing sequence
 
 1. :thumbsup: Golf with Coach Carolin: Carolin Pinegger | Top of the Backswing...What NOW? Let's optimize this KEY SWING MOVE! | 2024 -- See the

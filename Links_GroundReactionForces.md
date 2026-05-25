@@ -58,6 +58,33 @@ The GRF downswing sequence is *lateral*, then *rotational* and finally *vertical
    - Load trail side in the backswing then start with lateral in the downswing
 
 
+## Golf Coach: Dr. Noel Rousseau
+
+1. :thumbsup: [The Driver Move Almost Everyone Gets Wrong (And the Simple Fix) (video) | 2026](https://www.youtube.com/watch?v=BUDvdqbZ3oA)
+   - Discusses footwork
+   - 01:02 Stay Behind | 01:32 Slow the Handle | 05:15 The Drill | 07:22 Break with the lead leg
+
+1. [Early Extension Fix That Gives You Explosive Power (video) | 2026](https://www.youtube.com/watch?v=rjKjd3a02Gw)
+   - 06:21 The Indian Club drill | 06:50 Attractors | 08:15 Tour player swings | 10:20 Swing torque
+
+1. [Your Lead Foot Holds an Extra 20 Yards Like This (video) | 2026](https://www.youtube.com/watch?v=i41aJoOB53A)
+   - Discusses footwork
+   - 01:55 Drill 1 | 02:48 Drill 2 | 03:31 Take to the swing | 04:01 Early torque | 04:40 Caveat
+
+1. [The Push Up Drill That Fixes Fat and Thin Shots (video) | 2026](https://www.youtube.com/watch?v=3lK49HMv1ig)
+   - Discusses footwork
+   - 02:21 Pushing up | 02:23 Impact Drill | 03:40 Lead leg Drill | 05:02 Shot drills
+
+
+### Load the trail side
+
+1. :thumbsup: [Load Trail Side PROPERLY and Hit it Further (video) | 2025](https://www.youtube.com/watch?v=VU_vGdb9xFM)
+   - Discusses footwork
+
+1. [Pro Rotation Isn’t What It Looks Like (Do This Instead) (video) | 2026](https://www.youtube.com/watch?v=dUgnJt7ifxQ)
+   - 05:40 Load the trail side | 07:35 Vertical force drill
+
+
 ## Other
 
 1. [Timmy Jordan Golf | This Lesson BLEW My Mind! (I was Rotating All Wrong) | 2026](https://www.youtube.com/watch?v=P-Upy3cWfW8&t=31m42s)

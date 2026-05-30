@@ -5,6 +5,7 @@
 1. [Lee Kopanski](people/Links_LeeKopanski.md)
 
 1. Golf Life Crisis - Joel Gregory
+   - :thumbsup: Anders Mankert's coaching is exceptional and very clearly explained
    - [Golf Lessons (playlist) | 2025-2026](https://www.youtube.com/playlist?list=PL07KsiGcNJRUSV7MewOTBgZWCunlmYPeS)
    - [Can the UK’s Best Golf Coach Get Me to Scratch in a Year? (video) | 2025](https://www.youtube.com/watch?v=Sp4bdYZZ2Ok)
    - :thumbsup: [I Finally Learned Weight Shift With This Simple Drill (video) | 2025](https://www.youtube.com/watch?v=LXX5BzwkwU4)
@@ -37,6 +38,10 @@
    - [9m31s] Space in downswing
    - [16m32s] Head back
 
+1. [Harry Shaw Golf | Possibly The Easiest Way To Improve Any Golf Swing! (video) | 2025](https://www.youtube.com/watch?v=MYIBHiZWgGw)
+   - Split hand drill: Backswing | Takeaway | Downswing to the delivery position (P6)
+   - Rest of the swing | 9i vs 4i
+
 
 ## Effortless swing
 
@@ -58,6 +63,11 @@
      you start your downswing: **Clear the lead hip** by rotating | Move the **trail shoulder down** | **Drive the trail elbow forward**
 
 1. [SMASH FACTOR GOLF COACHING | BEST (& easiest) DRILL for CORRECT GOLF DOWNSWING movement sequence (video) | 2017](https://www.youtube.com/watch?v=_oYW54yKlJk)
+
+1. [Danny Maude | Move Your Right Arm Like This To Hit Driver Straight (video) | 2025](https://www.youtube.com/watch?v=cq10lOGkIVM)
+   * Start the downswing with your arms while your back is to the target (and let the momentum of the club head drag you around later in the swing)
+   * [5m01s] Demo with driver
+   * [6m11s] Demo with an iron
 
 
 ## Playing from the rough
@@ -89,4 +99,21 @@
    - Kettlebell conditioning drill | Rope Flow drill to train dynamic recenter + sequencing | Swing drills to apply it immediately
 
 1. [You’re Rotating Wrong in the Backswing (Trail Foot Pressure & Ground Force Explained) (video) | 2026](https://www.youtube.com/watch?v=7Vy5voCALRc)
+
+
+## Aussie Golf Pros: Glen Haynes
+
+1. [DRIVER TIPS FOR SENIOR GOLFERS - How to Increase Swing Speed (video) | 2024](https://www.youtube.com/watch?v=7AcyqEWyOC4)
+   - Driver Footwork: Balance issue | Drill: Get used to being on one foot at a time | Step drill
+   - Turning, not Swaying: Drill: rotate hips and trunk
+   - Full Finish: Touch your lead shoulder with hands or club at the finish
+   - Overspeed training: Use something light (e.g. choke down) | Build up speed | Swing right *and* left handed
+
+1. [Best STRETCHING EXERCISES For SENIOR GOLFERS (video) | 2023](https://www.youtube.com/watch?v=8xlWDU6a-zs)
+   - Stretching exercises should be done *after* warming up (see next video)
+   - Hamstrings | Hip Rotation | Hip Flexors | Back Rotation | Thoracic Rotation | Shoulder External Rotation | Neck Mobility
+
+1. [Best Warm Up For Golf - When You’re Late! (3 Minutes) (video) | 2020](https://www.youtube.com/watch?v=O-lyD-SHWOQ)
+   - 3 minute warm up: Neck | Shoulders | Back | Hips | Glutes | Lower back | Lower leg
+   - 10 second warm up: Left handed swings
 

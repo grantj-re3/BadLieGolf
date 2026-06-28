@@ -15,9 +15,6 @@
    - 53m22s: Questions
    - [Short version](https://www.youtube.com/watch?v=njofpb4DiAE)
 
-1. [YaleUniversity | 10/4/08 Robert Grober - The Physics of Golf (video) | 2014](https://www.youtube.com/watch?v=MRnjedSebWY)
-   - Swing tempo and resonance
-
 1. Real World Physics Problems
    - [Real World Physics Problems | The Physics Of Golf](https://www.real-world-physics-problems.com/physics-of-golf.html)
      * The Golf Swing
@@ -32,6 +29,29 @@
    - [Proceedings of The Royal Society A - S. R. Otto | Some applications of mathematics in golf | 2017](https://doi.org/10.1098/rspa.2017.0392)
 
 1. [Real World Physics Problems: Franco Normani | The Physics Of A Golf Swing](https://www.real-world-physics-problems.com/physics-of-a-golf-swing.html)
+
+
+## Dr Robert Grober
+
+
+1. arXiv: Robert D. Grober | The Geometry of Putting On a Planar Surface | 2011
+   - [Paper](https://arxiv.org/abs/1106.1698)
+   - Videos: Geometry of Putting on a Planar Surface | 2012:
+     [I](https://www.youtube.com/watch?v=YonCRBn0DiE),
+     [II](https://www.youtube.com/watch?v=Q6bvgIBPqrc),
+     [III](https://www.youtube.com/watch?v=bzHjqjfFIY0)
+   - Videos: Putting Around the Common Target Circle | 2014:
+     [I](https://www.youtube.com/watch?v=8wxX3HZqXjA),
+     [II](https://www.youtube.com/watch?v=M0qOiUQvZ1U)
+
+
+1. [YaleUniversity | 10/4/08 Robert Grober - The Physics of Golf (video) | 2014](https://www.youtube.com/watch?v=MRnjedSebWY)
+   - Swing tempo and resonance
+
+1. [Sandbox8.com | Sonic Golf Brings Science to Your Golf Swing (video) | 2009](https://www.youtube.com/watch?v=LMU1VH4e6PM)
+   - This video is not very academic, but interesting anyway
+   - Sonic Golf device converts shaft speed into an sound with pitch and volume increasing with speed
+   - You can hear: Tempo | Rhythm | Timing | Hear the [quiet] transition
 
 
 ## Quiet Eye putting

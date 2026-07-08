@@ -73,6 +73,34 @@ Take care with any resources prior to this date.*
    - Scoring & Competitions
 
 
+## Common situations
+
+USGA:
+[Rules of Golf](https://www.usga.org/rules/rules-and-clarifications/rules-and-clarifications.html) |
+[Model Local Rules](https://www.usga.org/rules/rules-and-clarifications/rules-and-clarifications.html#section=committeeProcedures&itemNum=8)
+
+
+### Lost ball / Out of bounds
+
+1. [Golf Monthly: Neil Tappin & Fergus Bisset | What To Do When You LOSE YOUR GOLF BALL! Rules Refresher (video) | 2024](https://www.youtube.com/watch?v=Z0eBFrrEn48)
+1. [USGA | Stroke and Distance: New Local Rule | 2018-2019](https://www.usga.org/content/usga/home-page/rules-hub/rules-modernization/major-changes/golfs-new-rules-stroke-and-distance.html) -- Model Local Rule E-5
+
+
+### Red / Yellow Stakes
+
+1. [Golf Monthly: Joel Tadman & Fergus Bisset | Red Vs Yellow Stakes: Golf Penalty Areas Explained! (video) | 2026](https://www.youtube.com/watch?v=VfWlo1bX818)
+
+
+### Temporary Water
+
+1. [Golf Monthly: Fergus Bisset | What Is The Standing Water Rule In Golf? | 2023](https://www.golfmonthly.com/golf-rules/what-is-the-standing-water-rule-in-golf)
+
+
+### Winter rules / Preferred lies / Embedded ball
+
+1. [Golf Monthly: Neil Tappin | Golf’s Winter Rules Explained: What And Why | 2023](https://www.golfmonthly.com/videos/rules/golfs-winter-rules) -- Model Local Rule E-3
+
+
 ## Other
 
 1. EXPERT GOLF

@@ -103,6 +103,12 @@ USGA:
 
 ## Other
 
+1. :thumbsup: [Golf with Andy | USGA Rules Explained (playlist) | 2022-2025](https://www.youtube.com/playlist?list=PLc230QU7eLT-3whty8Oy7ppxNspAWS_KH)
+   - 29 videos
+
+1. [GIR Golf LLC | Golf Rules Tips (playlist) | 2021-2026](https://www.youtube.com/playlist?list=PLNaurnhC8NZBvv9MrREBl--vmgkcUUOIb)
+   - 43 videos | Includes 2023 rule changes
+
 1. EXPERT GOLF
    - [NEW GOLF RULES 2019 | The 20 Most Important CHANGES (video)](https://www.youtube.com/watch?v=chPOtfLUHC0)
      * Excellent brief coverage of the major rule changes which occurred in 2019

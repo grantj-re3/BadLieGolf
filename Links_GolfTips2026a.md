@@ -93,6 +93,18 @@
    - The Buried Lie | The In-Between Lie | The Fluffy Lie
 
 
+## Brian DeLorge | Making Golf Easier
+
+1. :thumbsup: [12 Putting Tips I Wish I Knew SOONER! (video) | 2025](https://www.youtube.com/watch?v=xgE8pntEfRM)
+   - Excellent. Also has a great guide to reading the grain.
+   - Ball Position | Keep Your Head Still | Grip Pressure | Lag Putting | Pre-Shot Routine | Strike Point [drill] |
+     Speed | Uphill vs Downhill | Slippery Secret | **Reading The Grain** | Trigger | Get Fitted
+   - Similar: [Complete Guide to Putting - Part 1 | 2023](https://www.youtube.com/watch?v=vNvbJ8Zjn10)
+     * Some extra points: Grip | Stance | Hand position | Rock shoulders
+
+1. [Stop Hitting Fat Shots With These 3 Iron Fixes (video) | 2025](https://www.youtube.com/watch?v=fXJeHKbQ9c4)
+
+
 ## RC Golf Performance, Shawn Light
 
 1. [Most Golfers Shift Too Late… Here’s When It Should Actually Happen (video) | 2026](https://www.youtube.com/watch?v=DjFwQPyDfqU)

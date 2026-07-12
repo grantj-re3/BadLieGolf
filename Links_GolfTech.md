@@ -28,3 +28,20 @@ Shot tracking *not* included in the free plan.
 1. [Open Stance Golf | Hole19 Golf GPS App Review (video) | 2020](https://www.youtube.com/watch?v=tiHZfci6gGE)
 1. [The Art of Simple Golf | Better Golf Every time You Play (Hole 19 App) (video) | 2022](https://www.youtube.com/watch?v=ZlZx3AQr-0M)
 
+
+## Instruction / Analysis apps
+
+
+### [Swing Coach](https://swingintelligence.com/)
+
+iPhone only (in July 2026).
+
+1. [ChrisRyanGolf | The BEST Swing Analysis App I’ve Tried in 30 Years (video) | 2025](https://www.youtube.com/watch?v=WEF2MDc6anI)
+   - Great demo | Note there is some sort of business relationship between Chris Ryan and the app developers
+
+1. [AppsHunter.io | Swing Coach - Golf | 2025-2026](https://appshunter.io/ios/app/swing-coach-golf/id6739074629)
+   - 4.9/5 for 2K ratings | 172 reviews | US $119.99 p.a. | US $14.99 p.m. | 7 day trial
+
+1. Forum discussions: [GolfWRX](https://forums.golfwrx.com/topic/2052846-reviews-of-swing-coach-iphone-app/) |
+   [Reddit: Golf Swing Central](https://www.reddit.com/r/GolfSwing/comments/1mnydn8/swing_coach_app_is_phenomenal/)
+

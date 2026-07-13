@@ -38,6 +38,14 @@
    - [9m31s] Space in downswing
    - [16m32s] Head back
 
+1. :thumbsup: [KOREA NO.1 GOLFER HEO [ENG] | This Most Important '4-Steps' is the ALL of Mastering Golf (video) | 2026](https://www.youtube.com/watch?v=SRQ1YaYWGmM)
+   - Demo with 7i and driver
+   - Setup: Ball position | Right elbow position
+   - Take back: Rotate torso then fold right elbow
+   - Vertical drop: Separate left shoulder and arm
+   - Follow through: Release | Fold left elbow (to feel the centrifugal force and weight of the clubhead)
+   - Too much right arm results in a pull | Hit without using the right arm results in a clean hit
+
 1. [Harry Shaw Golf | Possibly The Easiest Way To Improve Any Golf Swing! (video) | 2025](https://www.youtube.com/watch?v=MYIBHiZWgGw)
    - Split hand drill: Backswing | Takeaway | Downswing to the delivery position (P6)
    - Rest of the swing | 9i vs 4i
@@ -103,6 +111,21 @@
      * Some extra points: Grip | Stance | Hand position | Rock shoulders
 
 1. [Stop Hitting Fat Shots With These 3 Iron Fixes (video) | 2025](https://www.youtube.com/watch?v=fXJeHKbQ9c4)
+
+
+## Avoid fat shots
+
+1. ChrisRyanGolf
+   - [Do This And You WILL NEVER Hit A FAT Iron Shot (video) | 2022](https://www.youtube.com/watch?v=j9FHKsdd438)
+   - [The Weight Shift “LIE” All Amateurs Believe (video) | 2025](https://www.youtube.com/watch?v=j-fgcM-KxLo)
+     * Drill 1: Step drill to get weight to the trail side earlier (and hence the whole sequence earlier)
+     * Drill 2: After transition, keep your lead shoulder and lead hip lower for longer
+
+1. [Performance Golf | Top 10 Coach Fixes Amateur's Fat & Thin Shots LIVE (video) | 2024](https://www.youtube.com/watch?v=CPJsXUtxTkU) -- 21m
+   - Interesting "no-turn" backswing
+   - Low-point control drill: Use the lead arm to swing the club | Let the leading edge of the club hit the ground |
+     Repeat the swing using the trail arm | The goal is to have the club hit in front of where the ball would be to
+     promote a good low point for your swing
 
 
 ## RC Golf Performance, Shawn Light

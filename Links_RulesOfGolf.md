@@ -80,6 +80,26 @@ USGA:
 [Model Local Rules](https://www.usga.org/rules/rules-and-clarifications/rules-and-clarifications.html#section=committeeProcedures&itemNum=8)
 
 
+### Ball on the green struck by another ball
+
+1. [GIR Golf LLC: Jim | Golf Rules Tip: Ball on Green Struck by Another Ball (video) | 2022](https://www.youtube.com/watch?v=TRkVETkg8Xo)
+1. [Jay Roberts Golf | Ball Played from Putting Green Strikes Another Ball on the Putting Green! (video) | 2021](https://www.youtube.com/shorts/WqB2-GwkC-U)
+
+
+### Sand / loose soil on the green
+
+1. [Golf Monthly: Jeremy Ellwood | Can You Brush The Green With Your Hand? | 2023](https://www.golfmonthly.com/golf-rules/can-you-brush-the-green-with-your-hand)
+1. [R&A | Touching putting green - Removing sand and loose soil | 2023](https://www.randa.org/en/players-rule-finder/players-rule-finder/putting-green/touching-putting-green-removing-sand-and-loose-soil)
+
+
+### Identify your ball / Playing the wrong ball
+
+1. [R&A | Wrong ball](https://www.randa.org/en/players-rule-finder/players-rule-finder/general-area/wrong-ball)
+1. [R&A | Rule 7 Ball Search: Finding and Identifying Ball](https://www.randa.org/en/rog/the-rules-of-golf/rule-7)
+1. [Golf with Andy | What to do when you hit the wrong ball - USGA Rule 6.3c Explained (video) | 2022](https://www.youtube.com/watch?v=Ax7eVRt1jbg)
+1. [GIR Golf LLC: Jim | Golf Rules Tip: Wrong Ball Played (video) | 2022](https://www.youtube.com/watch?v=hy1uRXsVndM)
+
+
 ### Lost ball / Out of bounds
 
 1. [Golf Monthly: Neil Tappin & Fergus Bisset | What To Do When You LOSE YOUR GOLF BALL! Rules Refresher (video) | 2024](https://www.youtube.com/watch?v=Z0eBFrrEn48)
@@ -106,8 +126,13 @@ USGA:
 1. :thumbsup: [Golf with Andy | USGA Rules Explained (playlist) | 2022-2025](https://www.youtube.com/playlist?list=PLc230QU7eLT-3whty8Oy7ppxNspAWS_KH)
    - 29 videos
 
-1. [GIR Golf LLC | Golf Rules Tips (playlist) | 2021-2026](https://www.youtube.com/playlist?list=PLNaurnhC8NZBvv9MrREBl--vmgkcUUOIb)
+1. [GIR Golf LLC: Jim | Golf Rules Tips (playlist) | 2021-2026](https://www.youtube.com/playlist?list=PLNaurnhC8NZBvv9MrREBl--vmgkcUUOIb)
    - 43 videos | Includes 2023 rule changes
+
+1. Jay Roberts Golf
+   - [Golf Rules Explained (playlist) | 2021-2022](https://www.youtube.com/playlist?list=PLCf0nw_FrrL2dIBMuCYgvXc5SWdjL5Gqv) -- 24 videos
+   - [Golf Rules Explained [Under 60 Seconds] (playlist) | 2021-2023](https://www.youtube.com/playlist?list=PLCf0nw_FrrL3CQBctvOK4b_F4PneJv5CP) -- 58 videos
+   - [Golf Definitions | 2021](https://www.youtube.com/playlist?list=PLCf0nw_FrrL2yeALcwZXt7mvNkPcw2PiP) -- 4 videos
 
 1. EXPERT GOLF
    - [NEW GOLF RULES 2019 | The 20 Most Important CHANGES (video)](https://www.youtube.com/watch?v=chPOtfLUHC0)

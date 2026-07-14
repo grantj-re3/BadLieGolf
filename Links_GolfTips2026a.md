@@ -38,13 +38,18 @@
    - [9m31s] Space in downswing
    - [16m32s] Head back
 
-1. :thumbsup: [KOREA NO.1 GOLFER HEO [ENG] | This Most Important '4-Steps' is the ALL of Mastering Golf (video) | 2026](https://www.youtube.com/watch?v=SRQ1YaYWGmM)
-   - Demo with 7i and driver
-   - Setup: Ball position | Right elbow position
-   - Take back: Rotate torso then fold right elbow
-   - Vertical drop: Separate left shoulder and arm
-   - Follow through: Release | Fold left elbow (to feel the centrifugal force and weight of the clubhead)
-   - Too much right arm results in a pull | Hit without using the right arm results in a clean hit
+1. KOREA NO.1 GOLFER HEO [ENG]
+   - :thumbsup: [This Most Important '4-Steps' is the ALL of Mastering Golf (video) | 2026](https://www.youtube.com/watch?v=SRQ1YaYWGmM)
+     * Demo with 7i and driver
+     * Setup: Ball position | Right elbow position
+     * Take back: Rotate torso then fold right elbow
+     * Vertical drop: Separate left shoulder and arm
+     * Follow through: Release | Fold left elbow (to feel the centrifugal force and weight of the clubhead)
+     * Too much right arm results in a pull | Hit without using the right arm results in a clean hit
+   - :thumbsup: [Irons, This One Key move Changes Everything! (video) | 2026](https://www.youtube.com/watch?v=ba8g5tzrBFA)
+     * Backswing: *Never let hips sway right* | (It's not essential to shift weight right on the backswing [for a clean strike])
+     * Downswing to impact: Head slightly behind the ball | Weight shifted left | Release hands | *Practice this feeling thoroughly*
+     * At release and follow through: Don't clamp the left armpit | Let it separate | Don't keep your right elbow tucked into your body
 
 1. [Harry Shaw Golf | Possibly The Easiest Way To Improve Any Golf Swing! (video) | 2025](https://www.youtube.com/watch?v=MYIBHiZWgGw)
    - Split hand drill: Backswing | Takeaway | Downswing to the delivery position (P6)

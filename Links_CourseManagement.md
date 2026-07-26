@@ -14,11 +14,11 @@
      * [I Analyzed 6M Golf Shots — Here’s Why You Can’t Break 80 (video) | 2026](https://www.youtube.com/watch?v=rWUUw9_4qA4)
    - [On Course Tutorials (playlist) | 2024-2026](https://www.youtube.com/playlist?list=PLoLgK9bW86y1ZfG-byX6Ovvj92mhxZcnW)
 
-1. Golf Digest: Luke Kerr-Dineen
-   - [*Golf IQ (playlist)*](https://www.youtube.com/playlist?list=PLw_ncqmg1TdHSb0084w2SPSLP1ouP7tAG)
+1. Golf Digest
+   - [*Luke Kerr-Dineen | Golf IQ (playlist)*](https://www.youtube.com/playlist?list=PLw_ncqmg1TdHSb0084w2SPSLP1ouP7tAG)
      * [The Strategy Mistake Amateur Golfers Always Make | Golf IQ Podcast (video) | 2023](https://www.youtube.com/watch?v=LVbuRWCu1Hc)
 
-   - [*The Game Plan (playlist)*](https://www.youtube.com/playlist?list=PLw_ncqmg1TdFKGdb5iI13ITAEaUdoQCjV)
+   - [*Luke Kerr-Dineen | The Game Plan (playlist)*](https://www.youtube.com/playlist?list=PLw_ncqmg1TdFKGdb5iI13ITAEaUdoQCjV)
      * [6 Chipping Strategies Pros Use to Get Up and Down l The Game Plan l Golf Digest (video) | 2026](https://www.youtube.com/watch?v=tYuO6PBAP7c)
      * :thumbsup: [The Clever Aiming Strategy Tour Pros Actually Use | The Game Plan (video) | 2024](https://www.youtube.com/watch?v=6HUyoAvHL88)
        + Ben Hogan: *Golf is a game of misses*
@@ -35,8 +35,7 @@
        + [12m35s] [Golf News Central | Phil Mickelson On Feherty (2018) Classic Interview (video) | 2020](https://www.youtube.com/watch?v=E34OEt2mE8U&t=12m35s)
      * [The Clever Formula Tour Pros Use to Out-Smart Golf Courses | The Game Plan (video) | 2023](https://www.youtube.com/watch?v=uWQpHrd7it8) -- Short-side miss
 
-1. Golf Digest: Sam Weinman
-   - [Mind Games (playlist) | 2025-2026](https://www.youtube.com/playlist?list=PLw_ncqmg1TdGJUENY0dlOB5xfyf2KEqCp)
+   - [Sam Weinman | Mind Games (playlist) | 2025-2026](https://www.youtube.com/playlist?list=PLw_ncqmg1TdGJUENY0dlOB5xfyf2KEqCp)
 
 1. [Golf Sidekick - Matt Greene | YouTube channel](https://www.youtube.com/@GolfSidekick)
    - [Golf Sidekick - Matt Greene | Website](https://www.golfsidekick.com/)

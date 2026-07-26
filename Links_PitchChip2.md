@@ -93,6 +93,21 @@
 1. [Danny Maude | What Nobody Tells You About Chipping Onto The Green | 2023](https://www.youtube.com/watch?v=E5BQeqZm3wo)
 
 
+## Chip shots: Thumbs down
+
+I believe this is also described as: Hands high | Shaft more vertical
+
+1. [Coach Lockey | THUMBS DOWN. This Technique Makes Chipping Around The Green So Easy!! (video) | 2025](https://www.youtube.com/watch?v=uvKZODb5H_I)
+1. [US GOLF TV: Todd Kolb | Your Thumbs Are Key to Your Short Game (video) | 2022](https://www.youtube.com/watch?v=FyhZtC4pBl8)
+1. [TaylorMade Golf: Dan Grieve | Stop Chunking Your Wedges: Dan Grieve's Short Game Secrets (video) | 2025](https://www.youtube.com/watch?v=spo_R5w5-A4)
+   - Control low point (and arc depth)
+   - [0m25s] Weight forward | Ball on trail heel | Slight shaft lean | Level shoulders (not low right shoulder) | Narrow stance | Ball-first contact
+   - [1m56s] Avoid lag
+   - Rotate around your pivot line: Imagine a [vertical] line that runs through the middle of the left foot, knee, hip, shoulder and ear
+   - [2m57s] Ball inside the right heel | Sternum in front of ball | ***Hands high*** (hence body closer to ball) | Light grip
+   - [4m57s] Rotate | Flow | Release
+
+
 ## Chip shots: New points
 
 - The butt of your grip and the center of your chest have to move at the same rate all the time

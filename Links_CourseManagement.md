@@ -5,6 +5,38 @@
 1. [The Left Rough | Golf Strategy: Tips to Improve your Mental Game | c.2021](https://theleftrough.com/golf-strategy/)
    - Links to articles and tips about course management, strategy, mental game, etc. How to break 100, 90 and 80.
 
+1. Tangent Golf: Dallas Webster
+   - [Data Tutorials (playlist) | 2024-2026](https://www.youtube.com/playlist?list=PLoLgK9bW86y178oG6gPXJjC7AOFsRnUzh)
+     * [Stop Trying to Save Par Around the Green (video) | 2026](https://www.youtube.com/watch?v=7P4YFTmn6kQ)
+     * [Why Leaving Putts Short Can Lower Your Score (video) | 2026](https://www.youtube.com/watch?v=fT1iL8qSMyQ)
+   - [Break Scoring Milestones (playlist) | 2026](https://www.youtube.com/playlist?list=PLoLgK9bW86y267gkLkVxWAX3yDDSfujLo)
+     * [I Analyzed 100,000 Golf Rounds — Here’s Why You Can’t Break 90 (video) | 2026](https://www.youtube.com/watch?v=nRD0wbb_3Dk)
+     * [I Analyzed 6M Golf Shots — Here’s Why You Can’t Break 80 (video) | 2026](https://www.youtube.com/watch?v=rWUUw9_4qA4)
+   - [On Course Tutorials (playlist) | 2024-2026](https://www.youtube.com/playlist?list=PLoLgK9bW86y1ZfG-byX6Ovvj92mhxZcnW)
+
+1. Golf Digest: Luke Kerr-Dineen
+   - [*Golf IQ (playlist)*](https://www.youtube.com/playlist?list=PLw_ncqmg1TdHSb0084w2SPSLP1ouP7tAG)
+   - [*The Game Plan (playlist)*](https://www.youtube.com/playlist?list=PLw_ncqmg1TdFKGdb5iI13ITAEaUdoQCjV)
+     * [Why Amateurs Can't Get Up and Down (6 Rules Pros Actually Use) l The Game Plan l Golf Digest (video) | 2026](https://www.youtube.com/watch?v=tYuO6PBAP7c)
+   - [The Strategy Mistake Amateur Golfers Always Make | Golf IQ Podcast (video) | 2023](https://www.youtube.com/watch?v=LVbuRWCu1Hc)
+   - :thumbsup: [The Clever Aiming Strategy Tour Pros Actually Use | The Game Plan (video) | 2024](https://www.youtube.com/watch?v=6HUyoAvHL88)
+     * Ben Hogan: *Golf is a game of misses*
+     * Think about your *dispersion cone* (i.e. range of possible shot outcomes or "cone of misses") on **every shot**
+     * The dispersion cone includes long and short shots in addition to left and right
+     * [HackMotion: Britt Olizarowicz | Strategic Aiming Tips for Better Course Management Revealed | 2024](https://hackmotion.com/aiming-tips-for-better-course-management/)
+   - [The Putting Strategy Pros Use on Pinehurst’s Terrifying Greens | The Game Plan (video) | 2024](https://www.youtube.com/watch?v=O374OhzZAu0)
+   - [How Pros Pick Where To Tee Up Their Ball | The Game Plan (video) | 2024](https://www.youtube.com/watch?v=evkAYO59eD4)
+   - :thumbsup: [The 3 Driver Strategies Pros Use To Avoid Stupid Mistakes l The Game Plan (video) | 2025](https://www.youtube.com/watch?v=HJiyaAa5qXI)
+     * Driver Strategies: *The "Swing hard / swing soft" mistake* | *The bullet & the bomb* (tee height) | The 65-Yard Rule
+   - [The Critical Number Pros Use That Amateurs Don't | The Game Plan (video) | 2024](https://www.youtube.com/watch?v=Ud1CnMED-mM) -- Cover number
+   - [The Clever Strategy Pros Actually Use To Calculate Yardages l The Game Plan (video) | 2025](https://www.youtube.com/watch?v=NK5wY-EnVww)
+     * Temperature | Altitude | Lie & spin | Runout | Wind
+     * [12m35s] [Golf News Central | Phil Mickelson On Feherty (2018) Classic Interview (video) | 2020](https://www.youtube.com/watch?v=E34OEt2mE8U&t=12m35s)
+   - [The Clever Formula Tour Pros Use to Out-Smart Golf Courses | The Game Plan (video) | 2023](https://www.youtube.com/watch?v=uWQpHrd7it8) -- Short-side miss
+
+1. Golf Digest: Sam Weinman
+   - [Mind Games (playlist) | 2025-2026](https://www.youtube.com/playlist?list=PLw_ncqmg1TdGJUENY0dlOB5xfyf2KEqCp)
+
 1. [Golf Sidekick - Matt Greene | YouTube channel](https://www.youtube.com/@GolfSidekick)
    - [Golf Sidekick - Matt Greene | Website](https://www.golfsidekick.com/)
    - Links to articles and tips about course management, strategy, mental game, etc. How to break 100, 90 and 80.
@@ -81,26 +113,6 @@
      * Summary:
        + Be clear with your strategy, break down each hole and work backwards to come up with the best plan you can.
        + This approach doesn’t guarantee success, but it maximises your chances.
-
-1. Golf Digest: Luke Kerr-Dineen
-   - [*Golf IQ (playlist)*](https://www.youtube.com/playlist?list=PLw_ncqmg1TdHSb0084w2SPSLP1ouP7tAG)
-   - [*The Game Plan (playlist)*](https://www.youtube.com/playlist?list=PLw_ncqmg1TdFKGdb5iI13ITAEaUdoQCjV)
-     * [Why Amateurs Can't Get Up and Down (6 Rules Pros Actually Use) l The Game Plan l Golf Digest (video) | 2026](https://www.youtube.com/watch?v=tYuO6PBAP7c)
-   - [The Strategy Mistake Amateur Golfers Always Make | Golf IQ Podcast (video) | 2023](https://www.youtube.com/watch?v=LVbuRWCu1Hc)
-   - :thumbsup: [The Clever Aiming Strategy Tour Pros Actually Use | The Game Plan (video) | 2024](https://www.youtube.com/watch?v=6HUyoAvHL88)
-     * Ben Hogan: *Golf is a game of misses*
-     * Think about your *dispersion cone* (i.e. range of possible shot outcomes or "cone of misses") on **every shot**
-     * The dispersion cone includes long and short shots in addition to left and right
-     * [HackMotion: Britt Olizarowicz | Strategic Aiming Tips for Better Course Management Revealed | 2024](https://hackmotion.com/aiming-tips-for-better-course-management/)
-   - [The Putting Strategy Pros Use on Pinehurst’s Terrifying Greens | The Game Plan (video) | 2024](https://www.youtube.com/watch?v=O374OhzZAu0)
-   - [How Pros Pick Where To Tee Up Their Ball | The Game Plan (video) | 2024](https://www.youtube.com/watch?v=evkAYO59eD4)
-   - :thumbsup: [The 3 Driver Strategies Pros Use To Avoid Stupid Mistakes l The Game Plan (video) | 2025](https://www.youtube.com/watch?v=HJiyaAa5qXI)
-     * Driver Strategies: *The "Swing hard / swing soft" mistake* | *The bullet & the bomb* (tee height) | The 65-Yard Rule
-   - [The Critical Number Pros Use That Amateurs Don't | The Game Plan (video) | 2024](https://www.youtube.com/watch?v=Ud1CnMED-mM) -- Cover number
-   - [The Clever Strategy Pros Actually Use To Calculate Yardages l The Game Plan (video) | 2025](https://www.youtube.com/watch?v=NK5wY-EnVww)
-     * Temperature | Altitude | Lie & spin | Runout | Wind
-     * [12m35s] [Golf News Central | Phil Mickelson On Feherty (2018) Classic Interview (video) | 2020](https://www.youtube.com/watch?v=E34OEt2mE8U&t=12m35s)
-   - [The Clever Formula Tour Pros Use to Out-Smart Golf Courses | The Game Plan (video) | 2023](https://www.youtube.com/watch?v=uWQpHrd7it8) -- Short-side miss
 
 1. [Jon Sherman Golf | YouTube channel](https://www.youtube.com/@jonshermangolf)
    - :thumbsup: [The Secret to Golf Explained in 15 Minutes (video) | 2025](https://www.youtube.com/watch?v=U0Y0iVVe0X0)

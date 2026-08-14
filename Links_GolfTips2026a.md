@@ -63,6 +63,8 @@
    - Includes drills and checkpoints
 1. [Coach Lockey | Create Effortless Power By Slowing Down Your Golf Swing (Golf Drill) (video) | 2024](https://www.youtube.com/watch?v=ssn59xGBhSs)
 1. [Mac McLeod | Decelerate to Accelerate (video) | 2014](https://www.youtube.com/watch?v=nWQMNft_Moo)
+1. [Top Speed Golf: Clay Ballard | Golf Downswing | How To Stop Rushing Your Downswing Drills (video) | 2020](https://www.youtube.com/watch?v=zhxlmUEck7o)
+   - Beware of a backswing-turn which is too compact
 
 
 ## Downswing sequence

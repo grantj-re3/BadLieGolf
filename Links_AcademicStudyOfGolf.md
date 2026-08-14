@@ -30,6 +30,13 @@
 
 1. [Real World Physics Problems: Franco Normani | The Physics Of A Golf Swing](https://www.real-world-physics-problems.com/physics-of-a-golf-swing.html)
 
+1. [Jeffrey Mann | Web site: Perfect Golf Swing Review: A Critical Review of the Golf Swing | 2012-2025](https://www.perfectgolfswingreview.net/index.html)
+   - Three sections: Free online review of the golf swing | Miscellaneous golf swing instructional topics | Newton Golf Institute Golf Forum Posts
+   - He is not a professional golf instructor. He is a retired physician with a MD degree, and also a BSc degree with majors in anatomy and physiology. He says:
+     * I believe that I have made major discoveries with respect to the golf swing biomechanics used by pro golfers...
+     * My greatest passion has been trying to intellectually understand how professional golfers perform a golf swing from a biomechanical perspective...
+   - He has reviewed golf topics including: Jim McLean's Slot Swing | Stack & Tilt swing | Mike Austin swing | Swingplane | How to Power the Golf Swing | Ball Flight Laws
+
 
 ## Dr Robert Grober
 

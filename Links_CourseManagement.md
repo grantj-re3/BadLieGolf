@@ -142,13 +142,19 @@
 
 1. The Scoring Method: Will Robins
    - [Golfer's Odyssey: Nick Johnson | The Scoring Method - Course Strategy Initial Review | 2020](https://sites.google.com/view/golfersodyssey/home/golf-improvement/the-scoring-method-course-strategy-initial-review-05-12-2020)
-   - [Cordie Walker GolfWell and The Scoring Method | This Simple Strategy LOWERS SCORES (even when you hit it bad) (video) | 2025](https://www.youtube.com/watch?v=XdU-nWPznbs) -- 55m
-     * 1m18s: The Scoring Method: Goal 1 = get inside 100 yards in regulation; Goal 2 = get down in three.
-     * Be a 3-handicap long lag-putter
-       + 36m28s: Lag Putting Drill: Heads-up pace drill—eyes on hole, then react.
+   - [Cordie Walker GolfWell and The Scoring Method | Course Strategy + Coaching with Will Robins (playlist) | 2023-2026](https://www.youtube.com/playlist?list=PLEmP0rIZ3qR4Mnrn3lJf4Jw2KmTwQyUms)
+     * 7 videos | 12-55 minutes each
+     * [This Simple Strategy LOWERS SCORES (even when you hit it bad) (video) | 2025](https://www.youtube.com/watch?v=XdU-nWPznbs) -- 55m
+       + 1m18s: The Scoring Method: Goal 1 = get inside 100 yards in regulation; Goal 2 = get down in three.
+       + Be a 3-handicap long lag-putter
+         - 36m28s: Lag Putting Drill: Heads-up pace drill—eyes on hole, then react.
    - [The Scoring Method | Strategies to Try While Golfing This Week | 2021](https://thescoringmethod.com/strategies-to-try-while-golfing-this-week/)
      * Includes 3 Golf Science Lab podcasts (plus homework) with Cordie Walker
      * Minimize the Blow Up Holes | Track This One Stat – Proximity | Mindset for Scoring
+   - [Jerome Rufin and The Scoring Method | The Last 10 Rules You Will Ever Need to Easily Break 90 Every Time (It's Like Cheating) (video) | 2026](https://www.youtube.com/watch?v=HaUsq13Dozs) -- 1h25m
+     * 1: Don't start agressive [6m11s] | 2: Don't be like everyone else [16m36s] | 3: Take away the score [22m40s]
+       | 4: Be present [29m04s] | 5: Lag putting is everything [37m52s] | 6: Do hard stuff [46m26s] | 7: Train hard, play easy [55m22s]
+       | 8: Don't be a hero [57m42s] | 9: Fully commit [1h04m40s] | 10: Practice makes permanent [1h19m56s]
 
 1. [Golf University | Playlist: Inner Golf Lessons | Golf University c.2016-2018](https://www.youtube.com/playlist?list=PLk5pOCqyfd71uq48KYfzR_pBBUDf1V2AA)
    - [Golf University - Lawrie Montague | How to Play the Best Course Management Strategy in Golf | Inner Golf Mastery Series (video) | 2018](https://www.youtube.com/watch?v=Hvi7SPt4Rhw)

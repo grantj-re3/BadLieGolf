@@ -2,7 +2,8 @@
 
 1. Titleist Performance Institute
    - :thumbsup: [Dave Phillips & Dr Greg Rose with Quinn Griffing | TPI TV Season 9 Ep.05 - Seniors | c.2014](https://www.mytpi.com/tpitv/shows/titleist-performance-institute-season-9/episodes/ep.05-seniors) -- 22m
-     * [2m35s] Swing modifications: Shorten backswing by allowing left arm to bend | Fan your feet open
+     * [2m35s] Swing modifications: Shorten backswing by allowing left arm to bend (J.B. Holmes swing [here](https://www.youtube.com/watch?v=z2L0K8szkfU)
+       and [here](https://www.youtube.com/watch?v=9XSacC6G2rU)) | Fan your feet open
      * [5m24s] Lower back tip: Turn to a full finish | Ensure trail shoe spikes come off the ground
      * [5m51s] Morning exercise after breakfast/shower: Log Rolling | Curl Ups | Open Books x2x2 | Press Ups (from knees & hips) | Prone Rocking | Half Prayer Reachbacks
        | Hip Circles x2x2 | Crawling (opposite hand/leg) | Bird Dogs (opp./same hand/leg) | Hamstring Stands | Tall To Half Kneeling | Reverse Toe Touches

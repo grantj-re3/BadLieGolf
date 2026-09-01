@@ -19,3 +19,11 @@
    - Two variables: Backstroke length | The amount of energy used going forward | Eliminate one variable by keeping the second variable constant
    - Practice on uphill and downhill sloping greens
 
+1. Book: Bob Labbe with Mike Shaw | Putting by the Numbers: A Quantitative Method of Lag Putting | 2025
+   - [Website 1](https://boblabbe.com/) | [Website 2](https://www.puttingbythenumbers.com/)
+   - [Video tutorials](https://boblabbe.com/tutorials/)
+   - YouTube channel: Putting By The Numbers
+     * [*Outdoor* Tutorial (video) | 2022](https://www.youtube.com/watch?v=ClVv3WwTHf8&t=6m24s) -- 24m
+     * [*Indoors* Tutorial (video) | 2022](https://www.youtube.com/watch?v=Uiquno95Lg4&t=4m48s) -- 10m
+   - [Lee Brown | Putting By The Numbers: Pacific Book Review | 2025](https://www.puttingbythenumbers.com/tutorials-1)
+

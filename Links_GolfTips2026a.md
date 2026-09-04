@@ -19,7 +19,9 @@
    - Practicing slow reps ONLY | Imagining the golf swing is like [skimming] a rock | Practicing with a connection-ball |
      Stop using 60 degree wedge EVERYWHERE | Chipping with loose hands and grip | Stop swinging hard from the top |
      Look at the flag and hole when reading putts
-
+   - [This Golf Drill Took Me From a 22 handicap to Scratch](https://www.youtube.com/watch?v=_zp2ZGST9CY)
+   - Links to connection-balls: https://purestrikegolfco.com/products/purestrike-premium-performance-ball |
+     https://www.amazon.com/pure-strike/s?k=pure+strike | https://sure-golf.com/en-au/products/connector
 
 1. [Golf with Coach Carolin: Carolin Pinegger | 3 Golf Drills That Will Make You a Scratch Golfer (video) | 2025](https://www.youtube.com/watch?v=wvvG1x0OQ4o)
    - [1m18s] Split-hand drill: Brings the trail side of the body through | No ball

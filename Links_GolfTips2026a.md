@@ -59,6 +59,14 @@
      * Downswing to impact: Head slightly behind the ball | Weight shifted left | Release hands | *Practice this feeling thoroughly*
      * At release and follow through: Don't clamp the left armpit | Let it separate | Don't keep your right elbow tucked into your body
 
+1. Golf with Aimee: Aimee Cho
+   - [Aimeefied 7 Iron Series (playlist) | 2022-2023](https://www.youtube.com/playlist?list=PL0uaI4r3925SEjSGuyuWaTE8unpmjsqnx)
+     * 10 videos | 5-16 minutes each
+     * Set the club at the top | Transition | Power | Wrists | Rehinging | etc.
+   - [Aimeefied Driver Series (playlist) | 2021-2022](https://www.youtube.com/playlist?list=PL0uaI4r3925QVMkDJLVfQfekeCeT6Gpf6)
+     * 9 videos | 5-8 minutes each
+     * Hinging | Hip turn | Stabilize and turn | Stop slicing/hooking | etc.
+
 1. [Harry Shaw Golf | Possibly The Easiest Way To Improve Any Golf Swing! (video) | 2025](https://www.youtube.com/watch?v=MYIBHiZWgGw)
    - Split hand drill: Backswing | Takeaway | Downswing to the delivery position (P6)
    - Rest of the swing | 9i vs 4i

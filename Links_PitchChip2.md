@@ -29,7 +29,7 @@
      * Keep arms relaxed; at address, move the hands up to the belt buckle a couple of times
      * [He has a slow smooth transition where the downswing appears to start due to gravity]
 
-1. [Phil Mickelson and the HyFlyers | The Art of Chipping with Phil Mickelson | EP. 1 | 2025](https://www.youtube.com/watch?v=FFX8aS-JACU)
+1. [Phil Mickelson and the HyFlyers | The Art of Chipping with Phil Mickelson | EP. 1 (video) | 2025](https://www.youtube.com/watch?v=FFX8aS-JACU)
    - 00:00 Intro | 01:40 Chipping 101: <30 yards: Weight on front foot; Hands start ahead/straight line; Low or high? |
      06:35 Ask yourself: Can I hit this off my backfoot? | 09:05 Lob shot: To go vertical when the ground is firm, drive club behind ball |
      10:25 Turn feet slightly towards target to create momentum; Adjust alignment when opening clubface; Adjust shoulder level |
@@ -76,21 +76,36 @@
      * Fix: When chipping, land the bounce of the clubhead 1 to 1.5 inches behind the ball 
      * He used the Acu-Strike Golf Mat
 
-1. [Golf Digest: Luke Kerr-Dineen | The Simple Short Game Move Pros Use | Film Study | 2025](https://www.youtube.com/watch?v=FR7StwjY4Cw)
+1. Golf with Aimee: Aimee Cho
+   - [Basic Fundamentals for Chipping | Golf with Aimee (video) | 2015](https://www.youtube.com/watch?v=9BQZVYvePFE)
+     * Setup: Narrow stance | Weight on the left | Slightly open
+     * Swing: Stay on the left | Body turns together | Turn together like a door
+   - [Chipping II (video) | 2015](https://www.youtube.com/watch?v=d28FDiLys-Q)
+     * Maintain weight on the left foot | Left knee moves slightly forward (and doesn't rotate to the right)
+     * To use the bounce: Relax wrists | Use the weight of the clubhead | Drop the head | *Clipboard drill*
+   - :thumbsup: [Chip vs Pitch (video) | 2018](https://www.youtube.com/watch?v=h3kwZkNsHuE)
+     * Chipping 10-yards: Narrow stance (1 fist between feet) | Weight 60% front left | Maintain on left foot in backswing | Less hip motion |
+       Less shift, finish 80% on left | Use weight of clubhead and size of swing for distance control
+     * Pitching 50-yards: Wider stance | Weight 55% on front left | Maintain on left foot in backswing | More hip motion | More shift, finish 95% on left
+   - :thumbsup: [25-yard Chip Shot (video) | 2018](https://www.youtube.com/watch?v=JFoj_qcs8Lc)
+     * Wider stance than 10-yard chip (~2 fists) | Ball left of middle | Hinge same as full swing |
+       Use rotational momentum to fold wrists naturally | Downswing feels much slower than full swing | *Towel drill*
+
+1. [Golf Digest: Luke Kerr-Dineen | The Simple Short Game Move Pros Use | Film Study (video) | 2025](https://www.youtube.com/watch?v=FR7StwjY4Cw)
 1. :thumbsup: [Andy Carter Golf | CHIPPING SWING PATH EXPLAINED | No more FAT or THIN Shots (video) | 2021](https://www.youtube.com/watch?v=p6PpQqylC6I)
 1. [US GOLF TV: Todd Kolb | 30 Years of My Best Chipping Advice in Just 5 Minutes (video) | 2025](https://www.youtube.com/watch?v=bSBd3R3Ce8g)
 1. [Matthew Masters | The Importance of the “BRUSH & LOOK” When Playing Chip Shots | 2011](https://golfstateofmind.com/the-importance-of-the-brush-look-when-playing-chip-shots/)
 1. [Kellie Stenzel | 10 basic tips that can help golfers chip better than ever | 2021](https://golf.com/instruction/short-game/10-tips-golfer-chipping-better-than-ever/)
-1. [Gaz's Golf | THIS CHIPPING TIP CHANGED EVERYTHING! | 2023](https://www.youtube.com/watch?v=O6BUgaI_6tM)
+1. [Gaz's Golf | THIS CHIPPING TIP CHANGED EVERYTHING! (video) | 2023](https://www.youtube.com/watch?v=O6BUgaI_6tM)
 
 
 ## Chip shots: Posture and setup
 
-1. [Huxley Golf: Jonathan Yarwood | Chipping Posture - Golf Tips & Drills | 2013](https://www.youtube.com/watch?v=71L19GOcvs8)
-1. [England Golf: Adam Keogh | Improve your chipping technique | Golf tips | 2022](https://www.youtube.com/watch?v=qbAdNj7K__E)
+1. [Huxley Golf: Jonathan Yarwood | Chipping Posture - Golf Tips & Drills (video) | 2013](https://www.youtube.com/watch?v=71L19GOcvs8)
+1. [England Golf: Adam Keogh | Improve your chipping technique | Golf tips (video) | 2022](https://www.youtube.com/watch?v=qbAdNj7K__E)
 1. [BirdieBall | 5 Golf Chipping Tips To Save Strokes Around Greens | 2025](https://www.birdieball.com/blogs/news/golf-chipping-tips)
 1. [Alamo City Golf Trail: Kellie Stenzel | 10 basic tips that can help golfers chip better than ever | 2021](https://alamocitygolftrail.com/10-basic-tips-that-can-help-golfers-chip-better-than-ever/)
-1. [Danny Maude | What Nobody Tells You About Chipping Onto The Green | 2023](https://www.youtube.com/watch?v=E5BQeqZm3wo)
+1. [Danny Maude | What Nobody Tells You About Chipping Onto The Green (video) | 2023](https://www.youtube.com/watch?v=E5BQeqZm3wo)
 
 
 ## Chip shots: Thumbs down

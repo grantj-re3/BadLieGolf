@@ -15,6 +15,12 @@
      * [14m19s] Path drill: 3 balls parallel to your target line but outside-right of your real ball | 3 balls parallel to your
        target line but inside-left of your real ball | Ensures your path is square or inside-out
 
+1. :thumbsup: [CK Golf: Chris | 7 Things That Took Me From a 22 to a +1 Handicap (video) | 2026](https://www.youtube.com/watch?v=J1DpjVBcGmc)
+   - Practicing slow reps ONLY | Imagining the golf swing is like [skimming] a rock | Practicing with a connection-ball |
+     Stop using 60 degree wedge EVERYWHERE | Chipping with loose hands and grip | Stop swinging hard from the top |
+     Look at the flag and hole when reading putts
+
+
 1. [Golf with Coach Carolin: Carolin Pinegger | 3 Golf Drills That Will Make You a Scratch Golfer (video) | 2025](https://www.youtube.com/watch?v=wvvG1x0OQ4o)
    - [1m18s] Split-hand drill: Brings the trail side of the body through | No ball
    - [3m04s] Short swing drill: 1/2 or 3/4 swing | Match the finish length to the backswing length | Finish with straight arms |

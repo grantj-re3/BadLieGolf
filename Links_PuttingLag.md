@@ -22,8 +22,19 @@
 1. Book: Bob Labbe with Mike Shaw | Putting by the Numbers: A Quantitative Method of Lag Putting | 2025
    - [Website 1](https://boblabbe.com/) | [Website 2](https://www.puttingbythenumbers.com/)
    - [Video tutorials](https://boblabbe.com/tutorials/)
+   - [Lee Brown | Putting By The Numbers: Pacific Book Review | 2025](https://www.puttingbythenumbers.com/tutorials-1)
    - YouTube channel: Putting By The Numbers
      * [*Outdoor* Tutorial (video) | 2022](https://www.youtube.com/watch?v=ClVv3WwTHf8&t=6m24s) -- 24m
      * [*Indoors* Tutorial (video) | 2022](https://www.youtube.com/watch?v=Uiquno95Lg4&t=4m48s) -- 10m
-   - [Lee Brown | Putting By The Numbers: Pacific Book Review | 2025](https://www.puttingbythenumbers.com/tutorials-1)
+   - *I feel something isn't quite right about this method...*
+     * In the outdoor video at 10m02s he says "that will be the same whether you hit the ball with a three inch retraction [or]
+       an eight inch retraction, the ball will travel on this green: eight feet per inch of retraction" [for his "power factor"].
+       So he is implying that the distance the ball travels is proportional to the retraction (i.e. backstroke) distance.
+     * However for various length putts where the tempo remains constant (i.e. "backstroke" plus "forward stroke to impact" time is constant)
+       I understand that the distance the ball travels is NOT proportional to the retraction distance. E.g. For a constant tempo,
+       I understand that if you double your retraction distance then the ball will roll more than twice the distance.
+     * Perhaps this method works for him because he has an unusual address/start position?
+   - The article below has a section called *Backstroke Length* which gives a *guideline to begin experimentation*. It suggests
+     4.5, 6 and 8.5 inch backstrokes for 3, 6 and 12 foot hole distances. This is at odds with Bob Labbe's proportional idea.
+     * [Back 2 Basics Golf | How to Nail Your Distance Control and Putting Stroke | 2022](https://back2basics.golf/blogs/news/how-to-nail-your-distance-control-and-putting-stroke)
 

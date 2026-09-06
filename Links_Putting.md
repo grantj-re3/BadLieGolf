@@ -312,6 +312,20 @@ Other putting pages:
 1. [PuttView | Justin Rose's Putting Secrets | PuttView Masterclass (video) | 2022](https://www.youtube.com/watch?v=5iM5Z8-a0kw)
 
 
+## Your eyes and perception of a straight line
+
+Consider using Giles Gill's drill with Tyler Ferrell's [extra] options for head position.
+
+1. [Golf Smart Academy: Tyler Ferrell | Golf Putting Alignment and Why Your Eyes Matter | 2019-2026](https://www.golfsmartacademy.com/golf-tips/visual-alignment-calibration-putting/)
+   - No need to watch the video (which requires signing up). Just read the text.
+   - How to influence visual alignment: Raising or lowering your head | Tucking or lifting your chin |
+     Tilting your head slightly right or left | Rotating your head toward or away from the target |
+     Shifting your head position slightly
+
+1. [Giles Gill Golf | These 3 Putting Drills Will Make You The BEST Putter At Your Club!! (video) | 2025](https://www.youtube.com/watch?v=M_b8Z0pBq_U&t=2m16s)
+   - Tip #2: The alignment stick eye position drill is the ONLY way to find your true eye positioning.
+
+
 ## :thumbsup: Quiet Eye putting
 
 1. [Academic links](Links_AcademicStudyOfGolf.md)

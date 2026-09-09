@@ -135,6 +135,7 @@
      * [20m18s] When to get fitted for golf clubs
    - [These 4 PGA Tour Stats Prove You’re Playing Golf All Wrong (video) | 2025](https://www.youtube.com/watch?v=BBG61DmM28E)
      * Stats: Wedge Proximity | Recovery Situations | Putting Make Rates | Birdies!
+   - [The Golfer's Journal: Jon Sherman | Play Better Golf (playlist) | 2024](https://www.youtube.com/playlist?list=PLTyk1uos2jcuEJeQVDFiGLboHw3HJH4bW)
 
 1. [Dan Grieve | Short Game shot selection options around the green (video) | 2024](https://www.youtube.com/watch?v=Jo69FOclmz0)
    - 10 short game scenarios

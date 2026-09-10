@@ -23,6 +23,14 @@
    - Links to connection-balls: https://purestrikegolfco.com/products/purestrike-premium-performance-ball |
      https://www.amazon.com/pure-strike/s?k=pure+strike | https://sure-golf.com/en-au/products/connector
 
+1. [Simple Swing Golf Lessons](https://www.youtube.com/@SimpleSwingGolfLessons)
+   - Driver & hybrid: [High Handicapper's Slice Fixed in One Lesson (+40 Yards) (video) | 2026](https://www.youtube.com/watch?v=jLSbYYi-aYY) and
+     [here](https://www.youtube.com/watch?v=gHOFlL1V1g4) -- 27m
+   - [The Simple Way to Strike Your Irons: In Person Lesson (video) | 2026](https://www.youtube.com/watch?v=tAA6hL_DxHc) and
+     [here](https://www.youtube.com/watch?v=Q6ektdEANQ0) -- 22m
+   - [Diary of a High Handicapper | This Golf Coach Taught Me The Simplest Short Game Technique You'll Ever See (video) | 2026](https://www.youtube.com/watch?v=2hS3KJKT5iQ) -- 35m
+
+
 1. [Golf with Coach Carolin: Carolin Pinegger | 3 Golf Drills That Will Make You a Scratch Golfer (video) | 2025](https://www.youtube.com/watch?v=wvvG1x0OQ4o)
    - [1m18s] Split-hand drill: Brings the trail side of the body through | No ball
    - [3m04s] Short swing drill: 1/2 or 3/4 swing | Match the finish length to the backswing length | Finish with straight arms |

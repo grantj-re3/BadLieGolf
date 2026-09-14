@@ -15,6 +15,17 @@
      * Behind the scenes video, exercise: Side Plank (both legs suspended & raise bottom leg with top leg suspended) | Full body spiral rotation
      * Behind the scenes video, setup tips: Narrower, closed & flared stance for bigger backswing (with hips/shoulders square) | Strengthen your left hand grip slightly
 
+1. Easiest Swing
+   - [Videos tab]](https://www.youtube.com/@Easiestswing/videos)
+     * 40 or so videos include "senior" in the title | Some are given below
+     * [Seán Herron | 99% of Seniors Golfers NEED This Easy Hip Turn to UNLEASH Drives! (video) | 2024](https://www.youtube.com/watch?v=lDa09LLegEg)
+     * [Philip Sparks | Senior Golfers CAN IMPROVE Their Drives With These Basics! (video) | 2024](https://www.youtube.com/watch?v=CnhSn7CRjv4)
+     * [Philip Sparks | Senior Golfers Keep Making This ONE Mistake (video) | 2025](https://www.youtube.com/watch?v=dXiqM5kwpHk)
+   - [The Original Brian Sparks ‘Easiest Swing in Golf’ Series (playlist) | 2011-2014](https://www.youtube.com/playlist?list=PL0JdMemEKIieRJSY0SErzi26I09kvmhx0)
+     * 9 videos | Most are 1-4 minutes each
+   - [Live Lessons (playlist) | 2025-2026](https://www.youtube.com/playlist?list=PL0JdMemEKIif3OdZfd4N9BKPwQemZjEyq)
+     * 11 videos | 11-30 minutes each
+
 1. [US GOLF TV: Todd Kolb | Senior Golf Swing: Avoid Injury and Play Better | 2021](https://usgolftv.com/instruction/senior-golf-swing/)
 
 1. [The Golfing Lad | How to Improve Your Golf Swing at 50+ (Age-Specific Tips) | 2026](https://thegolfinglad.com/improve-golf-swing-over-50/)

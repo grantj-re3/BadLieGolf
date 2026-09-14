@@ -16,7 +16,7 @@
      * Behind the scenes video, setup tips: Narrower, closed & flared stance for bigger backswing (with hips/shoulders square) | Strengthen your left hand grip slightly
 
 1. Easiest Swing
-   - [Videos tab]](https://www.youtube.com/@Easiestswing/videos)
+   - [Videos tab](https://www.youtube.com/@Easiestswing/videos)
      * 40 or so videos include "senior" in the title | Some are given below
      * [Seán Herron | 99% of Seniors Golfers NEED This Easy Hip Turn to UNLEASH Drives! (video) | 2024](https://www.youtube.com/watch?v=lDa09LLegEg)
      * [Philip Sparks | Senior Golfers CAN IMPROVE Their Drives With These Basics! (video) | 2024](https://www.youtube.com/watch?v=CnhSn7CRjv4)

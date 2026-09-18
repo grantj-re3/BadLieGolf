@@ -34,6 +34,9 @@
    - [Aaron Galbraith | Senior Golfers Keep Making This Mistake... Here's Why! (video) | 2026](https://www.youtube.com/watch?v=wi2v-h4XGzU)
      * Relexed wrist movement | Drill
      * Similar wrist drill: [Aaron Galbraith | The Tension Killer: How Gregg Transformed His Swing After Lunch! (video) | 2026](https://www.youtube.com/watch?v=uHpVJJDpSYE&t=4m4s)
+   - [Aaron Galbraith | Your Senior Golf Swing Speed Comes From THIS | Not Effort!! (video) | 2026](https://www.youtube.com/watch?v=NJI-DLQA5tI)
+     * Relax hands/arms/wrists | Light grip pressure | Repeatedly feel the clubhead swing | Swing to a relaxed and balanced finish position
+     * How to increase speed | Example drive: 84mph, 189y carry, 220y total
    - [Philip Sparks | This Senior Golfer’s Breakthrough Just Got Even Better! LIVE (video) | 2026](https://www.youtube.com/watch?v=P3GrpZ08lVs)
      * Relaxed/bent elbows at address
      * His old golf swing resulted in: tension | back pain | poor balance

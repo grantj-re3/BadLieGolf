@@ -19,12 +19,25 @@
    - [Videos tab](https://www.youtube.com/@Easiestswing/videos)
      * 40 or so videos include "senior" in the title | Some are given below
      * [Seán Herron | 99% of Seniors Golfers NEED This Easy Hip Turn to UNLEASH Drives! (video) | 2024](https://www.youtube.com/watch?v=lDa09LLegEg)
-     * [Philip Sparks | Senior Golfers CAN IMPROVE Their Drives With These Basics! (video) | 2024](https://www.youtube.com/watch?v=CnhSn7CRjv4)
-     * [Philip Sparks | Senior Golfers Keep Making This ONE Mistake (video) | 2025](https://www.youtube.com/watch?v=dXiqM5kwpHk)
+       + Causes of restricted hip/shoulder turn: Planted lead heel | Head still (with eyes glued to the ball) | Results in body/arm tension
+       + Solution: Loosen lower body to allow hips and shoulders to move together | Allow lead heel to rise | Allow head to turn and follow the right/left weight shift | Tension free
+       + Drill: La Danse du Golf (i.e. the golf dance)
+       + It's not a sway. He says a sway is a lateral motion without a turn.
+       + Similar: [Philip Sparks | Senior Golfers CAN IMPROVE Their Drives With These Basics! (video) | 2024](https://www.youtube.com/watch?v=CnhSn7CRjv4)
+       + Similar: [Philip Sparks | Senior Golfers Keep Making This ONE Mistake (video) | 2025](https://www.youtube.com/watch?v=dXiqM5kwpHk)
+         - Movement is your friend
+     * [Aaron Galbraith | Age-Defying Golf Swing Starts with This Simple Turn! (video) | 2025](https://www.youtube.com/watch?v=MFL0nDisDMM)
    - [The Original Brian Sparks ‘Easiest Swing in Golf’ Series (playlist) | 2011-2014](https://www.youtube.com/playlist?list=PL0JdMemEKIieRJSY0SErzi26I09kvmhx0)
      * 9 videos | Most are 1-4 minutes each
    - [Live Lessons (playlist) | 2025-2026](https://www.youtube.com/playlist?list=PL0JdMemEKIif3OdZfd4N9BKPwQemZjEyq)
      * 11 videos | 11-30 minutes each
+   - [Aaron Galbraith | Senior Golfers Keep Making This Mistake... Here's Why! (video) | 2026](https://www.youtube.com/watch?v=wi2v-h4XGzU)
+     * Relexed wrist movement | Drill
+     * Similar wrist drill: [Aaron Galbraith | The Tension Killer: How Gregg Transformed His Swing After Lunch! (video) | 2026](https://www.youtube.com/watch?v=uHpVJJDpSYE&t=4m4s)
+   - [Philip Sparks | This Senior Golfer’s Breakthrough Just Got Even Better! LIVE (video) | 2026](https://www.youtube.com/watch?v=P3GrpZ08lVs)
+     * Relaxed/bent elbows at address
+     * His old golf swing resulted in: tension | back pain | poor balance
+     
 
 1. [US GOLF TV: Todd Kolb | Senior Golf Swing: Avoid Injury and Play Better | 2021](https://usgolftv.com/instruction/senior-golf-swing/)
 

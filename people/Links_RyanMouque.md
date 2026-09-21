@@ -5,6 +5,15 @@
 1. [I Coached Over 800 Golfers. Here's What I Learned (video) | 2026](https://www.youtube.com/watch?v=JbsweliGIL8) -- 26m
 
 1. [10 Years of PGA Golf Knowledge In 19 Minutes (video) | 2026](https://www.youtube.com/watch?v=8j7RTKkN1RI) -- 20m
+   - Lesson 2: Setup basics (film yourself from face-on and down the line at address): Grip | Ball position (to match your club) | Alignment | *Spine tilt*
+   - Lesson 3: Why You're Stuck: You stall without a coach. Test your skills in:
+     * *GIR | Up & down percentage to save par*
+     * *Eliminate 3-putts (track the length of your first putt): Speed control from longer distances | Hole more short putts*
+   - Lesson 4: The Backwards Saying
+     * Not "drive for show, putt for dough" | Practice 60% long game; 40% short game
+     * *Priority of golf skills: 1. Approach play | 2. Driving (distance) | 3. Short game | 4. Putting*
+   - Lesson 5: Purposeful Practice: Focus on one thing for the whole practice session | After every shot: *What went wrong; What didn't; How you can improve it* before the next shot
+   - Lesson 6: The Two Tells: You need to understand movement patterns | Listen to your coach and follow their instructions | Improvement is a process which takes time
 
 1. [It's Boring But You'll Break 90 In 6 Months (PGA Coach Explains) (video) | 2026](https://www.youtube.com/watch?v=dpc-HasDBoA) -- 17m
    - Lesson 2: Fix Your Setup First

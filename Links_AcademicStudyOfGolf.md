@@ -30,6 +30,15 @@
 
 1. [Real World Physics Problems: Franco Normani | The Physics Of A Golf Swing](https://www.real-world-physics-problems.com/physics-of-a-golf-swing.html)
 
+1. [The Swing Engineer: Antony Taggart](https://www.theswingengineer.com/)
+   - Links to *Topics* starting with [Impact](https://www.theswingengineer.com/impact.html)
+   - Links to *Videos* starting with [Power Accumulators](https://www.theswingengineer.com/video1.html)
+   - Author of the book [The Golf Enchiridion: The Complete Golfing Guide](https://www.theswingengineer.com/the_golf_enchiridion.html)
+   - Author of the book [101 Golf Lessons](https://www.theswingengineer.com/101_golf_lessons.html)
+   - Authorised Instructor of The Golfing Machine (GSEM, Golf Stroke Engineer Master)
+     * Book: [Homer Kelley | The Golfing Machine](https://www.theswingengineer.com/TGM_book.html)
+     * [Scribd book](https://www.scribd.com/document/973400256/The-Golfing-Machine-Homer-Kelly)
+
 1. [Jeffrey Mann | Web site: Perfect Golf Swing Review: A Critical Review of the Golf Swing | 2012-2025](https://www.perfectgolfswingreview.net/index.html)
    - Three sections: Free online review of the golf swing | Miscellaneous golf swing instructional topics | Newton Golf Institute Golf Forum Posts
    - He is not a professional golf instructor. He is a retired physician with a MD degree, and also a BSc degree with majors in anatomy and physiology. He says:

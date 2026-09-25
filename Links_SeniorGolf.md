@@ -32,16 +32,17 @@
    - [Live Lessons (playlist) | 2025-2026](https://www.youtube.com/playlist?list=PL0JdMemEKIif3OdZfd4N9BKPwQemZjEyq)
      * 11 videos | 11-30 minutes each
    - [Aaron Galbraith | Senior Golfers Keep Making This Mistake... Here's Why! (video) | 2026](https://www.youtube.com/watch?v=wi2v-h4XGzU)
-     * Relexed wrist movement | Drill
+     * Relaxed wrist movement | *Drill*
      * Similar wrist drill: [Aaron Galbraith | The Tension Killer: How Gregg Transformed His Swing After Lunch! (video) | 2026](https://www.youtube.com/watch?v=uHpVJJDpSYE&t=4m4s)
    - [Aaron Galbraith | Your Senior Golf Swing Speed Comes From THIS | Not Effort!! (video) | 2026](https://www.youtube.com/watch?v=NJI-DLQA5tI)
      * Relax hands/arms/wrists | Light grip pressure | Repeatedly feel the clubhead swing | Swing to a relaxed and balanced finish position
      * How to increase speed | Example drive: 84mph, 189y carry, 220y total
+   - [Aaron Galbraith | Is A 3 Wood The SECRET To Fixing Your Chipping Nightmares? (video) | 2025](https://www.youtube.com/watch?v=EepHGlxEV7Q)
+     * Light grip pressure | Right hand barely holding the club | Chip with 3-wood, then 8-iron then sand wedge | A sweeping swing forwards
    - [Philip Sparks | This Senior Golfer’s Breakthrough Just Got Even Better! LIVE (video) | 2026](https://www.youtube.com/watch?v=P3GrpZ08lVs)
      * Relaxed/bent elbows at address
      * His old golf swing resulted in: tension | back pain | poor balance
      
-
 1. [US GOLF TV: Todd Kolb | Senior Golf Swing: Avoid Injury and Play Better | 2021](https://usgolftv.com/instruction/senior-golf-swing/)
 
 1. [The Golfing Lad | How to Improve Your Golf Swing at 50+ (Age-Specific Tips) | 2026](https://thegolfinglad.com/improve-golf-swing-over-50/)

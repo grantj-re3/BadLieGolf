@@ -23,6 +23,12 @@
    - Links to connection-balls: https://purestrikegolfco.com/products/purestrike-premium-performance-ball |
      https://www.amazon.com/pure-strike/s?k=pure+strike | https://sure-golf.com/en-au/products/connector
 
+1. Luther Blacklock Golf
+   - [Building Golf Basics (playlist) | 2021](https://www.youtube.com/playlist?list=PLPbydYG9vyUKKBlam2ms3Y8c1EZ6lK-vq)
+   - [Golf Masterclass - Simplify Your Short Game (playlist) | 2022](https://www.youtube.com/playlist?list=PLPbydYG9vyUKS-oQE6SjFqsmg4IS5adOz)
+   - [Golf From The Ground Up (playlist) | 2020-2021](https://www.youtube.com/playlist?list=PLPbydYG9vyUKACO9Xq65fmO53dd3abLcB)
+
+
 1. [Simple Swing Golf Lessons](https://www.youtube.com/@SimpleSwingGolfLessons)
    - Driver & hybrid: [High Handicapper's Slice Fixed in One Lesson (+40 Yards) (video) | 2026](https://www.youtube.com/watch?v=jLSbYYi-aYY) and
      [here](https://www.youtube.com/watch?v=gHOFlL1V1g4) -- 27m

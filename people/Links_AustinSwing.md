@@ -7,6 +7,7 @@
 1. [Steve Pratt Golf | Right Arm Throw Action in Detail - For Incredible Clubhead Speed! (video) | 2020](https://www.youtube.com/watch?v=KZzGHAKx2c0)
 
 1. [Steve Pratt Golf | Left Arm Action for Incredible Distance! (video) | 2021](https://www.youtube.com/watch?v=V8nZeZ2xCtc)
+   - [7m56s] Mike Austin demo with a rope acting as his left arm
 
 1. [Steve Pratt Golf | ANYONE Can Drive the Golf Ball 250+ Yards! (video) | 2021](https://www.youtube.com/watch?v=MEC8CuEgEQQ)
    * See the tip below regarding a Strike spray substitute

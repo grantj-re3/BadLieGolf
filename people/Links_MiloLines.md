@@ -34,6 +34,7 @@
    - Step drill | Start slowly
    - *The arms aren't actually turned off, but they are reacting to the inputs given to them by the body*
    - Final message: *Slow down enough to feel* how to move correctly and how to create the stretches, sequencing and flow
+   - Similar: [He Nailed A Shallow Downswing With THIS Step N' Throw Sequence (LIVE Golf Lesson) | 2025](https://www.youtube.com/watch?v=2p_0ql873jw) -- 27m
 1. [Creating A Stable Release That Bottoms Out In The Right Place (video) | 2019](https://www.youtube.com/watch?v=v_NItGXkd9E)
    - Maintain the structure you had at the top while moving your upper-body down | Develop shaft lean (which reduces the
      radius from shoulder-to-ball compared to address

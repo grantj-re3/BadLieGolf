@@ -110,6 +110,13 @@
      located on either the back of the ball or the top
 
 
+## Putting: Is putt distance proportional to the backstroke distance?
+
+1. [University of Central Florida: Pascual Santiago-Martinez | A Mechanics-Based Approach for Putt Distance Optimization, (Honors Theses) | 2015](https://stars.library.ucf.edu/honorstheses1990-2015/1741/)
+   - [PDF](https://stars.library.ucf.edu/cgi/viewcontent.cgi?article=2740&context=honorstheses1990-2015)
+   - YES - *Equation 3.14 shows that the putt distance is linearly related to backstroke*
+
+
 ## Putting: Reading greens using the plumb-bob method
 
 1. [Sasho James Mackenzie, Eric Sprigings | Evaluation of the plumb-bob method for reading greens in putting | 2005](https://www.researchgate.net/publication/7895116_Evaluation_of_the_plumb-bob_method_for_reading_greens_in_putting)

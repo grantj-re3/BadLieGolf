@@ -70,6 +70,14 @@
    - You can hear: Tempo | Rhythm | Timing | Hear the [quiet] transition
 
 
+## [Golf Explained by HOSHITORE | videos](https://www.youtube.com/@HoshitoreGolf/videos)
+
+*Scientific and biomechanical explanations* of golf swing mechanics, movement principles, and performance training
+
+1. [The BIGGEST Myth About Distance | Why You’re Not Hitting Far (video) | 2025](https://www.youtube.com/watch?v=n4PyusbdEyE)
+   - What is the X-Factor? | What is the SSC? | The braking effect | Two types of weight shift | Understanding the ideal weight shift
+
+
 ## Quiet Eye putting
 
 1. Game Improvement Golf

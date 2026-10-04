@@ -4,6 +4,8 @@
 
 1. [Lee Kopanski](people/Links_LeeKopanski.md)
 
+1. [Milo Lines](people/Links_MiloLines.md)
+
 1. Golf Life Crisis - Joel Gregory
    - :thumbsup: Anders Mankert's coaching is exceptional and very clearly explained
    - [Golf Lessons (playlist) | 2025-2026](https://www.youtube.com/playlist?list=PL07KsiGcNJRUSV7MewOTBgZWCunlmYPeS)
@@ -28,14 +30,12 @@
    - [Golf Masterclass - Simplify Your Short Game (playlist) | 2022](https://www.youtube.com/playlist?list=PLPbydYG9vyUKS-oQE6SjFqsmg4IS5adOz)
    - [Golf From The Ground Up (playlist) | 2020-2021](https://www.youtube.com/playlist?list=PLPbydYG9vyUKACO9Xq65fmO53dd3abLcB)
 
-
 1. [Simple Swing Golf Lessons](https://www.youtube.com/@SimpleSwingGolfLessons)
    - Driver & hybrid: [High Handicapper's Slice Fixed in One Lesson (+40 Yards) (video) | 2026](https://www.youtube.com/watch?v=jLSbYYi-aYY) and
      [here](https://www.youtube.com/watch?v=gHOFlL1V1g4) -- 27m
    - [The Simple Way to Strike Your Irons: In Person Lesson (video) | 2026](https://www.youtube.com/watch?v=tAA6hL_DxHc) and
      [here](https://www.youtube.com/watch?v=Q6ektdEANQ0) -- 22m
    - [Diary of a High Handicapper | This Golf Coach Taught Me The Simplest Short Game Technique You'll Ever See (video) | 2026](https://www.youtube.com/watch?v=2hS3KJKT5iQ) -- 35m
-
 
 1. [Golf with Coach Carolin: Carolin Pinegger | 3 Golf Drills That Will Make You a Scratch Golfer (video) | 2025](https://www.youtube.com/watch?v=wvvG1x0OQ4o)
    - [1m18s] Split-hand drill: Brings the trail side of the body through | No ball

@@ -7,6 +7,11 @@ The GRF downswing sequence is *lateral*, then *rotational* and finally *vertical
 1. [The Global Platform for Innovative Technologies | Ground Reaction Force The Engine of the Golf Swing (video) | 2026](https://www.youtube.com/watch?v=I-qLxS3prAA)
 
 
+## Milo Lines
+
+See [here](people/Links_MiloLines.md)
+
+
 ## Joe Plecker
 
 1. :thumbsup: [The Physics of Power: Unlocking Torque in Your Golf Swing | Titleist Tips (video) | 2025](https://www.youtube.com/watch?v=h-K3UMWTJ54)

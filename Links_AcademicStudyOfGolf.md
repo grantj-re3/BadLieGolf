@@ -70,7 +70,7 @@
    - You can hear: Tempo | Rhythm | Timing | Hear the [quiet] transition
 
 
-## [Golf Explained by HOSHITORE | videos](https://www.youtube.com/@HoshitoreGolf/videos)
+## [Hoshitore](https://www.youtube.com/@HoshitoreGolf/videos)
 
 *Scientific and biomechanical explanations* of golf swing mechanics, movement principles, and performance training
 

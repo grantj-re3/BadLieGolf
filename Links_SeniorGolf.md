@@ -27,6 +27,8 @@
        + Similar: [Philip Sparks | Senior Golfers Keep Making This ONE Mistake (video) | 2025](https://www.youtube.com/watch?v=dXiqM5kwpHk)
          - Movement is your friend
      * [Aaron Galbraith | Age-Defying Golf Swing Starts with This Simple Turn! (video) | 2025](https://www.youtube.com/watch?v=MFL0nDisDMM)
+     * [Philip Sparks | Senior Golfers Find SECRET Power With These Simple Basics! (video) | 2024](https://www.youtube.com/watch?v=H6WHNDz57jI)
+       + Right hand only swing drill | Tension free | La Danse du Golf | 7i, driver, then Swing Caddy Training Aid
    - [The Original Brian Sparks ‘Easiest Swing in Golf’ Series (playlist) | 2011-2014](https://www.youtube.com/playlist?list=PL0JdMemEKIieRJSY0SErzi26I09kvmhx0)
      * 9 videos | Most are 1-4 minutes each
    - [Live Lessons (playlist) | 2025-2026](https://www.youtube.com/playlist?list=PL0JdMemEKIif3OdZfd4N9BKPwQemZjEyq)

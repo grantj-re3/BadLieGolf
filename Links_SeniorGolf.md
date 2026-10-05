@@ -48,6 +48,12 @@
    - [Make The Club LIGHT In The Backswing And HEAVY In Transition! (video) | 2023](https://www.youtube.com/watch?v=uy5PZll8Rw8)
    - [A Powerful Rotational Swing That Is Safe For Your Back (video) | 2019](https://www.youtube.com/watch?v=VYXHKA1LbRw)
 
+1. Face First Golf: Craig Jones
+   - :thumbsup: [How to Hit 250+ Yards Even If You Can't Turn (video) | 2026](https://www.youtube.com/watch?v=76-wSSK1MUA)
+     * 1. Elbows together: triangle structure | 2. Wrist hinge | 3. Syncing the body with the swing: belt buckle drill
+   - [5 Senior Driver Setup Moves To Outdrive Your Buddies (video) | 2026](https://www.youtube.com/watch?v=HDQMluTkfs8)
+     * 1. Closed face grip | 2. Drop the trail foot back | 3. Foot flare | 4. Driver ball position | 5. Hip bump for spine tilt
+
 1. [US GOLF TV: Todd Kolb | Senior Golf Swing: Avoid Injury and Play Better | 2021](https://usgolftv.com/instruction/senior-golf-swing/)
 
 1. [The Golfing Lad | How to Improve Your Golf Swing at 50+ (Age-Specific Tips) | 2026](https://thegolfinglad.com/improve-golf-swing-over-50/)
